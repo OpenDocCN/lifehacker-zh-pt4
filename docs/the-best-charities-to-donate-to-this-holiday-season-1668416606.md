@@ -1,6 +1,6 @@
 # 这个假期捐赠的最佳慈善机构
 
-> 原文:[https://life hacker . com/the-best-charities-to-duate-to-this-holiday-season-1668416606](https://lifehacker.com/the-best-charities-to-donate-to-this-holiday-season-1668416606)
+> 原文：<https://lifehacker.com/the-best-charities-to-donate-to-this-holiday-season-1668416606>
 
 节假日是一年中感谢你所拥有的东西，并给予那些不幸的人的大好时光。当然，大多数慈善机构和非营利组织在一年中的任何时候都需要人手，但是假期是特殊的。既然假期已经全面展开，让我们列出一个捐赠的好项目清单。
 

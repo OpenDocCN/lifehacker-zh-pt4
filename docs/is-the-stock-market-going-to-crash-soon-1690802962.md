@@ -1,6 +1,6 @@
 # 股市会很快崩盘吗？
 
-> 原文:[https://life hacker . com/is-the-stock-market-to-crash-soon-1690802962](https://lifehacker.com/is-the-stock-market-going-to-crash-soon-1690802962)
+> 原文：<https://lifehacker.com/is-the-stock-market-going-to-crash-soon-1690802962>
 
 亲爱的生活黑客，我读了很多关于股票市场创下更多新纪录的报道。诺贝尔经济学奖得主警告说，市场被高估了。这是否意味着崩盘即将来临？我该怎么办？
 

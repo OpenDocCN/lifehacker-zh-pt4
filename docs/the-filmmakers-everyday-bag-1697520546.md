@@ -1,6 +1,6 @@
 # 电影制作人的日常包
 
-> 原文:[https://life hacker . com/the-filmers-daily-bag-1697520546](https://lifehacker.com/the-filmmakers-everyday-bag-1697520546)
+> 原文：<https://lifehacker.com/the-filmmakers-everyday-bag-1697520546>
 
 像许多创造性的工作一样，电影制作人是一份全职工作，无论你在哪里，你都需要捕捉想法。虽然这显然不是为了实际的电影拍摄，但 Lifehacker 的读者 Moreá分享了他们用来做笔记、编辑和拍摄外景的包。
 

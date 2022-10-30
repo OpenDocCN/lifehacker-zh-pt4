@@ -1,6 +1,6 @@
 # iOS vs Android:2015 版
 
-> 原文:[https://gizmodo . com/IOs-vs-Android-the-2015-edition-1700461435](https://gizmodo.com/ios-vs-android-the-2015-edition-1700461435)
+> 原文：<https://gizmodo.com/ios-vs-android-the-2015-edition-1700461435>
 
 已经过去 7 年了，在互联网论坛和现实生活中，关于 iOS 和 Android 的大辩论仍在继续。但是这些平台在过去的一两年里已经取得了长足的进步。旧的论点仍然适用吗？iOS 8.3 和 Android 5.1 Lollipop 有哪些区别？我们用一台 Nexus 6 和一台 iPhone 6 进行了调查。
 

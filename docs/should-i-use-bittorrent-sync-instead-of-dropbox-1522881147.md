@@ -1,6 +1,6 @@
 # 我应该使用 BitTorrent Sync 而不是 Dropbox 吗？
 
-> 原文:[https://life hacker . com/should-I-use-BitTorrent-sync-inst-of-Dropbox-1522881147](https://lifehacker.com/should-i-use-bittorrent-sync-instead-of-dropbox-1522881147)
+> 原文：<https://lifehacker.com/should-i-use-bittorrent-sync-instead-of-dropbox-1522881147>
 
 亲爱的 Lifehacker，
 我一直听到人们谈论 [BitTorrent Sync](https://lifehacker.com/bittorrent-sync-keeps-your-files-in-sync-skips-the-ins-478810621) ，但我不确定我为什么要关心它。不就是又一个文件同步服务吗？为什么我要用它而不是像 Dropbox 这样的东西？

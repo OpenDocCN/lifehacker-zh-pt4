@@ -1,6 +1,6 @@
 # 最好的安卓语音记录应用
 
-> 原文:[https://life hacker . com/the-best-voice-recording-app-for-Android-5879500](https://lifehacker.com/the-best-voice-recording-app-for-android-5879500)
+> 原文：<https://lifehacker.com/the-best-voice-recording-app-for-android-5879500>
 
 你的智能手机可以兼作录音机。将你的手机对准演讲者，你就可以记录会议、演讲和采访。Google Play 有很多很棒的语音录制应用，但 Cogi 比其他应用更好地认识到录制语音的核心需求，因此脱颖而出。
 

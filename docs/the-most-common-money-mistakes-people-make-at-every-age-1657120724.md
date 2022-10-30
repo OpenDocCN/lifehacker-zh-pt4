@@ -1,6 +1,6 @@
 # 每个年龄阶段人们最常犯的金钱错误
 
-> 原文:[https://life hacker . com/the-most-common-money-mistakes-people-make-at-every-age-1657120724](https://lifehacker.com/the-most-common-money-mistakes-people-make-at-every-age-1657120724)
+> 原文：<https://lifehacker.com/the-most-common-money-mistakes-people-make-at-every-age-1657120724>
 
 财务上的愚蠢可能发生在任何年龄；随着每一个新的财务里程碑和责任而来的是一个全新的方式让你把一切都搞砸。好消息是什么？你并不孤单。每一代人都有一大堆其成员通常会犯的错误和糟糕的选择。避免这些错误的最好方法是了解它们是什么。
 

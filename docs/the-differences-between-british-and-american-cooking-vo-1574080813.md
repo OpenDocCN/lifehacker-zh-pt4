@@ -1,6 +1,6 @@
 # 美国和国际烹饪词汇的差异
 
-> 原文:[https://life hacker . com/the-differences-between-British-and-American-cooking-VO-1574080813](https://lifehacker.com/the-differences-between-british-and-american-cooking-vo-1574080813)
+> 原文：<https://lifehacker.com/the-differences-between-british-and-american-cooking-vo-1574080813>
 
 如果你在其他说英语的国家旅行，你可能会惊讶地发现普通的食物和配料有完全不同的名字。在英国，茄子是茄子，芝麻菜是火箭！在 [*栈交换*](http://coooking.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=cooking-117) *的旅行厨师们帮助我们跨过池塘。*
 

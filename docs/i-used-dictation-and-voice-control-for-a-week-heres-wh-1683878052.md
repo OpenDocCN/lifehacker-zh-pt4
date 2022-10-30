@@ -1,6 +1,6 @@
 # 我用了一周的听写和声控。事情是这样的
 
-> 原文:[https://life hacker . com/I-used-dictation-and-voice-control-for-week-heres-wh-1683878052](https://lifehacker.com/i-used-dictation-and-voice-control-for-a-week-heres-wh-1683878052)
+> 原文：<https://lifehacker.com/i-used-dictation-and-voice-control-for-a-week-heres-wh-1683878052>
 
 似乎无论你在哪里看，语音控制和听写正在被添加到每个应用程序、操作系统和游戏控制台中。我们喜欢取笑它工作得有多糟糕，但我决定一头扎进去，看看实际使用它是什么感觉...为了一切。事情是这样的。
 

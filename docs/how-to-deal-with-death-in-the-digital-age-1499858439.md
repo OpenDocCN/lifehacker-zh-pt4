@@ -1,6 +1,6 @@
 # 如何应对数字时代的死亡
 
-> 原文:[https://life hacker . com/how-to-death-in-the-digital-age-1499858439](https://lifehacker.com/how-to-deal-with-death-in-the-digital-age-1499858439)
+> 原文：<https://lifehacker.com/how-to-deal-with-death-in-the-digital-age-1499858439>
 
 我祖母的生日是[上个]星期一，脸书鼓励我在她的墙上张贴问候，或者实际上送一份生日礼物来庆祝。问题是，我奶奶死了。
 

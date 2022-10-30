@@ -1,6 +1,6 @@
 # 请教专家:假期健康饮食习惯
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-healthy-eaching-t-1656795085](https://lifehacker.com/ask-an-expert-all-about-healthy-eating-habits-during-t-1656795085)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-healthy-eating-habits-during-t-1656795085>
 
 秋天的寒意带来了许多魅力——包括在树叶间飘荡的烘烤食物和烤火鸡的香味。当大多数年末庆祝活动都集中在放纵上时，如何保持明智、健康的饮食？
 

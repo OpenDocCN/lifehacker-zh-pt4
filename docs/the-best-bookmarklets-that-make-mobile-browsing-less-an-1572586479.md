@@ -1,6 +1,6 @@
 # 让手机浏览不那么烦人的最佳书签
 
-> 原文:[https://life hacker . com/the-best-bookmarklets-that-make-mobile-browsing-less-an-1572586479](https://lifehacker.com/the-best-bookmarklets-that-make-mobile-browsing-less-an-1572586479)
+> 原文：<https://lifehacker.com/the-best-bookmarklets-that-make-mobile-browsing-less-an-1572586479>
 
 Bookmarklets 非常适合在浏览器中添加功能，而不需要处理扩展。它们在 Safari 和 Chrome 等移动浏览器上也能很好地工作。使用它们，您可以添加一个按钮来立即修复智能手机浏览器问题，并向各种服务发送页面，更改字体大小等。让我们列出这几类书签中的佼佼者。
 

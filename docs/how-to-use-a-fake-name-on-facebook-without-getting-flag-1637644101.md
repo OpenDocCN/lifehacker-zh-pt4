@@ -1,6 +1,6 @@
 # 如何在脸书使用假名而不被发现
 
-> 原文:[https://life hacker . com/how-to-use-a-fake-name-on-Facebook-without-get-flag-1637644101](https://lifehacker.com/how-to-use-a-fake-name-on-facebook-without-getting-flag-1637644101)
+> 原文：<https://lifehacker.com/how-to-use-a-fake-name-on-facebook-without-getting-flag-1637644101>
 
 脸书一直有要求用户在网站上提供真实姓名的政策。执法不严，但仍有被抓的风险。如果需要的话，以下是如何避开雷达的方法。
 

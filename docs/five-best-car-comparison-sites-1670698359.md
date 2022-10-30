@@ -1,6 +1,6 @@
 # 五个最佳汽车比较网站
 
-> 原文:[https://life hacker . com/five-best-car-comparison-sites-1670698359](https://lifehacker.com/five-best-car-comparison-sites-1670698359)
+> 原文：<https://lifehacker.com/five-best-car-comparison-sites-1670698359>
 
 如果你要买一辆新车，你需要做我们的功课。尽你所能地学习和比较不同的车辆并不容易，这就是为什么有大量的网站可以提供帮助。根据你的提名和建议，本周我们来看看五个最好的汽车比较网站。
 

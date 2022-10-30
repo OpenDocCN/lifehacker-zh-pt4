@@ -1,6 +1,6 @@
 # 羊与狼:聪明投资变得简单
 
-> 原文:[https://life hacker . com/the-sheep-and-the-wolfs-smart-investing-made-simple-1522789629](https://lifehacker.com/the-sheep-and-the-wolves-smart-investing-made-simple-1522789629)
+> 原文：<https://lifehacker.com/the-sheep-and-the-wolves-smart-investing-made-simple-1522789629>
 
 想象你是一个农民。你生活在一个乡村，那里每个人都养羊。该县的农民总体上富裕起来了。他们的羊群倾向于每年增长 10%。有些年份比其他年份好。在最好的年份，该县的羊数量增长了 40%。
 

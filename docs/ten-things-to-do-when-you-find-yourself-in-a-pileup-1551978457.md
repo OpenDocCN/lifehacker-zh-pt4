@@ -1,6 +1,6 @@
 # 当你发现自己陷入连环车祸时要做的十件事
 
-> 原文:[https://jalopnik . com/10-things-to-do-when-you-find you-in-a-pile up-1551978457](https://jalopnik.com/ten-things-to-do-when-you-find-yourself-in-a-pileup-1551978457)
+> 原文：<https://jalopnik.com/ten-things-to-do-when-you-find-yourself-in-a-pileup-1551978457>
 
 躲避和掩护不会奏效，但是如果你遵循这十个步骤，即使你被困在严重的连环车祸中，事情也不会有问题。
 

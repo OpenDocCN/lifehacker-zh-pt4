@@ -1,6 +1,6 @@
 # 几何桌面
 
-> 原文:[https://lifehacker.com/the-geometric-desktop-1708310485](https://lifehacker.com/the-geometric-desktop-1708310485)
+> 原文：<https://lifehacker.com/the-geometric-desktop-1708310485>
 
 Flickr 用户当没有窗户或被窗户覆盖时，整个装置看起来很棒。他是这样设置的。
 

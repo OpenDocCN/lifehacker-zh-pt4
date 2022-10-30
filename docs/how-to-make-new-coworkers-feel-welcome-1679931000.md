@@ -1,6 +1,6 @@
 # 如何让新同事感到受欢迎
 
-> 原文:[https://life hacker . com/how-to-make-new-collaborates-feel-welcome-1679931000](https://lifehacker.com/how-to-make-new-coworkers-feel-welcome-1679931000)
+> 原文：<https://lifehacker.com/how-to-make-new-coworkers-feel-welcome-1679931000>
 
 还记得你上班的第一周吗？可能不容易，但你挺过来了。当你有新人加入你的公司时，你可以利用这些经验来帮助他们更顺利地入职。以下是让你的新同事感到受欢迎的方法。
 

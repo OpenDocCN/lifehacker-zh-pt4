@@ -1,6 +1,6 @@
 # 用这个旅行计划电子表格组织和分享你的假期
 
-> 原文:[https://life hacker . com/organize-and-share-your-the-travel-plann-1684919711](https://lifehacker.com/organize-and-share-your-vacation-with-this-travel-plann-1684919711)
+> 原文：<https://lifehacker.com/organize-and-share-your-vacation-with-this-travel-plann-1684919711>
 
 旅行是一项复杂的考验。为了让事情变得简单一点，并帮助您与所爱的人沟通，我们制作了一份全面的旅行信息表，您可以修改、打印和分享，以帮助您让每个人都了解最新情况。
 

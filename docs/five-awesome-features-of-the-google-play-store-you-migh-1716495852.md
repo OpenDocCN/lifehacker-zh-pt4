@@ -1,6 +1,6 @@
 # 你可能不会用到的谷歌 Play 商店的五大功能
 
-> 原文:[https://life hacker . com/five-awesome-features-of-the-Google-play-store-you-migh-1716495852](https://lifehacker.com/five-awesome-features-of-the-google-play-store-you-migh-1716495852)
+> 原文：<https://lifehacker.com/five-awesome-features-of-the-google-play-store-you-migh-1716495852>
 
 谷歌 Play 商店是一种为你的手机获取新应用的便捷方式，但如果你没有深入了解这项服务，你可能不会注意到它的一些伟大功能。除了基本的东西，这里还有一些 Play Store 提供的最好的东西。
 

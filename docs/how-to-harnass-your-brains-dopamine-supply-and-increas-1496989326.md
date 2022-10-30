@@ -1,6 +1,6 @@
 # 如何控制大脑的多巴胺供应，增强动力
 
-> 原文:[https://life hacker . com/how-to-harnass-your brains-dopamine-supply-and-increase-1496989326](https://lifehacker.com/how-to-harnass-your-brains-dopamine-supply-and-increas-1496989326)
+> 原文：<https://lifehacker.com/how-to-harnass-your-brains-dopamine-supply-and-increas-1496989326>
 
 我花了一个小时写这一段。提醒你一下，这一个小时花得并不值得。当然，我在工作——写作、删除、到处修改文字——但是我每小时写一段的速度更多的是因为缺乏动力，而不是犹豫不决。
 

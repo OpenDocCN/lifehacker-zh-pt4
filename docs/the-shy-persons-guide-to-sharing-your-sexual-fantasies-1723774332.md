@@ -1,6 +1,6 @@
 # 害羞的人分享你性幻想的指南
 
-> 原文:[https://life hacker . com/the-shy-persons-guide-to-share-your-sexual-fantasy-1723774332](https://lifehacker.com/the-shy-persons-guide-to-sharing-your-sexual-fantasies-1723774332)
+> 原文：<https://lifehacker.com/the-shy-persons-guide-to-sharing-your-sexual-fantasies-1723774332>
 
 有时候分享你的幻想就像“嘿，我喜欢 XYZ”一样简单。想和我做吗？”但并不是所有人都能对自己的欲望有如此程度的满足。以下是如何更轻松地释放你的幻想。
 

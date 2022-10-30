@@ -1,6 +1,6 @@
 # 当你被困在生活的加载屏幕时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-when-you-stuck-at-life-loading-screens-1672845968](https://lifehacker.com/what-to-do-when-youre-stuck-at-lifes-loading-screens-1672845968)
+> 原文：<https://lifehacker.com/what-to-do-when-youre-stuck-at-lifes-loading-screens-1672845968>
 
 有时候生活就像一个电子游戏，当你到达一个点时，似乎除了等待别无选择。也许你正处于工作间隙，或者被一些你无法控制的事情所阻碍，但是你可以利用这段时间提升自己，帮助他人，找到前进的方向。
 

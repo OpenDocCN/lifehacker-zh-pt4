@@ -1,6 +1,6 @@
 # 除了正常的预订网站之外，还有四种获得旅行优惠的方式
 
-> 原文:[https://life hacker . com/four-way-to-score-travel-deals-beyond-the-normal-book-1707372513](https://lifehacker.com/four-ways-to-score-travel-deals-beyond-the-normal-book-1707372513)
+> 原文：<https://lifehacker.com/four-ways-to-score-travel-deals-beyond-the-normal-book-1707372513>
 
 像 Expedia、Orbitz 和 Travelocity 这样的在线旅行社是有用的，但它们只是一个起点。当然，它们可能很方便，但是它们并不总是能帮你省下最多的钱。这里有一些鲜为人知的方法，可以在你的夏季旅行中省钱，而且远远超出了通常的范围。
 

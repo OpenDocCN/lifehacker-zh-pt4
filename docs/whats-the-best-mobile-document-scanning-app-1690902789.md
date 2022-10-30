@@ -1,6 +1,6 @@
 # 最好的手机文档扫描 App 是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-mobile-document-scanning-app-1690902789](https://lifehacker.com/whats-the-best-mobile-document-scanning-app-1690902789)
+> 原文：<https://lifehacker.com/whats-the-best-mobile-document-scanning-app-1690902789>
 
 当你在旅途中需要扫描和保存收据、票据或任何其他你不想被折叠起来塞进口袋而毁掉的文件时，一个好的文件扫描仪是一个巨大的帮助。尽管有很多选择。本周我们想听听你认为哪些是最好的。
 

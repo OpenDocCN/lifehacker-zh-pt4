@@ -1,6 +1,6 @@
 # 为什么名片仍然重要(以及如何有效地使用你的名片)
 
-> 原文:[https://life hacker . com/why-business-cards-still-matter-and-how-to-effective-1651222760](https://lifehacker.com/why-business-cards-still-matter-and-how-to-effectively-1651222760)
+> 原文：<https://lifehacker.com/why-business-cards-still-matter-and-how-to-effectively-1651222760>
 
 随着大部分业务以数字化方式完成，你可能会认为名片不再重要。但是他们可以提供很多。这就是为什么它们对业务仍然很重要，以及如何最大限度地利用它们的原因。
 

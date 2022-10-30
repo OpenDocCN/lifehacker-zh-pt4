@@ -1,6 +1,6 @@
 # 最实用的手机配件
 
-> 原文:[https://life hacker . com/the-best-actual-used-phone-accessories-1563484903](https://lifehacker.com/the-best-actually-useful-phone-accessories-1563484903)
+> 原文：<https://lifehacker.com/the-best-actually-useful-phone-accessories-1563484903>
 
 似乎几乎每个人都在制造某种智能手机配件。大部分都很烂，不起作用。但有些其实很牛逼。让我们剔除垃圾，列出最好的。
 

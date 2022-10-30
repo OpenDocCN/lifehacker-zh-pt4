@@ -1,6 +1,6 @@
 # 为什么从我们的错误中学习如此困难(以及你能做什么)
 
-> 原文:[https://life hacker . com/why-it ' s so hard-to-learn from you-1683224583](https://lifehacker.com/why-its-so-hard-to-learn-from-our-mistakes-and-what-yo-1683224583)
+> 原文：<https://lifehacker.com/why-its-so-hard-to-learn-from-our-mistakes-and-what-yo-1683224583>
 
 你知道从错误中吸取教训有多重要，但实际过程说起来容易做起来难。尽管我们尽了最大努力去学习，但我们的大脑每一步都在与我们抗争。但是有了适当的知识和正确的方法，你就可以用技巧来清除它们。
 

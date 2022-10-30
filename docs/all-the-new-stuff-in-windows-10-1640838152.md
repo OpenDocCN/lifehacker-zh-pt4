@@ -1,6 +1,6 @@
 # Windows 10 的所有新功能
 
-> 原文:[https://life hacker . com/all-the-new-stuff-in-windows-10-1640838152](https://lifehacker.com/all-the-new-stuff-in-windows-10-1640838152)
+> 原文：<https://lifehacker.com/all-the-new-stuff-in-windows-10-1640838152>
 
 微软今天向我们展示了下一个版本的 Windows，令人困惑的称为 Windows 10。这是你可以期待看到的。
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:2 月 21 日至 28 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-2 月 21 日至 28 日-1533303817](https://lifehacker.com/this-weeks-most-popular-posts-february-21st-to-28th-1533303817)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-february-21st-to-28th-1533303817>
 
 本周我们学习了如何停止给别人一个 f*ck 别人怎么想的[10 件你永远不该为之买单的东西](http://lifehacker.com/ten-things-you-should-never-pay-for-1529615183)[哪些立式办公桌是最好的](http://lifehacker.com/five-best-standing-desks-1528244287)[哪些是你不该用微波炉加热的](http://lifehacker.com/what-should-and-shouldnt-i-microwave-1532532172) 。这里回顾一下。
 

@@ -1,6 +1,6 @@
 # 删除你的生产力之路
 
-> 原文:[https://life hacker . com/how-to-delete-your-way-to-productivity-1525540079](https://lifehacker.com/how-to-delete-your-way-to-productivity-1525540079)
+> 原文：<https://lifehacker.com/how-to-delete-your-way-to-productivity-1525540079>
 
 把事情做好通常更多的是为了消除障碍，而不是真正完成你清单上的任务。无论你有太多的电子邮件，太多的创意障碍，还是无数的干扰，是时候隐喻性地(有时是字面上)按下删除键，让你的工作变得不可逾越。
 

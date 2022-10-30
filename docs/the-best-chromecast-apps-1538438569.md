@@ -1,6 +1,6 @@
 # 最佳 Chromecast 应用
 
-> 原文:[https://lifehacker.com/the-best-chromecast-apps-1538438569](https://lifehacker.com/the-best-chromecast-apps-1538438569)
+> 原文：<https://lifehacker.com/the-best-chromecast-apps-1538438569>
 
 谷歌凭借 Chromecast 设备撼动了家庭影院市场。自从它允许开发者访问以来，应用程序市场就充斥着对 Google Cast 的支持。以下是最有用的 Chromecast 应用。
 

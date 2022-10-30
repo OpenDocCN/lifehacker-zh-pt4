@@ -1,6 +1,6 @@
 # 李小龙的最佳生产力技巧
 
-> 原文:[https://life hacker . com/Bruce-lees-best-productivity-tricks-1511023470](https://lifehacker.com/bruce-lees-best-productivity-tricks-1511023470)
+> 原文：<https://lifehacker.com/bruce-lees-best-productivity-tricks-1511023470>
 
 李小龙 是历史上最有生产力的人之一，考虑到他 32 岁就去世了，这是相当惊人的。他不仅是动作电影明星和武术家，还是一名教练、编剧、导演和哲学家。这只是我们能从他身上学到的一小部分。
 

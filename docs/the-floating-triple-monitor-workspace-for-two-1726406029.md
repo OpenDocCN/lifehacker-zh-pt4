@@ -1,6 +1,6 @@
 # 两个浮动三显示器工作空间
 
-> 原文:[https://life hacker . com/the-floating-triple-monitor-workspace-for-two-1726406029](https://lifehacker.com/the-floating-triple-monitor-workspace-for-two-1726406029)
+> 原文：<https://lifehacker.com/the-floating-triple-monitor-workspace-for-two-1726406029>
 
 这是两个人共享的干净、白色的 DIY 工作空间。它有三个浮动监视器。它有一个黑客工具。这是今天的特色工作空间。
 

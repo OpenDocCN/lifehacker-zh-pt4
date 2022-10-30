@@ -1,6 +1,6 @@
 # 利用这些免费资源提高你的理财技能
 
-> 原文:[https://life hacker . com/your-guide-to-free-resources-for-improving-your-money-s-1557390942](https://lifehacker.com/your-guide-to-free-resources-for-improving-your-money-s-1557390942)
+> 原文：<https://lifehacker.com/your-guide-to-free-resources-for-improving-your-money-s-1557390942>
 
 想改变你的理财习惯，但是不知道从哪里开始？为了纪念理财知识月，这里有一些免费资源可以帮助你掌握自己的财务状况。
 

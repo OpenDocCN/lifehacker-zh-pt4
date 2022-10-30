@@ -1,6 +1,6 @@
 # 如何在 Yosemite 和 iOS 8 中设置和使用 Handoff
 
-> 原文:[https://life hacker . com/how-to-set-up-and-use-hand-off-in-Yosemite-and-IOs-8-1646745583](https://lifehacker.com/how-to-set-up-and-use-handoff-in-yosemite-and-ios-8-1646745583)
+> 原文：<https://lifehacker.com/how-to-set-up-and-use-handoff-in-yosemite-and-ios-8-1646745583>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-zlSZ9d93VDg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-zlSZ9d93VDg&start=0) 
 

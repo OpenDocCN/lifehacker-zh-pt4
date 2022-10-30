@@ -1,6 +1,6 @@
 # 根据 400 万次旅行的数据，什么时候买机票
 
-> 原文:[https://life hacker . com/when-to-buy-your-fly-ticket-on-data-from-four-1536163030](https://lifehacker.com/when-to-buy-your-plane-ticket-based-on-data-from-four-1536163030)
+> 原文：<https://lifehacker.com/when-to-buy-your-plane-ticket-based-on-data-from-four-1536163030>
 
 当你预订机票时，你不想提前太久购买——成为价格下跌的输家；你也不想订得太晚——为了方便而多付数百元。什么时候买最好？CheapAir 分析了去年购买的 400 多万张机票的数据，提供了一些建议。
 

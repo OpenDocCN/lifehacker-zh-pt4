@@ -1,6 +1,6 @@
 # 紫色主屏幕
 
-> 原文:[https://lifehacker.com/the-purple-home-screen-1633749004](https://lifehacker.com/the-purple-home-screen-1633749004)
+> 原文：<https://lifehacker.com/the-purple-home-screen-1633749004>
 
 不，这不是手机上的 Ubuntu，但你可以原谅误把 [相似的配色](https://lifehacker.com/how-to-dual-boot-ubuntu-on-your-android-device-1577325241) 。这一设计得到了我的彩色屏幕用户 [Vivek S](http://mycolorscreen.com/viveks/) 的许可，为功能性的主屏幕带来了一抹亮色。
 

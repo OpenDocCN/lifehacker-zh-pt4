@@ -1,6 +1,6 @@
 # 位置共享服务的最实际用途
 
-> 原文:[https://life hacker . com/the-most-the-practical-uses-for-location-sharing-services-1565442759](https://lifehacker.com/the-most-practical-uses-for-location-sharing-services-1565442759)
+> 原文：<https://lifehacker.com/the-most-practical-uses-for-location-sharing-services-1565442759>
 
 位置跟踪和共享服务名声不佳。感觉好像有太多的分享在进行。然而，仍然有一些很好的理由来分享你的位置，或者，利用其他人分享的所有数据。
 

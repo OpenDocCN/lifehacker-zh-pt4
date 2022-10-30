@@ -1,6 +1,6 @@
 # 如何原谅曾经伤害过你的人
 
-> 原文:[https://life hacker . com/how-to-forgive-someone-who-under-forced-you-1671192403](https://lifehacker.com/how-to-forgive-someone-who-has-wronged-you-1671192403)
+> 原文：<https://lifehacker.com/how-to-forgive-someone-who-has-wronged-you-1671192403>
 
 当有人伤害你时——不管是无意的还是故意的——很难释怀。你可能永远无法与做错事的人和解，但宽恕是神圣的，它给你一个机会成为更好的人。这里有一些方法可以让你学会原谅。
 

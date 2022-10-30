@@ -1,6 +1,6 @@
 # 每个人都应该知道的五种酱料可以让你有无穷无尽的选择
 
-> 原文:[https://life hacker . com/five-sauce-every one-should-know-how to-make-for-endles-1498247518](https://lifehacker.com/five-sauces-everyone-should-know-how-to-make-for-endles-1498247518)
+> 原文：<https://lifehacker.com/five-sauces-everyone-should-know-how-to-make-for-endles-1498247518>
 
 “晚饭吃什么？”可能是日常生活中最可怕的问题。即使你已经准备好了一大堆原料，你也必须弄清楚如何处理它们，更重要的是，你是否能做出你想吃的东西。然而，学习如何制作一些基本的酱料，你就有了灵活性——把你手头上的任何东西变成一顿美味的大餐。
 

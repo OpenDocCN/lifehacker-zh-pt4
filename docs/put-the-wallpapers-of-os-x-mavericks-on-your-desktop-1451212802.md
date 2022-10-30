@@ -1,6 +1,6 @@
 # 把 OS X Mavericks 的壁纸放到你的桌面上
 
-> 原文:[https://life hacker . com/put-the-wallpapers-of-OS-x-Mavericks-on-your-desktop-1451212802](https://lifehacker.com/put-the-wallpapers-of-os-x-mavericks-on-your-desktop-1451212802)
+> 原文：<https://lifehacker.com/put-the-wallpapers-of-os-x-mavericks-on-your-desktop-1451212802>
 
 你不应该升级到 Mavericks 只是为了分享伟大的新壁纸。如果你想加入，你可以在这里得到高分辨率的照片。
 

@@ -1,6 +1,6 @@
 # 职业聚焦:我作为一名汽车销售员做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-car-salesman-1674564371](https://lifehacker.com/career-spotlight-what-i-do-as-a-car-salesman-1674564371)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-car-salesman-1674564371>
 
 卖车的人经常被讽刺为不守规矩的经销商，但当然这只是一种卡通式的刻板印象。大多数汽车销售人员都是努力工作的人，他们试图赢得你的芳心，并利用他们拥有的任何资源达成交易。让我们来看看一个经销商如何在停车场度过他的一天。
 

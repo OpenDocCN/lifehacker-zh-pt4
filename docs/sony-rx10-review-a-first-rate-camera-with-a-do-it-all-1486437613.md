@@ -1,6 +1,6 @@
 # 索尼 RX10 评论:一流的全能镜头相机
 
-> 原文:[https://gizmodo . com/Sony-rx10-review-a-first-rate-a-camera-with-a-do-it-all-1486437613](https://gizmodo.com/sony-rx10-review-a-first-rate-camera-with-a-do-it-all-1486437613)
+> 原文：<https://gizmodo.com/sony-rx10-review-a-first-rate-camera-with-a-do-it-all-1486437613>
 
 索尼 A7 系列 的 [标志着摄影器材的的转折点，但它也掩盖了另一款与全画幅相机一样独特的索尼新品。RX10 旨在将强大的功能融入实用的多功能包装中。出于这个原因，它对许多不同类型的射手有着巨大的吸引力。](https://gizmodo.com/sony-a7-a7r-review-so-long-dslrs-hello-future-of-ph-1469132320)
 

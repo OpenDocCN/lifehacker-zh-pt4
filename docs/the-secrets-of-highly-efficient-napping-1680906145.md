@@ -1,6 +1,6 @@
 # 高效午睡的秘密
 
-> 原文:[https://gizmodo . com/the-secrets-of-efficient-napping-1680906145](https://gizmodo.com/the-secrets-of-highly-efficient-napping-1680906145)
+> 原文：<https://gizmodo.com/the-secrets-of-highly-efficient-napping-1680906145>
 
 并非所有的午睡都是平等的。一些小睡被证明可以恢复活力，而另一些小睡可以激发创造力。更重要的是，你何时午睡和 T2 如何午睡一样重要。以下是如何像专业的午睡机器一样午睡。以下是如何像你想的那样小睡一会儿。
 

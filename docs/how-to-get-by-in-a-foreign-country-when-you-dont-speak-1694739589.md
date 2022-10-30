@@ -1,6 +1,6 @@
 # 当你不会说一种语言时，如何在外国生活
 
-> 原文:[https://life hacker . com/how-to-get-by-an-foreign-country-you-not-speak-1694739589](https://lifehacker.com/how-to-get-by-in-a-foreign-country-when-you-dont-speak-1694739589)
+> 原文：<https://lifehacker.com/how-to-get-by-in-a-foreign-country-when-you-dont-speak-1694739589>
 
 除非你有一个超级大脑，否则你不可能每次去一个不同的国家都学会一门全新的语言。但是如果你有合适的工具，你就能度过难关。以下是不懂母语时的生存之道。
 

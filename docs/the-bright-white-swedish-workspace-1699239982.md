@@ -1,6 +1,6 @@
 # 明亮的白色瑞典工作区
 
-> 原文:[https://life hacker . com/the-bright-white-Swedish-workspace-1699239982](https://lifehacker.com/the-bright-white-swedish-workspace-1699239982)
+> 原文：<https://lifehacker.com/the-bright-white-swedish-workspace-1699239982>
 
 今天的特色工作区看起来完美无瑕，有着质朴的白墙、简单的白色桌子和木质装饰。那些天窗也有帮助。
 

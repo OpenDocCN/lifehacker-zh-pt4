@@ -1,6 +1,6 @@
 # 如何用正念对抗饮食和锻炼自我破坏
 
-> 原文:[https://life hacker . com/how-to-combat-diet-and-exercise-self-desruption-with mind-1680900810](https://lifehacker.com/how-to-combat-diet-and-exercise-self-sabotage-with-mind-1680900810)
+> 原文：<https://lifehacker.com/how-to-combat-diet-and-exercise-self-sabotage-with-mind-1680900810>
 
 你坚持了你今天的饮食，你感觉不可阻挡...直到你的同事递给你一个纸杯蛋糕。“这只是一个，”你合理化，吞噬每一英寸。罪恶感油然而生。曾经充满希望的一天被毁了，但直到你吃完一个大披萨和一打饼干。这听起来熟悉吗？
 

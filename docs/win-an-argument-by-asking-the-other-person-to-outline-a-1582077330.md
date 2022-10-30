@@ -1,6 +1,6 @@
 # 通过要求对方概述一个计划来赢得争论
 
-> 原文:[https://life hacker . com/win-an-argument-by-ask-the-other-person-to-outline-a-1582077330](https://lifehacker.com/win-an-argument-by-asking-the-other-person-to-outline-a-1582077330)
+> 原文：<https://lifehacker.com/win-an-argument-by-asking-the-other-person-to-outline-a-1582077330>
 
 如果你真的想赢得一场辩论，并说服某人他们是错的，BBC Future 建议最好的方法之一就是让对方解释他们的想法是如何运作的。
 

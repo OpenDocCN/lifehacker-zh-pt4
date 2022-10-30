@@ -1,6 +1,6 @@
 # 你的体形如何影响举重姿势:一堂物理课
 
-> 原文:[https://life hacker . com/how-your-body-shape-affects-weight-lifting-form-a-phys-1711424416](https://lifehacker.com/how-your-body-shape-affects-weight-lifting-form-a-phys-1711424416)
+> 原文：<https://lifehacker.com/how-your-body-shape-affects-weight-lifting-form-a-phys-1711424416>
 
 你已经听到了所有的提示，从挺胸到屈膝。你确信 [你做的一切都是对的](http://vitals.lifehacker.com/all-about-lifting-form-what-to-worry-about-and-what-n-1692058974) ，但还是感觉一切都不对。如果这听起来像你在健身房，这可能是因为你没有使用正确的形式为你的身体。
 

@@ -1,6 +1,6 @@
 # 食品营销人员如何让你认为你在选择健康食品
 
-> 原文:[https://life hacker . com/how-food-markets-make-you-think-you-choice-healt-1694818979](https://lifehacker.com/how-food-marketers-make-you-think-youre-choosing-healt-1694818979)
+> 原文：<https://lifehacker.com/how-food-marketers-make-you-think-youre-choosing-healt-1694818979>
 
 当你走进杂货店时，健康饮食的计划可能会被抛到九霄云外。也许你会在装满蔬菜的手推车里加入垃圾食品。或者也许你相信了 [一种食物是健康的](https://lifehacker.com/the-most-overrated-healthy-foods-and-what-to-eat-in-1693386771) 的宣传，当它真的不是最好的选择时。以下是食品营销人员用来对付你的一些陷阱。
 

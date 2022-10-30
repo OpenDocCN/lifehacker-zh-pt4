@@ -1,6 +1,6 @@
 # 平坦模糊的桌面
 
-> 原文:[https://lifehacker.com/the-flat-n-fuzzy-desktop-1693121677](https://lifehacker.com/the-flat-n-fuzzy-desktop-1693121677)
+> 原文：<https://lifehacker.com/the-flat-n-fuzzy-desktop-1693121677>
 
 读者 [皇家芝士](http://royalewcheese.kinja.com/) 爱 [平板台式机](http://lifehacker.com/the-owl-desktop-1527365896) ，我们也一样。这一次他的桌面向传说中的 fuzz 踏板致敬。如果你知道要找什么，这种简单、平淡的造型就能说明很多问题。这是所有设置的方式。
 

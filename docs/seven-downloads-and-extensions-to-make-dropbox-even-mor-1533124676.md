@@ -1,6 +1,6 @@
 # 七个下载和扩展让 Dropbox 更棒
 
-> 原文:[https://life hacker . com/seven-downloads-and-extensions-to-make-Dropbox-even-mor-1533124676](https://lifehacker.com/seven-downloads-and-extensions-to-make-dropbox-even-mor-1533124676)
+> 原文：<https://lifehacker.com/seven-downloads-and-extensions-to-make-dropbox-even-mor-1533124676>
 
 Dropbox 无疑是互联网上最受欢迎的云存储提供商——至少它是我们最喜欢的。有很多 [聪明的事情你可以用它做](http://lifehacker.com/top-10-clever-uses-for-dropbox-5933884) 开箱即用(明白了吗？).然而，也有很多应用和扩展可以让你更容易地使用 Dropbox 本身。
 

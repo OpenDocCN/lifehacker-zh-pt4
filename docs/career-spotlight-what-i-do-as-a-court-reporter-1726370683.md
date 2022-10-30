@@ -1,6 +1,6 @@
 # 职业聚焦:我作为法庭记者的工作
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-court-reporter-1726370683](https://lifehacker.com/career-spotlight-what-i-do-as-a-court-reporter-1726370683)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-court-reporter-1726370683>
 
 尽管语音转文本软件有了很大的进步，但在法庭上，要制作一份完美的文字稿，还是需要一点人情味。法庭记录员勤奋工作，以保持非常高标准的准确性——事实上，97.5%只是为了合格。
 

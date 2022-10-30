@@ -1,6 +1,6 @@
 # 你工作的公司不是你的朋友
 
-> 原文:[https://life hacker . com/the-company-you-work-for-not-your-friend-1692113529](https://lifehacker.com/the-company-you-work-for-is-not-your-friend-1692113529)
+> 原文：<https://lifehacker.com/the-company-you-work-for-is-not-your-friend-1692113529>
 
 在新事业的蜜月期结束后，有一件事变得很明显:你的雇主——无论是一家生机勃勃的初创公司还是一家价值数百万美元的大公司——都不是你的朋友。你是一个资源。这意味着你唯一能信任的人，真的，就是你自己。以下是如何保持头脑冷静，掌控自己职业生涯的方法。
 

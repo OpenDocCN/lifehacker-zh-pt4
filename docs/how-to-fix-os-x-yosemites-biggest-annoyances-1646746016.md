@@ -1,6 +1,6 @@
 # 如何解决 OS X Yosemite 最大的烦恼
 
-> 原文:[https://life hacker . com/how-to-fix-OS-x-yosemites-biggest-annoyances-1646746016](https://lifehacker.com/how-to-fix-os-x-yosemites-biggest-annoyances-1646746016)
+> 原文：<https://lifehacker.com/how-to-fix-os-x-yosemites-biggest-annoyances-1646746016>
 
 约塞米蒂今天在这里，苹果的新操作系统似乎总是如此，除了它的 [新功能](https://lifehacker.com/all-the-new-stuff-in-os-x-10-10-yosemite-1584870045) 之外，它还带来了一些麻烦。不过不要担心，大多数常见的烦恼只需点击几下鼠标就能解决。
 

@@ -1,6 +1,6 @@
 # 你的应急基金有多少？
 
-> 原文:[https://life hacker . com/how-amount-in-your ' s emergency-fund-1619715447](https://lifehacker.com/how-much-is-in-your-emergency-fund-1619715447)
+> 原文：<https://lifehacker.com/how-much-is-in-your-emergency-fund-1619715447>
 
 不是每个人都同意应急基金应该有多少。一些专家说，在你的基金中保持六个月的生活费用。其他专家说这是矫枉过正，你的钱放在某种投资账户上会更好。我们想知道什么对你有效。
 

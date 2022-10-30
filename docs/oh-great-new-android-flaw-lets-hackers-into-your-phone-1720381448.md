@@ -1,6 +1,6 @@
 # Android 漏洞让黑客用一条短信控制你的手机
 
-> 原文:[https://gizmodo . com/oh-great-new-Android-flaw-let-hackers-into-your phone-1720381448](https://gizmodo.com/oh-great-new-android-flaw-lets-hackers-into-your-phone-1720381448)
+> 原文：<https://gizmodo.com/oh-great-new-android-flaw-lets-hackers-into-your-phone-1720381448>
 
 防止你的任何电子产品被恶意软件淹没的最好方法就是保持个人警惕。“嗯，这个应用程序看起来很粗糙，来自我从未听说过的第三方应用程序商店。没有！”但是 Zimperium 的安全专家发现了一个新的漏洞，只需一条短信就可以攻击你的手机。
 

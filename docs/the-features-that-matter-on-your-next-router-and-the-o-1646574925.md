@@ -1,6 +1,6 @@
 # 对您的下一代路由器至关重要的功能(以及不重要的功能)
 
-> 原文:[https://life hacker . com/the-features-that-matter-on-the-next-a-o-1646574925](https://lifehacker.com/the-features-that-matter-on-your-next-router-and-the-o-1646574925)
+> 原文：<https://lifehacker.com/the-features-that-matter-on-your-next-router-and-the-o-1646574925>
 
 过去，购买路由器就像购买人人都说好的东西一样简单。如今，你必须理解大量的技术术语，从“波束形成”到“MIMO”和“双频带”。其中一些是有用的，但其他的是营销的绒毛。让我们开始工作，把有用的和剩下的分开。
 

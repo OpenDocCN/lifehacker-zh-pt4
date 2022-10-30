@@ -1,6 +1,6 @@
 # 宁静主屏幕
 
-> 原文:[https://lifehacker.com/the-serenity-home-screen-1625275313](https://lifehacker.com/the-serenity-home-screen-1625275313)
+> 原文：<https://lifehacker.com/the-serenity-home-screen-1625275313>
 
 Android:有这么多的通知和提醒通过我们的手机传来，我们都可以使用一些和平和安静。这个来自我的彩屏用户 [21Marco12](http://mycolorscreen.com/21MaRcO12/) 的设计让事情平静了一点。
 

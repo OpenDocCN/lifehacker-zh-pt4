@@ -1,6 +1,6 @@
 # 有一个“讨价还价日”来减少你每月的开销
 
-> 原文:[https://life hacker . com/have-a-bill-haggle-day-to-reduce your-monthly-expense-1614156154](https://lifehacker.com/have-a-bill-haggle-day-to-reduce-your-monthly-expense-1614156154)
+> 原文：<https://lifehacker.com/have-a-bill-haggle-day-to-reduce-your-monthly-expense-1614156154>
 
 我们之前说过，减少你的账单 [的最好方法之一是询问](https://lifehacker.com/reduce-your-bills-by-just-asking-5127638) 。当然，我们中的许多人不想花时间给每一家欠钱的公司打电话。这就是为什么它可能有助于为这项任务留出一天。
 

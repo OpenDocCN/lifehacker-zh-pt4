@@ -1,6 +1,6 @@
 # 旅游时如何拥有“本土体验”
 
-> 原文:[https://life hacker . com/how-to-have-a-local-experience-what-traveling-1625241576](https://lifehacker.com/how-to-have-a-local-experience-when-traveling-1625241576)
+> 原文：<https://lifehacker.com/how-to-have-a-local-experience-when-traveling-1625241576>
 
 如果你是那种希望从旅行中获得最大收获的人，那么你可能会尝试从当地人的角度去体验一些事情。一旦你决定了下一个 的旅行地点，这里有一些建议，可以让你尽可能地创造真实的当地体验。
 

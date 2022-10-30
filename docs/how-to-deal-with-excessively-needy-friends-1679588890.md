@@ -1,6 +1,6 @@
 # 如何对待过分贫困的朋友
 
-> 原文:[https://life hacker . com/how-to-deal-overly-needly-friends-1679588890](https://lifehacker.com/how-to-deal-with-excessively-needy-friends-1679588890)
+> 原文：<https://lifehacker.com/how-to-deal-with-excessively-needy-friends-1679588890>
 
 无论你的朋友是否需要太多的关注、金钱或住处，你可能会因为不得不承担他们的责任而感到有些疲惫。面对一个需要帮助的朋友可能不会有好结果，但是有一些方法可以让他们不再烦你，而不会牺牲友谊本身。
 

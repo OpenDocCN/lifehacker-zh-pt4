@@ -1,6 +1,6 @@
 # 如何在你的 Android 设备上双启动 Ubuntu
 
-> 原文:[https://life hacker . com/how-to-dual-boot-Ubuntu-on-your-Android-device-1577325241](https://lifehacker.com/how-to-dual-boot-ubuntu-on-your-android-device-1577325241)
+> 原文：<https://lifehacker.com/how-to-dual-boot-ubuntu-on-your-android-device-1577325241>
 
 Canonical 为设备开发 Ubuntu 已经有一段时间了。不幸的是，用它来玩真的不容易。然而，如果你想尝试一下(并拥有一个最新的 Nexus 设备)，这从来没有比双重启动更容易。
 

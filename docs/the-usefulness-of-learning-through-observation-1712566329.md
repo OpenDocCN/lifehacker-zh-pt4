@@ -1,6 +1,6 @@
 # 通过观察学习的用处
 
-> 原文:[https://life hacker . com/the-useful-of-learning-through-observation-1712566329](https://lifehacker.com/the-usefulness-of-learning-through-observation-1712566329)
+> 原文：<https://lifehacker.com/the-usefulness-of-learning-through-observation-1712566329>
 
 随便挑一个行业，你都会发现很少有人真正自己做这项工作。大多数人引用二手资料，或在网上查找摘要，以快速了解他们认为需要了解的内容。但这正是为什么持续不断地做无聊的工作实际上是一种竞争优势。你应该自己观察事物。
 

@@ -1,6 +1,6 @@
 # 设置并了解您的新 Windows PC
 
-> 原文:[https://life hacker . com/set-up-and-get-know-your-new-windows-PC-5717628](https://lifehacker.com/set-up-and-get-to-know-your-new-windows-pc-5717628)
+> 原文：<https://lifehacker.com/set-up-and-get-to-know-your-new-windows-pc-5717628>
 
 在与你又旧又慢的 Windows PC 奋斗了几年后，你终于打开了一台闪亮的新电脑。以下是如何开始调整您的设置，安装程序，并加强安全，让它像一个梦一样运行。
 

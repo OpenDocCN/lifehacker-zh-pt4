@@ -1,6 +1,6 @@
 # 怎么才能让老板让我上班戴耳机？
 
-> 原文:[https://life hacker . com/how-can-I-get-my-boss-to-let-me-wear-in-work-1608362894](https://lifehacker.com/how-can-i-get-my-boss-to-let-me-wear-headphones-at-work-1608362894)
+> 原文：<https://lifehacker.com/how-can-i-get-my-boss-to-let-me-wear-headphones-at-work-1608362894>
 
 亲爱的 Lifehacker，
 我在一个开放的办公环境中工作，我真的很想在工作的时候戴上耳机听音乐。我担心我的同事或老板会认为我在孤立自己，或者没有“团队精神”。我该如何解释我在努力提高工作效率，而不会让人觉得我在自我防御？

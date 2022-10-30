@@ -1,6 +1,6 @@
 # 如何让戒烟变得没有吸引力并建立新习惯
 
-> 原文:[https://life hacker . com/how-to-make-quiting-unapparatus-and-build-new-habits-1673792515](https://lifehacker.com/how-to-make-quitting-unappealing-and-build-new-habits-1673792515)
+> 原文：<https://lifehacker.com/how-to-make-quitting-unappealing-and-build-new-habits-1673792515>
 
 坚持是一种重要的美德，但这只是战斗的一部分。当然，你可以让养成新习惯变得更容易，但你也可以让戒烟变得更困难——这样当情况变得艰难时，你就不太可能放弃。让我们来探索几个可以做到这一点的方法。
 

@@ -1,6 +1,6 @@
 # 你不该在好市多买的另外四样东西
 
-> 原文:[https://life hacker . com/four-more-things-you-should-buy-in-Costco-1651514668](https://lifehacker.com/four-more-things-you-shouldnt-buy-at-costco-1651514668)
+> 原文：<https://lifehacker.com/four-more-things-you-shouldnt-buy-at-costco-1651514668>
 
 好市多的仓库里有一些严肃的交易，但是有些东西并不是最划算的。我们已经介绍了一些你应该和不应该在大型超市 购买的东西，但是这里还有四样东西你可以从你的清单上划掉。
 

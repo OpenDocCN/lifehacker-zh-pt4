@@ -1,6 +1,6 @@
 # 打破过滤泡沫的最佳新闻网站
 
-> 原文:[https://life hacker . com/the-best-news-sites-to-break-out-of-your-filter-bubble-1481970509](https://lifehacker.com/the-best-news-sites-to-break-out-of-your-filter-bubble-1481970509)
+> 原文：<https://lifehacker.com/the-best-news-sites-to-break-out-of-your-filter-bubble-1481970509>
 
 你上一次读到让你认真质疑自己观点的东西是什么时候，以一种真实而有意义的方式？如果你像我们大多数人一样，这种情况会越来越少，主要是因为只阅读像我们自己一样的新闻来源和观点是如此容易。这叫做“ [”滤泡](http://en.wikipedia.org/wiki/Filter_bubble) ，”而且重要的是要不时地爆发出来。这里有一些挑战自己做到这一点的好地方。
 

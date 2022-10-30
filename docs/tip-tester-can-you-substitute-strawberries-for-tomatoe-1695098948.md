@@ -1,6 +1,6 @@
 # 小贴士:烹饪时可以用草莓代替西红柿吗？
 
-> 原文:[https://life hacker . com/tip-tester-can-you-substitute-草莓换西红柿-1695098948](https://lifehacker.com/tip-tester-can-you-substitute-strawberries-for-tomatoe-1695098948)
+> 原文：<https://lifehacker.com/tip-tester-can-you-substitute-strawberries-for-tomatoe-1695098948>
 
 草莓现在最甜，整个夏天都是如此。虽然每个人都知道它们在甜点中有多美味，但我们实际上听说你可以用它们来代替西红柿。我决定尝试一下，看看效果如何。
 

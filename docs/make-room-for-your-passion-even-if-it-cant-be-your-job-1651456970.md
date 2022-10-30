@@ -1,6 +1,6 @@
 # 为你的激情腾出空间，即使这不是你的工作
 
-> 原文:[https://life hacker . com/make-room for your passion-即使它不能成为你的工作-1651456970](https://lifehacker.com/make-room-for-your-passion-even-if-it-cant-be-your-job-1651456970)
+> 原文：<https://lifehacker.com/make-room-for-your-passion-even-if-it-cant-be-your-job-1651456970>
 
 在你选择的领域，仅仅有激情是不会给你带来成功的。事实上，你不太可能找到一份完全做你喜欢做的事情的职业，但是没关系。你所需要做的就是在你的生活中为那些让你的心歌唱的事情找到空间，你的生活将会变得更好。
 

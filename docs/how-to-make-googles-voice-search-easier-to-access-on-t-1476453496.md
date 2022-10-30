@@ -1,6 +1,6 @@
 # 如何让谷歌的语音搜索在桌面上更容易使用
 
-> 原文:[https://life hacker . com/how-to-make-Google-voice-search-on-t-1476453496](https://lifehacker.com/how-to-make-googles-voice-search-easier-to-access-on-t-1476453496)
+> 原文：<https://lifehacker.com/how-to-make-googles-voice-search-easier-to-access-on-t-1476453496>
 
 谷歌桌面上的语音命令几乎和安卓 上的 [一样令人敬畏。虽然它不能做手机能做的一切，但](https://lifehacker.com/everything-you-didnt-know-you-could-do-with-google-voi-512727229) [对话式搜索](http://lifehacker.com/googles-new-conversational-search-makes-star-trek-styl-506833940) 使用 [大部分相同的命令](https://support.google.com/chrome/answer/1331723?hl=en) ，甚至可以在 Google Now 中设置定时器或提醒。只是有时候有点难以触及。
 

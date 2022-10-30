@@ -1,6 +1,6 @@
 # 如何在烟花燃放时让你的狗开心——用科学！
 
-> 原文:[https://gizmodo . com/how-to-keep your dog-happy-when-fireworks-go-off-usi-1598830293](https://gizmodo.com/how-to-keep-your-dog-happy-when-fireworks-go-off-usi-1598830293)
+> 原文：<https://gizmodo.com/how-to-keep-your-dog-happy-when-fireworks-go-off-usi-1598830293>
 
 狗害怕烟火。你如何在感受到狗狗们需求的同时享受 7 月 4 日呢？我们联系了一群狗科学家来寻找答案。以下是他们不得不说的话。
 

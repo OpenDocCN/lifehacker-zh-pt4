@@ -1,6 +1,6 @@
 # 揭开缪斯的神秘面纱:你应该停止相信的五个创造力神话
 
-> 原文:[https://life hacker . com/demysifying-the-muse-five-creative-myths-you-should-1688503554](https://lifehacker.com/demystifying-the-muse-five-creativity-myths-you-should-1688503554)
+> 原文：<https://lifehacker.com/demystifying-the-muse-five-creativity-myths-you-should-1688503554>
 
 随着创意成为许多人交易的商品，让创意不断流动比以往任何时候都更重要。但是这些创造性的职业只有少数天才才能从事吗？一点也不。大多数关于创造力是难以捉摸的缪斯女神的想法是不准确的。
 

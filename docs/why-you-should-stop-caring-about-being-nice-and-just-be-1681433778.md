@@ -1,6 +1,6 @@
 # 为什么你不应该在乎做好人，而是要诚实
 
-> 原文:[https://life hacker . com/why-you-should-stop-care-be-nice-just-be 1681433778](https://lifehacker.com/why-you-should-stop-caring-about-being-nice-and-just-be-1681433778)
+> 原文：<https://lifehacker.com/why-you-should-stop-caring-about-being-nice-and-just-be-1681433778>
 
 每个人都想被人喜欢和尊重，但是当你做好人的时候，你可能会给自己带来伤害。人们可能会认为你优柔寡断，甚至不诚实。相反，试着变得诚实、礼貌和自信。
 

@@ -1,6 +1,6 @@
 # 我从一年的生产力实验中学到的 10 个教训
 
-> 原文:[https://life hacker . com/10-lessons-I-learn-from-a-year-of-productivity-experi-1584800618](https://lifehacker.com/10-lessons-i-learned-from-a-year-of-productivity-experi-1584800618)
+> 原文：<https://lifehacker.com/10-lessons-i-learned-from-a-year-of-productivity-experi-1584800618>
 
 在过去的 12 个月里，我在自己身上进行了无数次[采访了世界上最有效率的一些人](http://ayearofproductivity.com/category/interviews/)[阅读了大量关于效率的书籍和学术文献，都是为了探索我如何变得尽可能高效。这是我学到的。](http://ayearofproductivity.com/favorite-books-productivity/)
 

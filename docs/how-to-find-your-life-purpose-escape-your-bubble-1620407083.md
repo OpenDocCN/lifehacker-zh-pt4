@@ -1,6 +1,6 @@
 # 如何找到自己的人生目的？逃离你的泡沫
 
-> 原文:[https://life hacker . com/how-to-find-your-life-purpose-your-bubble-1620407083](https://lifehacker.com/how-to-find-your-life-purpose-escape-your-bubble-1620407083)
+> 原文：<https://lifehacker.com/how-to-find-your-life-purpose-escape-your-bubble-1620407083>
 
 假设你感到没有动力，对自己没有信心，没有目标，找不到你的激情，没有方向，不清楚你生活的目标是什么。你和很多人在一起，大多数人都有同样的处境。
 

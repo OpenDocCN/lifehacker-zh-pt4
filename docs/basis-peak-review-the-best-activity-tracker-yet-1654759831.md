@@ -1,6 +1,6 @@
 # 基础峰值审查:迄今为止最好的活动跟踪器
 
-> 原文:[https://gizmodo . com/basis-peak-review-the-best-activity-tracker-yet-1654759831](https://gizmodo.com/basis-peak-review-the-best-activity-tracker-yet-1654759831)
+> 原文：<https://gizmodo.com/basis-peak-review-the-best-activity-tracker-yet-1654759831>
 
 原来的基础 B1 波段是 [该死的靠近陆地上最大的活动追踪器](http://gizmodo.com/basis-b1-review-the-best-activity-tracker-despite-one-5992356) ，其实不是。它拥有到达那里所需的所有传感器(然后是一些),但它的性能不一致，也许更重要的是，它笨重而丑陋。好吧，Basis Peak 现在在这里纠正这些错误，你猜怎么着？大部分是这样。
 

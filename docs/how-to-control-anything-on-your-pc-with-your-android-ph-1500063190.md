@@ -1,6 +1,6 @@
 # 如何用你的安卓手机控制你电脑上的任何东西
 
-> 原文:[https://life hacker . com/how-to-control-any-on-your-PC-with-your-Android-ph-1500063190](https://lifehacker.com/how-to-control-anything-on-your-pc-with-your-android-ph-1500063190)
+> 原文：<https://lifehacker.com/how-to-control-anything-on-your-pc-with-your-android-ph-1500063190>
 
 你的电视、蓝光播放器和 DVR 都有遥控器，但是如果你用 PC 来运行你的媒体中心，盒子里什么都没有。幸运的是，如果你有一部安卓手机，你可以控制你电脑上的一切。
 

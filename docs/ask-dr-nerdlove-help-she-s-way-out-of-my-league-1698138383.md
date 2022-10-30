@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:帮帮忙，我配不上她！
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-help-she-way-out-of-my-league-1698138383](https://kotaku.com/ask-dr-nerdlove-help-she-s-way-out-of-my-league-1698138383)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-help-she-s-way-out-of-my-league-1698138383>
 
 你好，互联网！欢迎来到 [问博士 NerdLove](http://kotaku.com/askdrnerdlove) ，唯一一个知道地震时该说什么，毒箭从天而降，天柱摇动的交友专栏。
 

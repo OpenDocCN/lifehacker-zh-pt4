@@ -1,6 +1,6 @@
 # 整理你家的快速入门指南
 
-> 原文:[https://life hacker . com/the-quick start-guide-to-decluming-your-home-1716257023](https://lifehacker.com/the-quickstart-guide-to-decluttering-your-home-1716257023)
+> 原文：<https://lifehacker.com/the-quickstart-guide-to-decluttering-your-home-1716257023>
 
 自从九年前改变生活以来，我养成的最喜欢的习惯之一就是拥有一个整洁的家。我现在意识到，我一直不喜欢杂乱，但我推迟了对它的思考，因为它令人不快。一想到要处理那些乱七八糟的东西，我就不知所措，我有太多的事情要做，或者我太累了，所以我拖延了。
 

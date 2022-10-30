@@ -1,6 +1,6 @@
 # 减肥期间如何最大限度减少皮肤松弛
 
-> 原文:[https://life hacker . com/how-to-minimized-in-weight-losing-skin-1696145766](https://lifehacker.com/how-to-minimize-loose-skin-during-weight-loss-1696145766)
+> 原文：<https://lifehacker.com/how-to-minimize-loose-skin-during-weight-loss-1696145766>
 
 人们可能并不总是在他们的前后照片中包括它，但是松弛的皮肤是显著减肥的一个非常常见的副产品。虽然你不能完全防止它，但有*种方法来管理它。以下是你可以在减肥过程中减少皮肤松弛的方法:* 
 

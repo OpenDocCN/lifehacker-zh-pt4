@@ -1,6 +1,6 @@
 # 如何成为一名高效的经理，即使你很害羞
 
-> 原文:[https://life hacker . com/how-to-be-a-effective-manager-even-if-you-shy-1666324550](https://lifehacker.com/how-to-be-an-effective-manager-even-if-youre-shy-1666324550)
+> 原文：<https://lifehacker.com/how-to-be-an-effective-manager-even-if-youre-shy-1666324550>
 
 这看起来似乎是矛盾的——管理者应该是权威的、大胆的领导者，而害羞的人往往会退缩，在谈话中更保守。害羞的领导者真的有效吗？绝对；它只是带来了一系列不同的挑战。
 

@@ -1,6 +1,6 @@
 # 给我们看看你那堆旧电子产品
 
-> 原文:[https://life hacker . com/show-us-your-pile-of-old-electronics-1462501095](https://lifehacker.com/show-us-your-pile-of-old-electronics-1462501095)
+> 原文：<https://lifehacker.com/show-us-your-pile-of-old-electronics-1462501095>
 
 我们大多数人都在家里的某个地方藏了一些旧的小玩意、电脑零件、音响或其他电子元件。大部分都只是你认为有一天可能会用到的东西，所以为什么要扔掉它们。我们想看看你的。
 

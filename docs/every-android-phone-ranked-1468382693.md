@@ -1,6 +1,6 @@
 # 每部安卓手机，排名
 
-> 原文:[https://gizmodo.com/every-android-phone-ranked-1468382693](https://gizmodo.com/every-android-phone-ranked-1468382693)
+> 原文：<https://gizmodo.com/every-android-phone-ranked-1468382693>
 
 现在，地球上每个人都有大约一百万部安卓手机(正负 1)。大部分都很烂。很多都很棒。这是明确的列表，告诉你哪个是哪个。
 

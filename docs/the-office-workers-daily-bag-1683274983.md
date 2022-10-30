@@ -1,6 +1,6 @@
 # 上班族的日常包
 
-> 原文:[https://life hacker . com/the-office-workers-daily-bag-1683274983](https://lifehacker.com/the-office-workers-daily-bag-1683274983)
+> 原文：<https://lifehacker.com/the-office-workers-daily-bag-1683274983>
 
 有时候，你只需要一个简单的包，里面放几样东西。读者 Hayo Bethlehem 就是这种情况，他每天都和他们分享去办公室的包里的东西。
 

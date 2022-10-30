@@ -1,6 +1,6 @@
 # 如何戒掉你深夜吃零食的习惯
 
-> 原文:[https://life hacker . com/how-to-kick the late-night-snacking-habit-1606668159](https://lifehacker.com/how-to-kick-the-late-night-snacking-habit-1606668159)
+> 原文：<https://lifehacker.com/how-to-kick-the-late-night-snacking-habit-1606668159>
 
 每当我问人们最难改掉的习惯是什么时，他们说的第一句话往往是深夜吃零食。当我们结束一天的工作时，我们都容易被零食弄得蜷缩起来，但这可能是一个不健康的习惯，很难戒掉。
 

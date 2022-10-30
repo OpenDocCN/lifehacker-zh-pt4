@@ -1,6 +1,6 @@
 # 专业标签主页屏幕
 
-> 原文:[https://lifehacker.com/the-pro-tabs-home-screen-1569577239](https://lifehacker.com/the-pro-tabs-home-screen-1569577239)
+> 原文：<https://lifehacker.com/the-pro-tabs-home-screen-1569577239>
 
 Android:Pro Tabs 为 Themer 设计了色彩鲜艳的标签和各种引人注目的照片，不仅让你的主屏幕看起来很好，而且让它保持整洁有序。
 

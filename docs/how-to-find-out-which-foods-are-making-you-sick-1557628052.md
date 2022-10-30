@@ -1,6 +1,6 @@
 # 如何找出让你生病的食物
 
-> 原文:[https://life hacker . com/how-to-find-the-food is making-you-sick-1557628052](https://lifehacker.com/how-to-find-out-which-foods-are-making-you-sick-1557628052)
+> 原文：<https://lifehacker.com/how-to-find-out-which-foods-are-making-you-sick-1557628052>
 
 尽管食物过敏仍然很少见(影响大约百分之五的人口)，但食物不耐受却很常见。我每天都要看食物不耐受症患者，他们的症状包括便秘、吞咽困难、胃灼热、腹胀和头痛。但是你怎么知道哪些食物可能会影响你呢？
 

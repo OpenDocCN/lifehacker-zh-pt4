@@ -1,6 +1,6 @@
 # 时间线主屏幕
 
-> 原文:[https://lifehacker.com/the-timeline-home-screen-1598805699](https://lifehacker.com/the-timeline-home-screen-1598805699)
+> 原文：<https://lifehacker.com/the-timeline-home-screen-1598805699>
 
 你的手机可以显示如此多的信息，让你做如此多的事情，你很难掌握所有的信息。这个主屏幕将您需要的一切都放在一个易于阅读的主屏幕上。
 

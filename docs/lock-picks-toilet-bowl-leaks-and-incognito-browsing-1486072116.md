@@ -1,6 +1,6 @@
 # 撬锁工具、马桶漏水和匿名浏览
 
-> 原文:[https://life hacker . com/lock-picks-toilet-bowl-leaks-and-incognity-browsing-1486072116](https://lifehacker.com/lock-picks-toilet-bowl-leaks-and-incognito-browsing-1486072116)
+> 原文：<https://lifehacker.com/lock-picks-toilet-bowl-leaks-and-incognito-browsing-1486072116>
 
 读者们提供了他们最好的建议，帮助你创建自己的开锁工具，发现马桶的漏洞，以及浏览 icognito。
 

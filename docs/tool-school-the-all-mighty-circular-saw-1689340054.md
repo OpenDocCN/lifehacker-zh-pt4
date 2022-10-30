@@ -1,6 +1,6 @@
 # 工具学校:万能圆锯
 
-> 原文:[https://life hacker . com/tool-school-the-all-mighty-circular-saw-1689340054](https://lifehacker.com/tool-school-the-all-mighty-circular-saw-1689340054)
+> 原文：<https://lifehacker.com/tool-school-the-all-mighty-circular-saw-1689340054>
 
 圆锯的大刀片和巨大的声音可能会吓到新手，但不要让这吓到你，远离任何车间最有用的电动工具之一。
 

@@ -1,6 +1,6 @@
 # 用这些自制的调味盐给你的菜肴增添一份美味
 
-> 原文:[https://life hacker . com/give-your-disks-a-savory-boost with this-manufactured-Fla-1716413673](https://lifehacker.com/give-your-dishes-a-savory-boost-with-these-homemade-fla-1716413673)
+> 原文：<https://lifehacker.com/give-your-dishes-a-savory-boost-with-these-homemade-fla-1716413673>
 
 普通的氯化钠非常好，但我对调味盐情有独钟，这种盐超级容易制作，超级美味(只要你选择美味的混合物)。如果你使用正确的方法，你可以用香草、沙司甚至葡萄酒来制作调味盐。
 

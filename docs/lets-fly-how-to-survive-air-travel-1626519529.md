@@ -1,6 +1,6 @@
 # 如何像禅师一样在空中旅行中生存
 
-> 原文:[https://life hacker . com/let-fly-how-to-survive-air-travel-1626519529](https://lifehacker.com/lets-fly-how-to-survive-air-travel-1626519529)
+> 原文：<https://lifehacker.com/lets-fly-how-to-survive-air-travel-1626519529>
 
 这就是你在机场生存的方法:早到。早到？听起来很简单。是的——让我给你看看。提前到达，以至于一个朋友会发短信给你，你 60 岁了？不，你不是 60 岁，你要老得多，因为早到的智慧似乎连大多数 60 岁的旅行者都不知道。
 

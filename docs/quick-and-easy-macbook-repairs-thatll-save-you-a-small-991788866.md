@@ -1,6 +1,6 @@
 # 快速简单的 MacBook 维修将为您节省一大笔钱
 
-> 原文:[https://gizmodo . com/quick-and-easy-macbook-repairs-thall-save-you-a-small-991788866](https://gizmodo.com/quick-and-easy-macbook-repairs-thatll-save-you-a-small-991788866)
+> 原文：<https://gizmodo.com/quick-and-easy-macbook-repairs-thatll-save-you-a-small-991788866>
 
 每个人的 MacBook 都坏了。在某个时刻，硬盘会突然停止；显示屏铰链再也支撑不住了；逻辑板将停止工作。这只是时间问题。幸运的是，你可以自己解决大部分问题。以下是方法。
 

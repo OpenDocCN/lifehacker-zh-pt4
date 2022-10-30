@@ -1,6 +1,6 @@
 # 约会的 10 大基本技巧
 
-> 原文:[https://life hacker . com/top-10-约会必备小贴士-1696547423](https://lifehacker.com/top-10-essential-tips-for-dating-1696547423)
+> 原文：<https://lifehacker.com/top-10-essential-tips-for-dating-1696547423>
 
 约会往往是尴尬的，甜蜜的，挑战性的(有时同时)。但是不要担心，我们有很多在约会现场生存和改善你的约会体验的建议。
 

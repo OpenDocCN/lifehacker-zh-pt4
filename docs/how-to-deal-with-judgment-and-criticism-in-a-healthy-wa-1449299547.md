@@ -1,6 +1,6 @@
 # 如何以健康的方式对待评判和批评
 
-> 原文:[https://life hacker . com/how-to-deal-to-process-with-judgment-and-critical-in-a-healthy-wa-1449299547](https://lifehacker.com/how-to-deal-with-judgment-and-criticism-in-a-healthy-wa-1449299547)
+> 原文：<https://lifehacker.com/how-to-deal-with-judgment-and-criticism-in-a-healthy-wa-1449299547>
 
 你选择怎样生活并不重要——不管你是创业还是在公司工作；生孩子或者选择不生孩子；环游世界或一辈子住在同一个城镇；每周去五次健身房，或者每晚坐在沙发上——无论你做什么，都会有人因此对你做出评判。
 

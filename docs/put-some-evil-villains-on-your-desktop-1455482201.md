@@ -1,6 +1,6 @@
 # 把一些邪恶的恶棍放在你的桌面上
 
-> 原文:[https://life hacker . com/put-some-evil-throughts-on-your-desktop-1455482201](https://lifehacker.com/put-some-evil-villains-on-your-desktop-1455482201)
+> 原文：<https://lifehacker.com/put-some-evil-villains-on-your-desktop-1455482201>
 
 为了纪念邪恶周，我们给了几个邪恶的反派一个展示自己的机会。在这里找到各种各样的，并在你的桌面上给它们一个位置，让它们融入你的精神。
 

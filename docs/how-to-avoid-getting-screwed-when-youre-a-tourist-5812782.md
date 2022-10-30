@@ -1,6 +1,6 @@
 # 当你是一名游客时，如何避免上当受骗
 
-> 原文:[https://life hacker . com/how-to-avoid-getting-when you-a-tourist-5812782](https://lifehacker.com/how-to-avoid-getting-screwed-when-youre-a-tourist-5812782)
+> 原文：<https://lifehacker.com/how-to-avoid-getting-screwed-when-youre-a-tourist-5812782>
 
 旅行是很棒的，直到你让自己陷入困境，最后一丝不挂，身无分文，被绑在玉米地外的一条土路上的电线杆上。即使事情从来没有那么糟糕，作为一名游客，你也有可能被利用，最终毁掉你的假期。以下是如何保持安全。
 

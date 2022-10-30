@@ -1,6 +1,6 @@
 # 小贴士:与最初的公鸡酱相比，其他的 Sriracha 酱怎么样
 
-> 原文:[https://life hacker . com/tip-tester-how-other-sriracha-sauces-compare-to-the-or-1715326431](https://lifehacker.com/tip-tester-how-other-sriracha-sauces-compare-to-the-or-1715326431)
+> 原文：<https://lifehacker.com/tip-tester-how-other-sriracha-sauces-compare-to-the-or-1715326431>
 
 问任何人关于 [Huy Fong Sriracha](http://www.huyfong.com/) 的事，他们很可能对著名的“公鸡酱”有强烈的看法这是你讨厌或喜欢的东西之一，但不可否认的是，它无处不在*，从塔巴斯科到乔氏，每个人都试图利用自己的辛辣产品来迎合这一趋势。*
 

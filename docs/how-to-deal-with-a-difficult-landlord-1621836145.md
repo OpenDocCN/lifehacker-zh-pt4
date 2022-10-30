@@ -1,6 +1,6 @@
 # 如何应对难缠的房东
 
-> 原文:[https://life hacker . com/how-to-deal-a-different-房东-1621836145](https://lifehacker.com/how-to-deal-with-a-difficult-landlord-1621836145)
+> 原文：<https://lifehacker.com/how-to-deal-with-a-difficult-landlord-1621836145>
 
 你刚刚签了一份租约，在初步了解之后，你意识到你的新房东比你以前的房东更固执。不要惊慌。和一个难缠或专横的房东打交道是一件痛苦的事，但这是可以控制的。下面是怎么做的。
 

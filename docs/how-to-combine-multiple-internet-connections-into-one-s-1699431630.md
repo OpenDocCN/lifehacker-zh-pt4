@@ -1,6 +1,6 @@
 # 如何将多个互联网连接合并到一个超级快速管道中
 
-> 原文:[https://life hacker . com/how-to-combine-multiple-internet-connections-to-one-s-1699431630](https://lifehacker.com/how-to-combine-multiple-internet-connections-into-one-s-1699431630)
+> 原文：<https://lifehacker.com/how-to-combine-multiple-internet-connections-into-one-s-1699431630>
 
 您可能没有意识到，但您可能每天都在使用多种互联网连接:您的家庭网络、您的电话，甚至热点和其他设备。缺点:通常一次只能用一个。想象一下，如果你能把它们都整合到一个巨大的管道中，提供更快的下载、流畅的流媒体和清晰的视频通话。下面是如何做到这一点，用一个叫做 Speedify 的工具。
 

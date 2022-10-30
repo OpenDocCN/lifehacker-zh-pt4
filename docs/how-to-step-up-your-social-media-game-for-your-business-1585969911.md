@@ -1,6 +1,6 @@
 # 如何为你的企业或团体提升你的社交媒体游戏
 
-> 原文:[https://life hacker . com/how-to-step-up-your-social-media-game-for-your-business-1585969911](https://lifehacker.com/how-to-step-up-your-social-media-game-for-your-business-1585969911)
+> 原文：<https://lifehacker.com/how-to-step-up-your-social-media-game-for-your-business-1585969911>
 
 对大多数人来说，社交媒体是一种有趣的消磨时间的方式，或者是一种与扩大的朋友网络保持联系的方式。如果你在经营一家企业或推广一个团体，你有更多的事情要处理。以下是如何掌控你的网络生活。
 

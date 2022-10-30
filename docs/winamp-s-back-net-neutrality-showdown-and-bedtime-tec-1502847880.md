@@ -1,6 +1,6 @@
 # Winamp 的回来，网络中立摊牌，和就寝技术
 
-> 原文:[https://life hacker . com/winamp-s-back-net-neutrality-摊牌-就寝-tec-1502847880](https://lifehacker.com/winamp-s-back-net-neutrality-showdown-and-bedtime-tec-1502847880)
+> 原文：<https://lifehacker.com/winamp-s-back-net-neutrality-showdown-and-bedtime-tec-1502847880>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-NIxxkdbPQn0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-NIxxkdbPQn0&start=0) 
 

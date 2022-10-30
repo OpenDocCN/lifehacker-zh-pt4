@@ -1,6 +1,6 @@
 # 如何让机场不那么垃圾(而且更有趣)
 
-> 原文:[https://life hacker . com/how-to-make the airport-less-and-more-fun-1463588427](https://lifehacker.com/how-to-make-the-airport-less-crappy-and-more-fun-1463588427)
+> 原文：<https://lifehacker.com/how-to-make-the-airport-less-crappy-and-more-fun-1463588427>
 
 旅游季节到了，就像每一年一样，你会在机场发现排队、停车噩梦、安全混乱和其他烦恼等着你。当然，除非你把它变成一次冒险。一点点远见、一些计划和对许多便利设施的巧妙利用，可以将一次糟糕的机场之旅变成一次值得期待的活动。以下是方法。
 

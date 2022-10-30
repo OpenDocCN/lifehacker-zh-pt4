@@ -1,6 +1,6 @@
 # 首次置业者的 10 个宝贵经验
 
-> 原文:[https://life hacker . com/10-首次购房者的宝贵经验-1707255214](https://lifehacker.com/10-valuable-lessons-for-first-time-home-buyers-1707255214)
+> 原文：<https://lifehacker.com/10-valuable-lessons-for-first-time-home-buyers-1707255214>
 
 2007 年夏天，我和妻子购买了我们的第一套房子。作为第一次买房的人，我知道我们需要花相当多的时间来研究我们要买的东西。所以这正是我们所做的——我们尽可能多地阅读，自学当地房地产市场，探索购房过程的各个方面。但即使这样，我们还是犯了一些新手的错误。
 

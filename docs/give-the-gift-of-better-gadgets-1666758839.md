@@ -1,6 +1,6 @@
 # 赠送更好的小玩意
 
-> 原文:[https://life hacker . com/give-the-give-the-gift-of-better-gadgets-1666758839](https://lifehacker.com/give-the-gift-of-better-gadgets-1666758839)
+> 原文：<https://lifehacker.com/give-the-gift-of-better-gadgets-1666758839>
 
 [火箭鱼点燃的充电电缆](http://www.rocketfishproducts.com/products/mobile-audio-video/RF-LA5SCB.html)
 

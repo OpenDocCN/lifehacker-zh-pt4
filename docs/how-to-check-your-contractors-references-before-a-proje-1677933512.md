@@ -1,6 +1,6 @@
 # 如何在项目开始前检查承包商的证明资料
 
-> 原文:[https://life hacker . com/how-to-check-your-contractors-references-before-a-proje-1677933512](https://lifehacker.com/how-to-check-your-contractors-references-before-a-proje-1677933512)
+> 原文：<https://lifehacker.com/how-to-check-your-contractors-references-before-a-proje-1677933512>
 
 在你选择了一个承包商的候选名单之后——你欣赏他们的工作，你也能接受他们的预算——是时候开始调查他们的推荐人了。以下是如何研究它们，以便在做出选择之前降低风险。
 

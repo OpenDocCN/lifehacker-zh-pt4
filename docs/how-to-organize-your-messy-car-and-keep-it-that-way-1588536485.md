@@ -1,6 +1,6 @@
 # 如何整理你凌乱的汽车(并保持这种状态)
 
-> 原文:[https://life hacker . com/how-to-organize-your-disty-car-and-keep-it-way-1588536485](https://lifehacker.com/how-to-organize-your-messy-car-and-keep-it-that-way-1588536485)
+> 原文：<https://lifehacker.com/how-to-organize-your-messy-car-and-keep-it-that-way-1588536485>
 
 你会不会因为你的车总是一团糟而再三考虑让别人搭车？你并不孤单。对我们许多人来说，如果它没有四个轮子，那可能是我们房子里最不整洁的房间。但是有一些聪明的方法可以不费吹灰之力解决这个问题。
 

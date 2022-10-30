@@ -1,6 +1,6 @@
 # 携带开机的笔记本电脑不好吗？
 
-> 原文:[https://life hacker . com/is-it-bad-to-carry a-laptop-that-powered-on-1553761616](https://lifehacker.com/is-it-bad-to-carry-a-laptop-thats-powered-on-1553761616)
+> 原文：<https://lifehacker.com/is-it-bad-to-carry-a-laptop-thats-powered-on-1553761616>
 
 在旅途中，你会让笔记本电脑运行吗？如果是这样，你可能会损坏你的驱动器或使你的 CPU 过热。 [*栈交换*](http://superuser.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=superuser-111) *处的移动齿轮头附和。*
 

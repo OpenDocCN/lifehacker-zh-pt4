@@ -1,6 +1,6 @@
 # 连环杀手可以教会我们自信的 5 件事
 
-> 原文:[https://life hacker . com/5-things-serial-killers-can-teach-us-about-confidence-1456335754](https://lifehacker.com/5-things-serial-killers-can-teach-us-about-confidence-1456335754)
+> 原文：<https://lifehacker.com/5-things-serial-killers-can-teach-us-about-confidence-1456335754>
 
 你有没有想过为什么汉尼拔·莱克特这样的角色如此引人注目？几乎是不由自主的，我们被他们吸引，不顾他们邪恶的本性。但是他们有一种源自不可动摇的自信的魅力。这让他们可以自由自在地做自己，不用向任何人道歉。幸运的是，你可以在不牺牲任何道德标准的情况下培养连环杀手的自信。
 

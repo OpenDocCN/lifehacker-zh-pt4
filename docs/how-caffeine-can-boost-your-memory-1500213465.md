@@ -1,6 +1,6 @@
 # 咖啡因如何增强你的记忆力
 
-> 原文:[https://gizmodo . com/how-caffeine-can-boost-your memory-1500213465](https://gizmodo.com/how-caffeine-can-boost-your-memory-1500213465)
+> 原文：<https://gizmodo.com/how-caffeine-can-boost-your-memory-1500213465>
 
 众所周知，咖啡因对大脑有很多好处，但它对我们储存和回忆信息的能力的影响从未得到适当的探索。一项新的研究纠正了这一疏忽，表明咖啡因可以帮助我们回忆起某些记忆——这种效果至少会持续 24 小时。
 

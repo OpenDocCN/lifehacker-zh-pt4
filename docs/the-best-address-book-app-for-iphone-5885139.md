@@ -1,6 +1,6 @@
 # iPhone 的最佳地址簿应用
 
-> 原文:[https://life hacker . com/the-best-address-book-app-for-iphone-5885139](https://lifehacker.com/the-best-address-book-app-for-iphone-5885139)
+> 原文：<https://lifehacker.com/the-best-address-book-app-for-iphone-5885139>
 
 我们已经看到了大量的 iPhone 地址簿应用程序，但大多数都很艰难，因为它们依赖于社交网络集成，而这种集成往往会在几个月后崩溃。正因为如此，我们喜欢更简单的联系人，这使事情变得简单，但有足够的功能将其与默认应用程序区分开来。
 

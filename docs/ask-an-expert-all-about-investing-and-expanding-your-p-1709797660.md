@@ -1,6 +1,6 @@
 # 问专家:关于投资和扩大你的投资组合
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-investing-and-expand-your-p-1709797660](https://lifehacker.com/ask-an-expert-all-about-investing-and-expanding-your-p-1709797660)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-investing-and-expanding-your-p-1709797660>
 
 无论你是刚刚开始投资，还是正在寻求扩大投资组合，有各种各样的在线工具可供初露头角的投资者使用，使这一过程比以往任何时候都更加容易。在这里帮助指导我们的是 Yvette Butler，[Capital One Investing](http://capitaloneinvesting.com)的总裁。
 

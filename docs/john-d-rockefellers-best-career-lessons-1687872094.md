@@ -1,6 +1,6 @@
 # 约翰·洛克菲勒的最佳职业经验
 
-> 原文:[https://life hacker . com/John-d-rockefellers-best-career-lessons-1687872094](https://lifehacker.com/john-d-rockefellers-best-career-lessons-1687872094)
+> 原文：<https://lifehacker.com/john-d-rockefellers-best-career-lessons-1687872094>
 
 爱他也好，恨他也好，你都不能否认他的影响。约翰·d·洛克菲勒是标准石油公司的创始人，该公司成立于 1870 年，是雪佛龙和埃克森美孚等现代企业的创始人。他也是一位著名的慈善家。以下是我们可以从他的生活中学到的一些职业经验。
 

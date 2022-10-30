@@ -1,6 +1,6 @@
 # 上瘾是如何起作用的，你能做些什么
 
-> 原文:[https://life hacker . com/how-addiction-works-and-what-you-can-do-that-1583759577](https://lifehacker.com/how-addiction-works-and-what-you-can-do-about-it-1583759577)
+> 原文：<https://lifehacker.com/how-addiction-works-and-what-you-can-do-about-it-1583759577>
 
 对于我们中的许多人来说，成瘾和物质滥用等话题似乎离我们很远，就像它们会影响其他人，不会(或永远不会)影响我们一样——同样地，[焦虑](http://lifehacker.com/what-anxiety-actually-does-to-you-and-what-you-can-do-a-1468128356) 或其他问题对那些没有经历过它们的人来说似乎很遥远。但事实是，上瘾是一种潜在的疾病，它可能会悄悄靠近你，或者很可能已经伤害到你认识或爱的人，甚至可能在你毫无察觉的情况下。
 

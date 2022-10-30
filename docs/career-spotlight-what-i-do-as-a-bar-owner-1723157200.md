@@ -1,6 +1,6 @@
 # 职业聚焦:我作为酒吧老板做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-bar-owner-1723157200](https://lifehacker.com/career-spotlight-what-i-do-as-a-bar-owner-1723157200)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-bar-owner-1723157200>
 
 开一家自己的酒吧听起来像是一个放松的退休项目——直到你意识到在无情的环境中创建一个可持续的酒店业务是一项艰巨的任务。给自己倒杯酒，你可能需要。
 

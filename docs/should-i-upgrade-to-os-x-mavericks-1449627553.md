@@ -1,6 +1,6 @@
 # 该不该升级到 OS X Mavericks？
 
-> 原文:[https://life hacker . com/should-I-upgrade-to-OS-x-Mavericks-1449627553](https://lifehacker.com/should-i-upgrade-to-os-x-mavericks-1449627553)
+> 原文：<https://lifehacker.com/should-i-upgrade-to-os-x-mavericks-1449627553>
 
 亲爱的 Lifehacker，
 现在苹果已经完成了 OS X Mavericks，我已经查看了功能，我不确定是否应该升级。我不知道这些改变是否真的有帮助，我也不想引入新的错误和软件不兼容。你认为:我应该现在升级，永远不升级，还是以后再升级？

@@ -1,6 +1,6 @@
 # 如何让亲人在医院的日子对每个人来说都更轻松
 
-> 原文:[https://life hacker . com/how-to-make-a-lovered-time-in-hospital-fo-1601679682](https://lifehacker.com/how-to-make-a-loved-ones-time-in-the-hospital-easier-fo-1601679682)
+> 原文：<https://lifehacker.com/how-to-make-a-loved-ones-time-in-the-hospital-easier-fo-1601679682>
 
 住院——尤其是意外住院——对躺在床上的人来说已经很难了，但对其他人来说也很难。如果病人是你爱的人，你会想多做一点，让他们、朋友和家人的一切都变得更容易。以下是方法。
 

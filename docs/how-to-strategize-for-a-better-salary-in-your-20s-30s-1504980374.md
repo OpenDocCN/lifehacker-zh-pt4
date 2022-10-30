@@ -1,6 +1,6 @@
 # 如何在 20 多岁、30 多岁和 40 多岁时制定策略获得更高的薪水
 
-> 原文:[https://life hacker . com/how-to-strategic for a better-salary-in your-20-30-1504980374](https://lifehacker.com/how-to-strategize-for-a-better-salary-in-your-20s-30s-1504980374)
+> 原文：<https://lifehacker.com/how-to-strategize-for-a-better-salary-in-your-20s-30s-1504980374>
 
 当我们年轻的时候，我们可能认为我们老了会赚更多的钱。工作资历伴随着晋升和加薪，对吗？事实证明，你的钱弧比你想象的要短。
 

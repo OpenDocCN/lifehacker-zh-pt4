@@ -1,6 +1,6 @@
 # 如何过一个远离家人的快乐假期
 
-> 原文:[https://life hacker . com/how-to-have-happy-holiday-seasons-living-far-from-family-1668601932](https://lifehacker.com/how-to-have-happy-holiday-seasons-living-far-from-famil-1668601932)
+> 原文：<https://lifehacker.com/how-to-have-happy-holiday-seasons-living-far-from-famil-1668601932>
 
 我们在和家人一起庆祝节日的过程中长大，但在我们搬走后，这就困难多了。离开家人五年后，我明白了你仍然可以庆祝节日，并通过与新朋友联系和与家人重新联系来感恩。
 

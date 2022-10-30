@@ -1,6 +1,6 @@
 # 简单的文本桌面
 
-> 原文:[https://lifehacker.com/the-simple-text-desktop-1632192864](https://lifehacker.com/the-simple-text-desktop-1632192864)
+> 原文：<https://lifehacker.com/the-simple-text-desktop-1632192864>
 
 我们之前已经强调过一些 [Okubax](https://www.flickr.com/photos/okubax/) 的桌面，但是这个桌面的简单吸引了我们。一些简单的工具放在中间和外围，一张纯色的壁纸可以打造一个简单而优雅的桌面。他是这样设计的。
 

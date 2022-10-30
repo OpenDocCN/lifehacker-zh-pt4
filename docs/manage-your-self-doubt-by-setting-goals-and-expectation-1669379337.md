@@ -1,6 +1,6 @@
 # 通过设定目标和期望来管理你的自我怀疑
 
-> 原文:[https://life hacker . com/manage-your-self-question-by-set-goals-and-expect-1669379337](https://lifehacker.com/manage-your-self-doubt-by-setting-goals-and-expectation-1669379337)
+> 原文：<https://lifehacker.com/manage-your-self-doubt-by-setting-goals-and-expectation-1669379337>
 
 有时候，当你努力开始时，你可能会觉得其他人都在爬公司的梯子，得到图书交易，或者找到成功。但是每个人都对自己的工作感到自我怀疑。这只是一个管理这种感觉并一步一步进步的问题。
 

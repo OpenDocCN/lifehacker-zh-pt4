@@ -1,6 +1,6 @@
 # 请教专家:关于过敏的一切
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-allergies-1700389709](https://lifehacker.com/ask-an-expert-all-about-allergies-1700389709)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-allergies-1700389709>
 
 空气中终于弥漫着春天的气息，到处都是抽泣声。对于一些人来说，过敏是一个小烦恼，但对于患有严重食物过敏或哮喘的人来说，可能是一个严重的问题。当过敏干扰了你的生活时，你如何更有效地管理它们？
 

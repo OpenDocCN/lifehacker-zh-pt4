@@ -1,6 +1,6 @@
 # Xbox One:Kotaku 评论
 
-> 原文:[https://kotaku . com/the-Xbox-one-the-kotaku-review-1467960010](https://kotaku.com/the-xbox-one-the-kotaku-review-1467960010)
+> 原文：<https://kotaku.com/the-xbox-one-the-kotaku-review-1467960010>
 
 Xbox One 证明了微软的远大抱负。它代表了他们不仅想在你的家庭娱乐中心占有一席之地，而且想直接进入它的中心。这是一个黑色的塑料罐，一个棱角分明的大块，旨在征服它所经之处的一切。但是尽管它有着令人印象深刻的身体，它却有着惊人数量的弱点。
 

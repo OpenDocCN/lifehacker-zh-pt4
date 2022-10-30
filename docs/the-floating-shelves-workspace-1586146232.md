@@ -1,6 +1,6 @@
 # 浮动货架工作空间
 
-> 原文:[https://life hacker . com/the-floating-shelf-workspace-1586146232](https://lifehacker.com/the-floating-shelves-workspace-1586146232)
+> 原文：<https://lifehacker.com/the-floating-shelves-workspace-1586146232>
 
 可调搁板系统可以真正改变房间的外观，通过灵活的搁板位置，让房间看起来更加开放和现代。今天的特色工作区有一个 [蒙德里安](http://en.wikipedia.org/wiki/Piet_Mondrian) 式的货架排列，看起来像一个明亮多彩的地方来完成事情。
 

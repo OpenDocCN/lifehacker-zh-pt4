@@ -1,6 +1,6 @@
 # 如何用 IFTTT 让你的 iOS 通知更智能
 
-> 原文:[https://life hacker . com/how-to-make-your-IOs-notifications-smarter-with-if TTT-1560883996](https://lifehacker.com/how-to-make-your-ios-notifications-smarter-with-ifttt-1560883996)
+> 原文：<https://lifehacker.com/how-to-make-your-ios-notifications-smarter-with-ifttt-1560883996>
 
 iOS 通知对于让你及时了解应用程序中发生的任何事情非常有用，但它们很快就会变得令人不知所措。有了 [如果这个然后那个](https://ifttt.com) ，你 [现在可以提炼](http://lifehacker.com/ifttt-brings-app-automation-to-the-ipad-adds-collectio-1557202299) 那些通知，这样它们就更少打扰，更智能，更有用。以下是方法。
 

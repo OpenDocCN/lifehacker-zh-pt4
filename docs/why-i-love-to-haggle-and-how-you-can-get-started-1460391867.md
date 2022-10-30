@@ -1,6 +1,6 @@
 # 为什么我喜欢讨价还价(以及如何开始)
 
-> 原文:[https://life hacker . com/why-I-love-to-chaggle-and-how-you-can-start-1460391867](https://lifehacker.com/why-i-love-to-haggle-and-how-you-can-get-started-1460391867)
+> 原文：<https://lifehacker.com/why-i-love-to-haggle-and-how-you-can-get-started-1460391867>
 
 有些人喜欢讨价还价，而有些人不喜欢(或者他们只是不知道如何讨价还价)。慢慢变富的创始人 J.D .罗斯解释了他为什么喜欢讨价还价的艺术，并提供了他的入门建议。
 

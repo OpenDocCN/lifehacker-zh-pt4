@@ -1,6 +1,6 @@
 # 高速公路平视显示器桌面
 
-> 原文:[https://lifehacker.com/the-highway-hud-desktop-1645848165](https://lifehacker.com/the-highway-hud-desktop-1645848165)
+> 原文：<https://lifehacker.com/the-highway-hud-desktop-1645848165>
 
 读者 [阿米塔布](http://amiba17.kinja.com/) 喜欢他的高速公路桌面，即使他最近与我们分享了 [救赎之路桌面](http://lifehacker.com/the-road-to-redemption-desktop-1626707594) ，我们也喜欢这个 Linux 桌面 stats 的位置看起来像一个真正的 HUD，一个在工作时容易被忽略的桌面。
 

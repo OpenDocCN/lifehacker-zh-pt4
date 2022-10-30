@@ -1,6 +1,6 @@
 # 职业聚焦:我作为一名火车工程师做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-train-engineer-1683307144](https://lifehacker.com/career-spotlight-what-i-do-as-a-train-engineer-1683307144)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-train-engineer-1683307144>
 
 货运列车仍然是运输和工业的可靠支柱，每天运送货物穿越欧洲大陆。你可以很容易地想象驾驶火车是一项轻松简单的工作——推动前进，偶尔踩刹车，在经过乡村时向后倾斜，但控制这么多吨需要更多的工作。
 

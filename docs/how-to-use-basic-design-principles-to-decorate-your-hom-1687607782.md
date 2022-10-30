@@ -1,6 +1,6 @@
 # 如何使用基本的设计原则来装饰你的家
 
-> 原文:[https://life hacker . com/how-to-use-basic-design-principles-to-decoration-your-hom-1687607782](https://lifehacker.com/how-to-use-basic-design-principles-to-decorate-your-hom-1687607782)
+> 原文：<https://lifehacker.com/how-to-use-basic-design-principles-to-decorate-your-hom-1687607782>
 
 有些人天生就有很好的装饰或设计眼光。其他人学习技能，并能够成功地应用它。然后是我们剩下的人。如果你没有太多的设计诀窍，一些基本的技术可以走很长的路。
 

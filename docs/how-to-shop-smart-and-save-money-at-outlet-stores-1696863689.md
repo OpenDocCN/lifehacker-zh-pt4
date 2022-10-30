@@ -1,6 +1,6 @@
 # 如何在直销店明智购物并省钱
 
-> 原文:[https://life hacker . com/how-to-shop-smart-and-save-money-in-outlet-stores-1696863689](https://lifehacker.com/how-to-shop-smart-and-save-money-at-outlet-stores-1696863689)
+> 原文：<https://lifehacker.com/how-to-shop-smart-and-save-money-at-outlet-stores-1696863689>
 
 如果你明智购物并做足功课，直销店会是省钱的好地方。但是购物中心的诱惑也会让你超支。通过了解不同类型的直销店以及在哪里可以找到最好的交易和优惠券，最大限度地节省您的开支。
 

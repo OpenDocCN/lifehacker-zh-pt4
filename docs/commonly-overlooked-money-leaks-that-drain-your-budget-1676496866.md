@@ -1,6 +1,6 @@
 # 通常被忽视的资金流失会耗尽你的预算
 
-> 原文:[https://life hacker . com/common-ignored-money-leaks-that-drain-your-budget-1676496866](https://lifehacker.com/commonly-overlooked-money-leaks-that-drain-your-budget-1676496866)
+> 原文：<https://lifehacker.com/commonly-overlooked-money-leaks-that-drain-your-budget-1676496866>
 
 年底可能是一个很好的时间来审查你的支出，并关注一年的普遍资金流失——你知道，那些美元似乎从你的预算中渗出的领域。下面介绍几种常见的钱漏，以及如何堵上。
 

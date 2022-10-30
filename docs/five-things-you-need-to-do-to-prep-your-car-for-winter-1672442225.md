@@ -1,6 +1,6 @@
 # 为你的爱车准备过冬需要做的五件事
 
-> 原文:[https://life hacker . com/5-things-you-need-to-prep-your car for winter-1672442225](https://lifehacker.com/five-things-you-need-to-do-to-prep-your-car-for-winter-1672442225)
+> 原文：<https://lifehacker.com/five-things-you-need-to-do-to-prep-your-car-for-winter-1672442225>
 
 冬季通勤不舒服，但如果你不做好准备，也可能很危险。从使用正确的轮胎到为被困准备应急装备，这里有一些你可以做的事情来为你的车准备过冬。
 

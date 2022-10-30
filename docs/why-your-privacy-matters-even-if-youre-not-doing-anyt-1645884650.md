@@ -1,6 +1,6 @@
 # 为什么你的隐私很重要，即使你没有“做错什么”
 
-> 原文:[https://life hacker . com/why-your-privacy-matters-even-if-you-not-do-any t-1645884650](https://lifehacker.com/why-your-privacy-matters-even-if-youre-not-doing-anyt-1645884650)
+> 原文：<https://lifehacker.com/why-your-privacy-matters-even-if-youre-not-doing-anyt-1645884650>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-pcSlowAhvUk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-pcSlowAhvUk&start=0) 
 

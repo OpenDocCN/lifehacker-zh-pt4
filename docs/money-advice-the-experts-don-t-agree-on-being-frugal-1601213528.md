@@ -1,6 +1,6 @@
 # 专家们不同意的理财建议:节俭
 
-> 原文:[https://life hacker . com/money-advice-the-experts-don ' t-agree-on-节俭-1601213528](https://lifehacker.com/money-advice-the-experts-don-t-agree-on-being-frugal-1601213528)
+> 原文：<https://lifehacker.com/money-advice-the-experts-don-t-agree-on-being-frugal-1601213528>
 
 节俭似乎是一个无害的话题。你想省钱；你削减了生活费用。但一些金融专家指出，节俭可能会有局限性。他们认为，节俭实际上会分散人们对更重要的财务目标的注意力。
 

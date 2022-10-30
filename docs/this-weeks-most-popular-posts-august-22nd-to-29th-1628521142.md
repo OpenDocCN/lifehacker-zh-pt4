@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:8 月 22 日至 29 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-August-22-to-29-1628521142](https://lifehacker.com/this-weeks-most-popular-posts-august-22nd-to-29th-1628521142)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-august-22nd-to-29th-1628521142>
 
 本周我们 [列出了你能做的最好的技术升级](https://lifehacker.com/top-10-superior-tech-products-youll-never-go-back-from-1625547811)[用垃圾袋给床垫充气](http://lifehacker.com/use-a-trash-bag-to-inflate-a-mattress-when-you-don-t-ha-1625193428)[把一些任务卸载到我们的手机](http://lifehacker.com/the-everyday-tasks-your-phone-does-better-than-your-com-1625393067)[清理了我们的脸书供稿](http://lifehacker.com/facebook-cleanser-quickly-unsubscribes-you-from-pages-y-1626831105) 。这里回顾一下。
 

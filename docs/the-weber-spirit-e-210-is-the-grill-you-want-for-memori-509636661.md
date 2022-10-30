@@ -1,6 +1,6 @@
 # 韦伯精神 E-210 是你想要的阵亡将士纪念日周末烧烤
 
-> 原文:[https://life hacker . com/the-Weber-spirit-e-210-is-the-grill-you-want-to-memori-509636661](https://lifehacker.com/the-weber-spirit-e-210-is-the-grill-you-want-for-memori-509636661)
+> 原文：<https://lifehacker.com/the-weber-spirit-e-210-is-the-grill-you-want-for-memori-509636661>
 
 正好赶上阵亡将士纪念日周末，我们在 [的朋友钢丝切割工](http://thewirecutter.com/) 也加入了燃气烤架的话题。他们说韦伯精神 E-210 是一个为你的后院，并赞扬它的建设质量，广泛的可用性，最重要的是，它如何烤好牛排。
 

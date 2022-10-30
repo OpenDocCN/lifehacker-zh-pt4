@@ -1,6 +1,6 @@
 # 推动车库拍卖的 10 大方法(作为卖家或购物者)
 
-> 原文:[https://life hacker . com/top-10-ways-to-rock a-garage-sale-as-a-seller-or-a-sho-1714364609](https://lifehacker.com/top-10-ways-to-rock-a-garage-sale-as-a-seller-or-a-sho-1714364609)
+> 原文：<https://lifehacker.com/top-10-ways-to-rock-a-garage-sale-as-a-seller-or-a-sho-1714364609>
 
 这是清理我们的家和找到一些伟大的交易的黄金时间。无论你是去车库甩卖，还是打算自己开一家，这十条建议可以帮助你充分利用车库甩卖季节。
 

@@ -1,6 +1,6 @@
 # 移动办公套件之战:微软 Office vs .谷歌文档
 
-> 原文:[https://life hacker . com/battle-of-the-mobile-office-suites-Microsoft-office-vs-1657871272](https://lifehacker.com/battle-of-the-mobile-office-suites-microsoft-office-vs-1657871272)
+> 原文：<https://lifehacker.com/battle-of-the-mobile-office-suites-microsoft-office-vs-1657871272>
 
 今年，微软已经为 [iPad](https://lifehacker.com/microsoft-announces-office-on-ipad-finally-availabl-1552946509) 、iPhone、 [提供了 Office 预览版，甚至将价格降至免费](http://lifehacker.com/microsoft-office-comes-to-iphones-android-preview-avai-1655406548) 。与此同时，谷歌 Drive 及其相关应用一直在开发新功能。今天，我们在移动端比较这两者。
 

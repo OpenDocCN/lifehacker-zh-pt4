@@ -1,6 +1,6 @@
 # 最好的安卓手机是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-Android-phone-1660908868](https://lifehacker.com/whats-the-best-android-phone-1660908868)
+> 原文：<https://lifehacker.com/whats-the-best-android-phone-1660908868>
 
 现在是购买安卓手机的好时机，但是有很多选择。当然，你可以通过处理器速度、屏幕尺寸或电池寿命等复选框特性来判断它们，但这只是一部分情况。我们想要一个完整的观点，听听你认为今年哪些是最好的。
 

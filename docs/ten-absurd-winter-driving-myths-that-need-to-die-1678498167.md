@@ -1,6 +1,6 @@
 # 十个需要终结的荒谬冬季驾驶神话
 
-> 原文:[https://jalopnik . com/ten-alvacy-winter-driving-myths-the-need-to-die-1678498167](https://jalopnik.com/ten-absurd-winter-driving-myths-that-need-to-die-1678498167)
+> 原文：<https://jalopnik.com/ten-absurd-winter-driving-myths-that-need-to-die-1678498167>
 
 如果任何自称“专家”的人试图告诉你这些都是真的，堵住你的耳朵，慢慢后退。
 

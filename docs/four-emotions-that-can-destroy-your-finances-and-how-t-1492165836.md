@@ -1,6 +1,6 @@
 # 四种可能摧毁你财务状况的情绪(以及如何应对)
 
-> 原文:[https://life hacker . com/four-emotions-that-can-destroy-your-finance-how-t-1492165836](https://lifehacker.com/four-emotions-that-can-destroy-your-finances-and-how-t-1492165836)
+> 原文：<https://lifehacker.com/four-emotions-that-can-destroy-your-finances-and-how-t-1492165836>
 
 如果我们致力于做一点研究，我们随时都可以获得广泛的金融信息。我们可以学习如何预算、投资、储蓄——为了财务稳定，我们需要知道的一切。那么，有了所有可用的信息，为什么我们中的许多人都过着过度消费和计划不足的经济紧张的生活呢？
 

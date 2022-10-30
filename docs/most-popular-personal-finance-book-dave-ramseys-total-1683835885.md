@@ -1,6 +1,6 @@
 # 最受欢迎的个人理财书籍:戴夫·拉姆齐的《金钱大变身》
 
-> 原文:[https://life hacker . com/most-popular-personal-finance-book-Dave-ramseys-total-1683835885](https://lifehacker.com/most-popular-personal-finance-book-dave-ramseys-total-1683835885)
+> 原文：<https://lifehacker.com/most-popular-personal-finance-book-dave-ramseys-total-1683835885>
 
 如果你想让你的财务状况变好，有很多书可以帮助你。上周 [我们问你你认为最好的](https://lifehacker.com/whats-the-best-personal-finance-book-1682405039) ，然后看看 [五本最好的个人理财书籍](http://lifehacker.com/five-best-personal-finance-books-1682899925) 并投票。现在我们回来强调你的最爱。
 

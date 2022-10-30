@@ -1,6 +1,6 @@
 # 为什么(以及如何)你应该改变你的日常生活，即使它正在起作用
 
-> 原文:[https://life hacker . com/why-and-how-you-should-up-you-routine-even-I-1520593445](https://lifehacker.com/why-and-how-you-should-change-up-your-routine-even-i-1520593445)
+> 原文：<https://lifehacker.com/why-and-how-you-should-change-up-your-routine-even-i-1520593445>
 
 你正常的工作日是舒适的。你把事情做得很好，你达到了老板为你设定的生产率标准，仅此而已。在那些时刻，你很容易认为你不需要改变太多，或者你的日常生活很好。以下是你应该考虑改变它们的原因——至少偶尔改变。
 

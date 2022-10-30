@@ -1,6 +1,6 @@
 # 应用背后:第一天的故事
 
-> 原文:[https://life hacker . com/back-the-behind-the-story-of-day-one-1595860183](https://lifehacker.com/behind-the-app-the-story-of-day-one-1595860183)
+> 原文：<https://lifehacker.com/behind-the-app-the-story-of-day-one-1595860183>
 
 写日记有很大的情感好处，帮助你正确看待生活，同时激发你的创造力，我们最喜欢的工具之一就是 [第一天](http://lifehacker.com/day-one-for-mac-and-ios-is-a-gorgeous-journaling-tool-t-5878371) 。
 

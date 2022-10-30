@@ -1,6 +1,6 @@
 # 在你尝试之前，你从来不知道你需要的便利
 
-> 原文:[https://life hacker . com/the-convenients-you-only-you-know-you-until-you-needle-tr-1610513145](https://lifehacker.com/the-conveniences-you-never-knew-you-needed-until-you-tr-1610513145)
+> 原文：<https://lifehacker.com/the-conveniences-you-never-knew-you-needed-until-you-tr-1610513145>
 
 有些事情确实让你的生活变得更容易，即使你不愿意承认。有时候我们很固执，直到东西落到我们手里才给它一个好脸色看，然后我们发现它是一个巨大的时间节省器，并想知道如果没有它我们会怎样。让我们把那些事情列一个清单，这样就没有人再受苦了。
 

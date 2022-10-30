@@ -1,6 +1,6 @@
 # 五个最佳图片托管网站
 
-> 原文:[https://life hacker . com/five-best-image-hosting-web-sites-5808625](https://lifehacker.com/five-best-image-hosting-web-sites-5808625)
+> 原文：<https://lifehacker.com/five-best-image-hosting-web-sites-5808625>
 
 拍摄照片并上传到网上从未如此简单。存储这些照片的最佳网站会对它们进行备份，使它们易于共享，在好看的图库中展示它们，并为您提供大量空间和编辑工具。本周，我们根据你的提名，来看看五个最好的图片托管网站。
 

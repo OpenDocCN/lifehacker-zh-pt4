@@ -1,6 +1,6 @@
 # 棕褐色调主屏幕
 
-> 原文:[https://life hacker . com/the-sepia-tone-home-screen-1704588694](https://lifehacker.com/the-sepia-tone-home-screen-1704588694)
+> 原文：<https://lifehacker.com/the-sepia-tone-home-screen-1704588694>
 
 如果每次你打开主屏幕时，你的巨型手机用强光照射你的脸令人不快，你可能会喜欢这个设计。采用柔和的棕褐色设计，即使使用 AMOLED 显示屏，这种设计也很悦目。
 

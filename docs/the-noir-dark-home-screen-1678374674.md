@@ -1,6 +1,6 @@
 # 黑色主屏幕
 
-> 原文:[https://lifehacker.com/the-noir-dark-home-screen-1678374674](https://lifehacker.com/the-noir-dark-home-screen-1678374674)
+> 原文：<https://lifehacker.com/the-noir-dark-home-screen-1678374674>
 
 [Widgets](https://lifehacker.com/how-widgets-can-actually-make-your-phone-more-productiv-1333180508) 对于不打开 app 快速获取信息很有用。这种设计完全跳过图标，在黑暗的老式主屏幕上给你所需的信息。
 

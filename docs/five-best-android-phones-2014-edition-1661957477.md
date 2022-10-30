@@ -1,6 +1,6 @@
 # 五款最佳安卓手机:2014 年版
 
-> 原文:[https://life hacker . com/five-best-Android-phones-2014-edition-1661957477](https://lifehacker.com/five-best-android-phones-2014-edition-1661957477)
+> 原文：<https://lifehacker.com/five-best-android-phones-2014-edition-1661957477>
 
 如果你想换手机、买第一部手机或者升级，市场上不乏优秀的安卓手机。即便如此，肯定有一些手机比其他手机更出众，要么是因为它们有很好的规格，包括好的软件，更新很快，要么就是使用起来很有乐趣。根据你的提名，这里有五个。
 

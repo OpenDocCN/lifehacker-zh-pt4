@@ -1,6 +1,6 @@
 # 适用于办公室生活的五个在家工作的建议
 
-> 原文:[https://life hacker . com/five-work-from-home-tips-apply-to-office-life-1623817310](https://lifehacker.com/five-work-from-home-tips-that-apply-to-office-life-1623817310)
+> 原文：<https://lifehacker.com/five-work-from-home-tips-that-apply-to-office-life-1623817310>
 
 大多数人不在家工作。那些找到它的人可能是一把双刃剑。毕竟，更多的自由意味着更多的责任。即使你不在家工作，这里有一些从另一方面学到的经验，每个人都可以应用到日常习惯中。
 

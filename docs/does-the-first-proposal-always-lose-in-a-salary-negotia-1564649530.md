@@ -1,6 +1,6 @@
 # 在薪资谈判中，第一个提议总是失败吗？
 
-> 原文:[https://life hacker . com/does-the-first-proposal-was-lost-in-a-salary-negotiate-1564649530](https://lifehacker.com/does-the-first-proposal-always-lose-in-a-salary-negotia-1564649530)
+> 原文：<https://lifehacker.com/does-the-first-proposal-always-lose-in-a-salary-negotia-1564649530>
 
 准备接受一份新工作还是协商加薪？你可能想阅读谈判的策略，并熟悉一点博弈论。职场专家在 [*栈交流*](http://workplace.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=workplace-114) *提供一些建议。*
 

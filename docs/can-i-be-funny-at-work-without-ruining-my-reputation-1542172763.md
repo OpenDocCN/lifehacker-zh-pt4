@@ -1,6 +1,6 @@
 # 我能在工作中搞笑而不毁了我的名声吗？
 
-> 原文:[https://life hacker . com/can-I-be-funny-in-work-not 毁我名誉-1542172763](https://lifehacker.com/can-i-be-funny-at-work-without-ruining-my-reputation-1542172763)
+> 原文：<https://lifehacker.com/can-i-be-funny-at-work-without-ruining-my-reputation-1542172763>
 
 亲爱的生活黑客，我喜欢讲笑话，让人们发笑。我希望能够在我的职业生涯中运用这一技能，与我的同事建立关系网并更好地相处，但我不想被贴上不专业的标签——我仍然希望人们认真对待我。我能在不搬起石头砸自己的脚的情况下取得平衡吗？
 

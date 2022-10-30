@@ -1,6 +1,6 @@
 # 完成工作的最佳声音
 
-> 原文:[https://life hacker . com/the-best-sounds-for-getting-work-done-5365012](https://lifehacker.com/the-best-sounds-for-getting-work-done-5365012)
+> 原文：<https://lifehacker.com/the-best-sounds-for-getting-work-done-5365012>
 
 合适的声音可以放松你的大脑，磨练你的注意力，淹没分心的事物，或者让你全力以赴去完成你的待办事项。我们收集了一些研究和免费资源，帮助您创建自己的最佳工作空间配乐。
 

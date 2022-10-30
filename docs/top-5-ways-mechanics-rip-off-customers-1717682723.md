@@ -1,6 +1,6 @@
 # 机械师敲诈客户的五大方式
 
-> 原文:[https://jalopnik . com/top-5-ways-mechanics-rip-off-customers-1717682723](https://jalopnik.com/top-5-ways-mechanics-rip-off-customers-1717682723)
+> 原文：<https://jalopnik.com/top-5-ways-mechanics-rip-off-customers-1717682723>
 
 作为一名蹩脚的律师，我的电话整天响个不停，人们打电话给我询问汽车问题。有缺陷的汽车总是混杂在一起，有时电话涉及汽车维修。也就是说，人们想知道当他们被一个汽车修理工冤枉时，他们能做什么。这是力学对它们的影响。
 

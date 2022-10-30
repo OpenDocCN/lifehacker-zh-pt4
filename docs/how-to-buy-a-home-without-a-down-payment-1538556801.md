@@ -1,6 +1,6 @@
 # 如何不用首付买房
 
-> 原文:[https://life hacker . com/how-to-buy-a home-no-首付-1538556801](https://lifehacker.com/how-to-buy-a-home-without-a-down-payment-1538556801)
+> 原文：<https://lifehacker.com/how-to-buy-a-home-without-a-down-payment-1538556801>
 
 在大萧条之前，买房子不需要首付是相当容易的。但是抵押贷款危机和金融危机让事情发生了一些变化。信贷要求——尤其是住房贷款——大幅收紧。
 

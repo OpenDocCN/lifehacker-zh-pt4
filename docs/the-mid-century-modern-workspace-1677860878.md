@@ -1,6 +1,6 @@
 # 世纪中期的现代工作空间
 
-> 原文:[https://life hacker . com/the-mid-century-modern-workspace-1677860878](https://lifehacker.com/the-mid-century-modern-workspace-1677860878)
+> 原文：<https://lifehacker.com/the-mid-century-modern-workspace-1677860878>
 
 读者 H D .热爱科技，但也热爱那种 [中世纪的现代](http://en.wikipedia.org/wiki/Mid-century_modern) 美学——所以他的工作空间两者兼而有之。
 

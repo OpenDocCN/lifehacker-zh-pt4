@@ -1,6 +1,6 @@
 # 如何激励自己真正开始那个激情项目
 
-> 原文:[https://life hacker . com/how-to-motivate-yourself-actually-start the passion-1695145011](https://lifehacker.com/how-to-motivate-yourself-to-actually-start-that-passion-1695145011)
+> 原文：<https://lifehacker.com/how-to-motivate-yourself-to-actually-start-that-passion-1695145011>
 
 你对一个项目有一个绝妙的想法。你已经谈论过它，计划过它，分析过你的选择——但是没有任何结果。是时候停止谈论那个项目，真正去做了。以下是方法。
 

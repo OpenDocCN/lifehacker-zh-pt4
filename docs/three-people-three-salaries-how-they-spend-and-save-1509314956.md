@@ -1,6 +1,6 @@
 # 三个人，三份薪水:他们如何消费和储蓄
 
-> 原文:[https://life hacker . com/three-people-three-salary-how-they-spend-save-1509314956](https://lifehacker.com/three-people-three-salaries-how-they-spend-and-save-1509314956)
+> 原文：<https://lifehacker.com/three-people-three-salaries-how-they-spend-and-save-1509314956>
 
 有没有希望你能偷看和你薪水一样的人的消费习惯？我们请了三位勇敢的作家来揭示这一点——他们的薪水、预算策略和今年的财务目标。
 

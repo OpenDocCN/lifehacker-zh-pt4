@@ -1,6 +1,6 @@
 # 点击鼠标中键可以做的许多事情
 
-> 原文:[https://life hacker . com/the-many-things-you-a-middle-click-on-your-1565756062](https://lifehacker.com/the-many-things-you-can-do-with-a-middle-click-on-your-1565756062)
+> 原文：<https://lifehacker.com/the-many-things-you-can-do-with-a-middle-click-on-your-1565756062>
 
 鼠标中间的滚轮不仅仅是用来滚动的——事实上，这个按钮可以做很多事情。下面是一些经常被忽略的内置于鼠标中键的快捷键。
 

@@ -1,6 +1,6 @@
 # 从小城镇搬到大城市之前你应该知道什么
 
-> 原文:[https://life hacker . com/1690425578](https://lifehacker.com/what-you-should-know-before-moving-from-a-small-town-to-1690425578)
+> 原文：<https://lifehacker.com/what-you-should-know-before-moving-from-a-small-town-to-1690425578>
 
 第一次搬到大城市可能会令人生畏，尤其是如果你来自一个小镇。你可能会为明显的差异做好准备，比如交通或生活成本。但是其他的怪癖只有在你真正在这个城市生活了一段时间后才会被理解。以下是你应该知道的。
 

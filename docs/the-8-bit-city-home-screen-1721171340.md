@@ -1,6 +1,6 @@
 # 8 位城市主屏幕
 
-> 原文:[https://life hacker . com/the-8-bit-city-home-screen-1721171340](https://lifehacker.com/the-8-bit-city-home-screen-1721171340)
+> 原文：<https://lifehacker.com/the-8-bit-city-home-screen-1721171340>
 
 8 位设计在过去可能是一种技术必需品，但现在它们有一种怀旧的魅力。这是 reddit 用户 Esrahaddon 拍摄的 8 位风景，如果设置得当，实际上可以在你的主屏幕上制作一个复古城市的动画。
 

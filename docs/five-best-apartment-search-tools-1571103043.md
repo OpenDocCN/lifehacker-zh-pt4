@@ -1,6 +1,6 @@
 # 五个最好的公寓搜索工具
 
-> 原文:[https://life hacker . com/five-best-apartment-search-tools-1571103043](https://lifehacker.com/five-best-apartment-search-tools-1571103043)
+> 原文：<https://lifehacker.com/five-best-apartment-search-tools-1571103043>
 
 过去，寻找新公寓或出租意味着在社区中寻找“出租”标志，在报纸分类广告中筛选。现在，您可以随时随地进行搜索，或者在笔记本电脑或平板电脑上进行搜索。这里有五个最好的公寓搜索工具，帮助你找到完美的住所。
 

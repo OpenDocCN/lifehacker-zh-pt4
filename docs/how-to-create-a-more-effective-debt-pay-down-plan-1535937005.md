@@ -1,6 +1,6 @@
 # 如何创建一个更有效的债务偿还计划
 
-> 原文:[https://life hacker . com/how-to-create-a-more-effective-debt-pay-down-plan-1535937005](https://lifehacker.com/how-to-create-a-more-effective-debt-pay-down-plan-1535937005)
+> 原文：<https://lifehacker.com/how-to-create-a-more-effective-debt-pay-down-plan-1535937005>
 
 随着新的一年的到来，许多人仍在为假日债务而挣扎，难怪许多决议都围绕着还清债务。如果你也想在 2014 年还清债务，你应该制定一个计划。一个好的计划可以帮助你更快地还清债务，并从整体上为你省钱——尤其是利息。
 

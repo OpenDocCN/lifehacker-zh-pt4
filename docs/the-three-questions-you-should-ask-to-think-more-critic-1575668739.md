@@ -1,6 +1,6 @@
 # 你应该问的三个问题来进行更具批判性的思考
 
-> 原文:[https://life hacker . com/the-three-questions-you-should-asked-to-think-more-critical-1575668739](https://lifehacker.com/the-three-questions-you-should-ask-to-think-more-critic-1575668739)
+> 原文：<https://lifehacker.com/the-three-questions-you-should-ask-to-think-more-critic-1575668739>
 
 我们中的许多人倾向于接受我们所听到的，而没有进行批判性思考并形成自己的观点 。作者 Jeremy Kourdi 说，每当你面对新信息时，有三个问题你应该问。
 

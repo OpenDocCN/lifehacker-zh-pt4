@@ -1,6 +1,6 @@
 # 这个周末学会管理生活中令人烦恼的部分
 
-> 原文:[https://life hacker . com/learn-to-manage-the-soon-parts of life-this-weekend-1456570407](https://lifehacker.com/learn-to-manage-the-annoying-parts-of-life-this-weekend-1456570407)
+> 原文：<https://lifehacker.com/learn-to-manage-the-annoying-parts-of-life-this-weekend-1456570407>
 
 无论是在网上还是在现实中，每天都有很多烦恼出现。这个周末，学习一些处理它们的方法，在某些情况下，完全避开它们。
 

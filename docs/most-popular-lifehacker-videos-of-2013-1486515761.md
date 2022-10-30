@@ -1,6 +1,6 @@
 # 2013 年最受欢迎的生活黑客视频
 
-> 原文:[https://life hacker . com/most-popular-life hacker-videos-of-2013-1486515761](https://lifehacker.com/most-popular-lifehacker-videos-of-2013-1486515761)
+> 原文：<https://lifehacker.com/most-popular-lifehacker-videos-of-2013-1486515761>
 
 就在三年多以前，Lifehacker 在 Youtube 频道上只有六个视频。随着 2013 年底的临近，这一数字已增至 809。今年哪些最受欢迎？请继续阅读，寻找答案。
 

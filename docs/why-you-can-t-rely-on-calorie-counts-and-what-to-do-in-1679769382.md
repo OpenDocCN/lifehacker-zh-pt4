@@ -1,6 +1,6 @@
 # 为什么你不能依靠卡路里计数(以及该怎么做)
 
-> 原文:[https://life hacker . com/why-you-can-t-relay-on-1679769382](https://lifehacker.com/why-you-can-t-rely-on-calorie-counts-and-what-to-do-in-1679769382)
+> 原文：<https://lifehacker.com/why-you-can-t-rely-on-calorie-counts-and-what-to-do-in-1679769382>
 
 卡路里计数在跑步机屏幕上、食品标签上，甚至在 [餐厅菜单上](http://fivethirtyeight.com/features/calorie-counts-on-menus-wont-change-what-americans-eat/) 都很显眼。但是如果你正在努力减肥(或者只是监测你的饮食健康程度)，这些数字可能会误导你。
 

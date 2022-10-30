@@ -1,6 +1,6 @@
 # 廉价的安卓手机值得吗？
 
-> 原文:[https://life hacker . com/are-cheap-Android-phones-worth-it-1583981830](https://lifehacker.com/are-cheap-android-phones-worth-it-1583981830)
+> 原文：<https://lifehacker.com/are-cheap-android-phones-worth-it-1583981830>
 
 曾几何时，买一部便宜的安卓智能手机就像烧钱一样划算。但自那以后，Android 已经走过了漫长的道路，特别是 4.4 KitKat 优化为 [在低端硬件](https://lifehacker.com/all-the-new-stuff-in-android-4-4-kitkat-1456286732) 上运行得更好。那么低价的安卓手机还在浪费你的钱吗？
 

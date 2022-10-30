@@ -1,6 +1,6 @@
 # 井然有序的宿舍工作区
 
-> 原文:[https://life hacker . com/the-organized-dorm-room-workspace-1620962867](https://lifehacker.com/the-organized-dorm-room-workspace-1620962867)
+> 原文：<https://lifehacker.com/the-organized-dorm-room-workspace-1620962867>
 
 大学宿舍通常不会给你很多玩耍的空间，而且由于学生预算紧张，许多宿舍最终只是杂乱无章地摆放着家具。然而，Flickr 用户 lorby351 的房间却不同。
 

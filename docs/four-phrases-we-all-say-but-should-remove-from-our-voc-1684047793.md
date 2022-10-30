@@ -1,6 +1,6 @@
 # 我们都说，但应该从我们的词汇中删除的四个短语
 
-> 原文:[https://life hacker . com/four-phrases-we-all-say-but-should-remove-from-our-VOC-1684047793](https://lifehacker.com/four-phrases-we-all-say-but-should-remove-from-our-voc-1684047793)
+> 原文：<https://lifehacker.com/four-phrases-we-all-say-but-should-remove-from-our-voc-1684047793>
 
 你可能会说一些关于你自己的事情，但你并没有真正的意思，比如嘲笑自己的懒惰或询问一些无关紧要的意见。不幸的是，你说得越多，他们对你的影响力就越大。这里有四个你应该留意的短语。
 

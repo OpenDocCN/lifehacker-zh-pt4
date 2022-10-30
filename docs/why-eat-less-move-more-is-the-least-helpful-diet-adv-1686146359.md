@@ -1,6 +1,6 @@
 # 为什么“少吃多动”是有史以来最没有帮助的饮食建议
 
-> 原文:[https://life hacker . com/why-eat-less-move-more-is-the-less-help-diet-adv-1686146359](https://lifehacker.com/why-eat-less-move-more-is-the-least-helpful-diet-adv-1686146359)
+> 原文：<https://lifehacker.com/why-eat-less-move-more-is-the-least-helpful-diet-adv-1686146359>
 
 如果你超重，你可能听说过这样一句谚语“少吃点，多动点”不幸的是，这句话对你的进步没有任何帮助。原因如下。
 

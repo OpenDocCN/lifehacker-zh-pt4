@@ -1,6 +1,6 @@
 # 在家工作时如何战胜冬天的忧郁
 
-> 原文:[https://life hacker . com/how-to-beat-the-winter-blues-when you-work-from-home-1493314797](https://lifehacker.com/how-to-beat-the-winter-blues-when-you-work-from-home-1493314797)
+> 原文：<https://lifehacker.com/how-to-beat-the-winter-blues-when-you-work-from-home-1493314797>
 
 每年，随着日照时间的减少，所有的维生素 D 都从被热气流层层掩盖的蜡黄皮肤中逃逸出来，陷入冬眠的冲动会非常强烈。
 

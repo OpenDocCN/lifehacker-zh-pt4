@@ -1,6 +1,6 @@
 # Sportsheets 约束系统将满足你所有的束缚梦想
 
-> 原文:[https://life hacker . com/the-sports sheets-restraint-system-will-full-all-your-1723368875](https://lifehacker.com/the-sportsheets-restraint-system-will-fulfill-all-your-1723368875)
+> 原文：<https://lifehacker.com/the-sportsheets-restraint-system-will-fulfill-all-your-1723368875>
 
 多亏了 *50 Shades，*有很多情侣被困在束缚绳中，戴着金属手铐摩擦手腕。你需要合适的束缚设备来防止自己尴尬的急诊室之旅。 [床约束系统下的运动床单](https://www.filthydirty.com/under-the-bed-restraint-system.html#oid=1005_1) (最便宜 57 美元)是这项工作的完美工具。
 

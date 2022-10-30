@@ -1,6 +1,6 @@
 # 我是艾伦·沙夫，Imgur 的创始人兼首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Alan-schaaf-imgur-and-this-is-h-1708682552](https://lifehacker.com/im-alan-schaaf-founder-and-ceo-of-imgur-and-this-is-h-1708682552)
+> 原文：<https://lifehacker.com/im-alan-schaaf-founder-and-ceo-of-imgur-and-this-is-h-1708682552>
 
 Imgur 只不过是一种简单的在线分享图片的方式，然而它已经悄然成长为一个庞大的社区，其规模可以与任何社交网络相媲美。它已经成为我们视觉双关语的支柱，我们 gif 的宿主，以及我们迷因的避风港。
 

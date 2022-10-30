@@ -1,6 +1,6 @@
 # 五款最佳站立式书桌地垫
 
-> 原文:[https://life hacker . com/five-best-standing-desk-floor-mats-1718708900](https://lifehacker.com/five-best-standing-desk-floor-mats-1718708900)
+> 原文：<https://lifehacker.com/five-best-standing-desk-floor-mats-1718708900>
 
 获得 [一张巨大的立式办公桌](https://lifehacker.com/five-best-standing-desks-1528244287) 只是战斗的一部分。当然，你必须不停地移动，工作时站着会让你的脚很难受。这就是为什么大多数站着办公的爱好者( [我们自己也包括](https://lifehacker.com/the-complete-guide-to-choosing-or-building-the-perfec-1682274258) )建议在办公桌上使用抗疲劳垫。根据你的建议，本周我们来看五个最好的。
 

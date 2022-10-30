@@ -1,6 +1,6 @@
 # 用更慢的练习在更短的时间内学会演奏一种乐器
 
-> 原文:[https://life hacker . com/learn-to-play-a-music-instrument-with-sl-1507526591](https://lifehacker.com/learn-to-play-a-musical-instrument-in-less-time-with-sl-1507526591)
+> 原文：<https://lifehacker.com/learn-to-play-a-musical-instrument-in-less-time-with-sl-1507526591>
 
 如果你的目标之一是学习演奏音乐(或提高你的演奏水平)，那么音乐家迪克·亨索尔德关于如何在有限的练习时间内有策略地练习的建议就是给你的。关键是他所说的对你技术的“适当培养”。
 

@@ -1,6 +1,6 @@
 # 如何从一箱燃料中挤出 830 英里并保持清醒...伊什
 
-> 原文:[https://jalopnik . com/how-to-squeeze-out-of-one-tank of fuel-and-re-1648164980](https://jalopnik.com/how-to-squeeze-830-miles-out-of-one-tank-of-fuel-and-re-1648164980)
+> 原文：<https://jalopnik.com/how-to-squeeze-830-miles-out-of-one-tank-of-fuel-and-re-1648164980>
 
 我不想撒谎:我很高兴我(和我的伙伴)赢得了奥迪的 TDI 挑战赛，九辆柴油 a3 试图用一箱柴油从阿尔伯克基开到圣地亚哥。我高兴的部分原因是因为胜利意味着结束，因为这是一个 [相当悲惨的过程](https://jalopnik.com/hypermiling-is-awful-and-i-sort-of-hate-it-1647016853) 。我们是这样做的。
 

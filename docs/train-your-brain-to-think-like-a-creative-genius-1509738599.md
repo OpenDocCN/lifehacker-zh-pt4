@@ -1,6 +1,6 @@
 # 训练你的大脑像创意天才一样思考
 
-> 原文:[https://life hacker . com/train-your-brain-think-like-a-creative-genius-1509738599](https://lifehacker.com/train-your-brain-to-think-like-a-creative-genius-1509738599)
+> 原文：<https://lifehacker.com/train-your-brain-to-think-like-a-creative-genius-1509738599>
 
 世界知名的哈佛心理学家和作家 Maria Konnikova 在她的书 [*中探讨了如何拥有一个能够与虚构的侦探/天才夏洛克·福尔摩斯相媲美的头脑:如何像夏洛克·福尔摩斯*](http://www.amazon.com/gp/product/0670026573/ref=as_li_ss_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/train-your-brain-to-think-like-a-creative-genius-1509738599&asc_source=&camp=1789&creative=390957&creativeASIN=0670026573&ie=UTF8&linkCode=as2&tag=kinjalifehackerlink-20) *一样思考。*
 

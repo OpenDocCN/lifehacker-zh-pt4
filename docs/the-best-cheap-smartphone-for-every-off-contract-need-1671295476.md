@@ -1,6 +1,6 @@
 # 满足所有合同外需求的最便宜的智能手机
 
-> 原文:[https://gizmodo . com/the-best-cheap-for-ever-off-contract-need-1671295476](https://gizmodo.com/the-best-cheap-smartphone-for-every-off-contract-need-1671295476)
+> 原文：<https://gizmodo.com/the-best-cheap-smartphone-for-every-off-contract-need-1671295476>
 
 说到智能手机，曾经有一段时间*便宜*实际上意味着*低劣*。那就是 [不再](http://gizmodo.com/why-your-next-smartphone-may-not-cost-a-fortune-1624564861) 真实。但是哪些廉价手机最值得买呢？
 

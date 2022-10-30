@@ -1,6 +1,6 @@
 # 我的一年没有分心的 iPhone
 
-> 原文:[https://life hacker . com/my-year-with-a-distraction-free-iphone-1634907314](https://lifehacker.com/my-year-with-a-distraction-free-iphone-1634907314)
+> 原文：<https://lifehacker.com/my-year-with-a-distraction-free-iphone-1634907314>
 
 2012 年，我意识到自己有问题。我的 iPhone 让我焦躁不安。我能感觉到它在我的口袋里，呼唤着我，就像那枚叫做比尔博·巴金斯的戒指。它分散了我对孩子的注意力。它分散了我对妻子的注意力。它随时随地让我分心。我需要控制局面。
 

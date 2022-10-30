@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:6 月 26 日至 7 月 2 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-June-26-to-7-2-1715384608](https://lifehacker.com/this-weeks-most-popular-posts-june-26th-to-july-2nd-1715384608)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-june-26th-to-july-2nd-1715384608>
 
 本周，我们了解了苹果新的音乐应用程序，找到了最容易学习的语言，从棋盘游戏中发展了现实生活中的技能，并学会了让自己更讨人喜欢。这里回顾一下。
 

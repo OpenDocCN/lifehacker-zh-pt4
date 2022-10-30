@@ -1,6 +1,6 @@
 # 如何让自己远离伪科学
 
-> 原文:[https://life hacker . com/how-to-庸医防伪科学-1586708469](https://lifehacker.com/how-to-quack-proof-yourself-against-pseudoscience-1586708469)
+> 原文：<https://lifehacker.com/how-to-quack-proof-yourself-against-pseudoscience-1586708469>
 
 我们大多数人认为自己是精明的、见多识广的人，用敏锐的眼光看待世界。但事实是，当涉及到伪科学和骗术时，我们往往非常容易受骗。这是坏消息。好消息是，区分骗术和真正的科学是非常容易的。
 

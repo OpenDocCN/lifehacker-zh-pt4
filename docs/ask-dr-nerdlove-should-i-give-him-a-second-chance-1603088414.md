@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:我该给他第二次机会吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-should-I-给他第二次机会-1603088414](https://kotaku.com/ask-dr-nerdlove-should-i-give-him-a-second-chance-1603088414)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-should-i-give-him-a-second-chance-1603088414>
 
 你好，互联网！欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是唯一的约会建议专栏，向你展示了你的约会生活。
 

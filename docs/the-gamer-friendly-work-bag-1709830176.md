@@ -1,6 +1,6 @@
 # 游戏玩家友好的工作包
 
-> 原文:[https://life hacker . com/the-gamer-friendly-work-bag-1709830176](https://lifehacker.com/the-gamer-friendly-work-bag-1709830176)
+> 原文：<https://lifehacker.com/the-gamer-friendly-work-bag-1709830176>
 
 只工作不玩耍，聪明的孩子也变傻，这就是为什么 Lifehacker 的读者 Chris Vega 确保他的工作包里有很多乐趣。
 

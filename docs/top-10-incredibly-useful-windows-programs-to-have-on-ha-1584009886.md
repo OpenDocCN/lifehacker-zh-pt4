@@ -1,6 +1,6 @@
 # 手头上最有用的 10 个 Windows 程序
 
-> 原文:[https://life hacker . com/top-10-难以置信地有用-windows-programs-to-have-on-ha-1584009886](https://lifehacker.com/top-10-incredibly-useful-windows-programs-to-have-on-ha-1584009886)
+> 原文：<https://lifehacker.com/top-10-incredibly-useful-windows-programs-to-have-on-ha-1584009886>
 
 [有些 app 是必不可少的](https://lifehacker.com/lifehacker-pack-for-windows-our-list-of-the-essential-787533613) ，你每天都在用。每个人都知道他们的名字:火狐、VLC、7-Zip 等等。然而，还有另一类应用不太受关注:那些在你很少需要的时候放在口袋里非常有用的应用。以下是我们最喜欢的 10 个。
 

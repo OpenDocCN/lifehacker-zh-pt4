@@ -1,6 +1,6 @@
 # 微软正在移除 Xbox One DRM
 
-> 原文:[https://kotaku . com/Microsoft-is-removing-Xbox-one-DRM-514390310](https://kotaku.com/microsoft-is-removing-xbox-one-drm-514390310)
+> 原文：<https://kotaku.com/microsoft-is-removing-xbox-one-drm-514390310>
 
 这可能是游戏历史上最大的倒退:微软将逆转 Xbox One 的 DRM 政策，取消 24 小时互联网登录要求和对二手游戏的所有限制。
 

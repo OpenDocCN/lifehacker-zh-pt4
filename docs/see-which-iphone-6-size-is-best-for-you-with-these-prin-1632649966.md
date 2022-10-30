@@ -1,6 +1,6 @@
 # 通过这些可打印的剪贴画，看看哪个尺寸的 iPhone 6 最适合你
 
-> 原文:[https://life hacker . com/see-which-iphone-6-size-is-best-for-you with these-prin-1632649966](https://lifehacker.com/see-which-iphone-6-size-is-best-for-you-with-these-prin-1632649966)
+> 原文：<https://lifehacker.com/see-which-iphone-6-size-is-best-for-you-with-these-prin-1632649966>
 
 今天苹果公布了 4.7 英寸屏幕的 iPhone 6 和 5.5 英寸屏幕的 iPhone 6 Plus。预订将于 9 月 12 日开始，19 日正式发布，所以如果你不确定每个型号的屏幕和尺寸在你手中的感觉，这些可打印的剪贴可以帮助你得到一个好主意。
 

@@ -1,6 +1,6 @@
 # 我怎样才能在 Tor 面前保持匿名？
 
-> 原文:[https://life hacker . com/how-can-I-stay-anonymous-with-tor-1498876762](https://lifehacker.com/how-can-i-stay-anonymous-with-tor-1498876762)
+> 原文：<https://lifehacker.com/how-can-i-stay-anonymous-with-tor-1498876762>
 
 即使最近揭露出 NSA 正在监听，Tor 仍然可能是匿名上网的最佳方式。但是为了做好这件事，你必须采取一些预防措施。 [信息安全栈交易所](http://security.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=security-100) 的专家为安全使用 Tor 提供指导。
 

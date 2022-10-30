@@ -1,6 +1,6 @@
 # 五款最佳旅行规划应用
 
-> 原文:[https://life hacker . com/five-best-travel-planning-apps-1470002139](https://lifehacker.com/five-best-travel-planning-apps-1470002139)
+> 原文：<https://lifehacker.com/five-best-travel-planning-apps-1470002139>
 
 无论你是上路还是在这个旅行季节飞向天空，你都可以有一个数字伴侣来帮助你规划你的行程，确保你的机票和连接都已准备好，并且你在旅行时有足够的时间做你想(或需要)做的一切。本周，我们将根据您的提名，评选出五款最佳旅行规划应用或服务。
 

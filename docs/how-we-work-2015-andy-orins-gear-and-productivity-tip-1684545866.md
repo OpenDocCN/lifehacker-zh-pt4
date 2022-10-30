@@ -1,6 +1,6 @@
 # 我们如何工作，2015 年:安迪·奥林的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-2015-Andy-orins-gear-and-productivity-tip-1684545866](https://lifehacker.com/how-we-work-2015-andy-orins-gear-and-productivity-tip-1684545866)
+> 原文：<https://lifehacker.com/how-we-work-2015-andy-orins-gear-and-productivity-tip-1684545866>
 
 每周我们都会问一些名人他们是如何做他们的工作的，现在轮到我们了。我是安迪，下面是我略显尴尬的工作习惯和栖息地。这就是我的工作方式。
 

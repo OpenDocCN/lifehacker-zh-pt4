@@ -1,6 +1,6 @@
 # 不仅仅是批量购买:你还可以在好市多享受其他服务
 
-> 原文:[https://life hacker . com/not-just-for-bulk-buying-the-other-services-you-can-sa-1646916284](https://lifehacker.com/not-just-for-bulk-buying-the-other-services-you-can-sa-1646916284)
+> 原文：<https://lifehacker.com/not-just-for-bulk-buying-the-other-services-you-can-sa-1646916284>
 
 除了大宗商品 的 [大优惠，好市多还为会员](https://lifehacker.com/what-to-buy-and-not-buy-at-costco-according-to-consu-1573463028) 提供几项专属服务 [，可以帮你省下一大笔钱。在](http://lifehacker.com/the-best-things-you-can-do-at-costco-without-a-membersh-1591680306) 之前，我们已经 [听说过它们，但现在我们来看看这些服务——比如旅游预订和汽车保险——是否有任何好处。这是我们的发现。](http://lifehacker.com/the-services-you-can-save-money-on-at-costco-outside-o-1621652969)
 

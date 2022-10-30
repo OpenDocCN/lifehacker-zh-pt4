@@ -1,6 +1,6 @@
 # 你可能没听说过的最好的 Windows 10 功能
 
-> 原文:[https://life hacker . com/the-best-windows-10-features-you-possible-not-heard-1721054092](https://lifehacker.com/the-best-windows-10-features-you-probably-haven-t-heard-1721054092)
+> 原文：<https://lifehacker.com/the-best-windows-10-features-you-probably-haven-t-heard-1721054092>
 
 Windows 10 已经到来。无论你是 [插队](http://lifehacker.com/how-to-skip-the-line-and-upgrade-to-windows-10-now-1720854489) 还是仍在试图 [决定是否应该升级](http://lifehacker.com/should-i-upgrade-to-windows-10-1720838625) ，你都有可能听说过 Windows 10 的一些 [最佳新功能。这里有一些你可能没听说过的非常棒的。](http://lifehacker.com/the-best-new-features-of-windows-10-1680904614)
 

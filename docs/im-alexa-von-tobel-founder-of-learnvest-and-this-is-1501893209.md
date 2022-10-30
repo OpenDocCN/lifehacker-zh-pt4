@@ -1,6 +1,6 @@
 # 我是 Alexa von Tobel，LearnVest 的创始人，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Alexa-von-tobel-founder-of-learn vest-and-this-is-1501893209](https://lifehacker.com/im-alexa-von-tobel-founder-of-learnvest-and-this-is-1501893209)
+> 原文：<https://lifehacker.com/im-alexa-von-tobel-founder-of-learnvest-and-this-is-1501893209>
 
 个人理财的世界很难驾驭，但 Alexa von Tobel 让它变得简单多了。她的公司 [LearnVest](https://www.learnvest.com/) 将用户与注册财务规划师配对，他们为储蓄、摆脱债务、投资等制定定制计划。LearnVest 还提供了一套在线和移动工具来帮助用户保持有序。现在，Alexa 正在利用她的专业知识进行印刷——她的第一本书 [*财务无畏*](https://www.amazon.com/dp/0385347618?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-alexa-von-tobel-founder-of-learnvest-and-this-is-1501893209&asc_source=&linkCode=ogi&psc=1&smid=ATVPDKIKX0DER&tag=kinjalifehackerlink-20&th=1) 于上月出版。我们采访了无所畏惧的冯·托贝尔女士，讨论节省时间的技巧、睡眠习惯、工作空间等等。
 

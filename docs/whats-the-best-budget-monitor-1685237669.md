@@ -1,6 +1,6 @@
 # 最好的预算电脑显示器是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-budget-monitor-1685237669](https://lifehacker.com/whats-the-best-budget-monitor-1685237669)
+> 原文：<https://lifehacker.com/whats-the-best-budget-monitor-1685237669>
 
 购买显示器可能会很棘手。如果你有钱花，你可以全力以赴，但如果你预算有限，你可能不得不放弃一些花里胡哨的东西，专注于重要的东西——图像质量和屏幕尺寸。本周，我们想知道你认为哪些显示器性价比最高——我们会说是 400 美元以下。
 

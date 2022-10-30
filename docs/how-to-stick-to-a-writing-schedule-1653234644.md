@@ -1,6 +1,6 @@
 # 如何坚持写作时间表
 
-> 原文:[https://life hacker . com/how-to-stick-to-a-writing-schedule-1653234644](https://lifehacker.com/how-to-stick-to-a-writing-schedule-1653234644)
+> 原文：<https://lifehacker.com/how-to-stick-to-a-writing-schedule-1653234644>
 
 俗话说，熟能生巧，你写得越多，就越擅长。无论你是为了钱而写博客还是 [为自己写作](http://lifehacker.com/how-writing-regularly-changed-my-life-and-how-you-can-746865755)——也许是为了 11 月的 [NaNoWriMo](http://nanowrimo.org/) ，国家小说写作月——这里有一些培养写作习惯的小贴士。
 

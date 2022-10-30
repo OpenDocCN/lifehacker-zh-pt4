@@ -1,6 +1,6 @@
 # 我怎样才能学会和新老板一起工作？
 
-> 原文:[https://life hacker . com/how-can-I-learn-to-work-a-new-boss-1458081719](https://lifehacker.com/how-can-i-learn-to-work-with-a-new-boss-1458081719)
+> 原文：<https://lifehacker.com/how-can-i-learn-to-work-with-a-new-boss-1458081719>
 
 亲爱的生活黑客，我以前的老板很棒。她和我相处得很好，她是个很棒的经理。她找到了一份新工作，离开了公司，他们刚刚雇了一个人来代替她。他没事，他只是在适应环境，所以我不做评价。怎样才能早点搭好舞台，让我和他学会好好相处，一起工作？
 

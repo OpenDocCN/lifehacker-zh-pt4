@@ -1,6 +1,6 @@
 # 如何处理婚姻的所有文书工作:清单
 
-> 原文:[https://life hacker . com/how-to-navigate-all-the-文书工作的婚姻支票-1684819124](https://lifehacker.com/how-to-navigate-all-the-paperwork-of-marriage-a-checkl-1684819124)
+> 原文：<https://lifehacker.com/how-to-navigate-all-the-paperwork-of-marriage-a-checkl-1684819124>
 
 婚姻可以是一件美丽而浪漫的事情。但是随之而来的文书工作呢？那就没那么好玩了。当你结婚时，很难记住所有你必须做的法律事务。为了让事情变得简单一点，这里有一份清单，列出了结婚前后需要注意的事项。
 

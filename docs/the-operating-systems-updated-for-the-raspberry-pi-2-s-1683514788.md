@@ -1,6 +1,6 @@
 # 树莓 Pi 2 的操作系统更新(到目前为止)
 
-> 原文:[https://life hacker . com/the-operating-systems-updated-for-the-raspberry-pi-2-s-1683514788](https://lifehacker.com/the-operating-systems-updated-for-the-raspberry-pi-2-s-1683514788)
+> 原文：<https://lifehacker.com/the-operating-systems-updated-for-the-raspberry-pi-2-s-1683514788>
 
 昨天 发布了 [Raspberry Pi 2，它配备了一个新的 SoC，需要稍加调整才能让操作系统与之配合工作。因此，我们决定深入研究，看看哪些操作系统已经增加了支持。](https://lifehacker.com/the-raspberry-pi-2-is-faster-more-powerful-and-availa-1682814956)
 

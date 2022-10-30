@@ -1,6 +1,6 @@
 # Oculus Rift 到底是个什么鬼？脸书 20 亿美元交易指南
 
-> 原文:[https://kotaku . com/oculus-rift-a-guide-to-face books-2-1552186794](https://kotaku.com/what-the-heck-is-oculus-rift-a-guide-to-facebooks-2-1552186794)
+> 原文：<https://kotaku.com/what-the-heck-is-oculus-rift-a-guide-to-facebooks-2-1552186794>
 
 昨天，脸书收购了一家名为 Oculus VR 的虚拟现实公司。不久之后，互联网爆炸了。
 

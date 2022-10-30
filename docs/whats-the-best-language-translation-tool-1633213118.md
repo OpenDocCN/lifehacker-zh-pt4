@@ -1,6 +1,6 @@
 # 最好的语言翻译工具是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-language-translation-tool-1633213118](https://lifehacker.com/whats-the-best-language-translation-tool-1633213118)
+> 原文：<https://lifehacker.com/whats-the-best-language-translation-tool-1633213118>
 
 当你需要将一种语言翻译成另一种语言时，用机器或算法来做永远不会完美，但有时这些应用和服务是我们拥有的最好工具。本周，我们想知道你会向哪些人寻求尽可能准确和易懂的结果。
 

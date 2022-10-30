@@ -1,6 +1,6 @@
 # 我如何学会放弃奢侈品，以便在一个昂贵的城市里茁壮成长
 
-> 原文:[https://life hacker . com/how-I-learn-to-get-up-luxury-so-I-can-thrive-in-1703092407](https://lifehacker.com/how-i-learned-to-give-up-luxuries-so-i-could-thrive-in-1703092407)
+> 原文：<https://lifehacker.com/how-i-learned-to-give-up-luxuries-so-i-could-thrive-in-1703092407>
 
 当你在一个昂贵的城市挣扎着生存时，这可能会非常令人沮丧。当我搬到三藩市时，你需要一年挣 62，046 美元才能买得起一套一居室的公寓 。我赚了不到 5 万美元。幸运的是，我发现你不需要让你所在城市的平均收入达到很高的水平才能幸福——你只需要变得有创造力，并愿意付出一些努力。
 

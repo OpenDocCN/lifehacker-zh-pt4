@@ -1,6 +1,6 @@
 # 最好的安卓主屏幕更换是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-Android-home-screen-replacement-1552440165](https://lifehacker.com/whats-the-best-android-home-screen-replacement-1552440165)
+> 原文：<https://lifehacker.com/whats-the-best-android-home-screen-replacement-1552440165>
 
 Android 的伟大之处在于它的可定制性，有一些很棒的应用程序可以在你需要的时候显示相关的应用程序和数据。本周，我们想听听你最喜欢的上下文感知主屏幕替代品。
 

@@ -1,6 +1,6 @@
 # 你能听出高质量音乐的区别吗？自我测试
 
-> 原文:[https://gizmodo . com/can-you-head-the-difference-in-high-quality-music-test-1661706595](https://gizmodo.com/can-you-hear-the-difference-in-high-quality-music-test-1661706595)
+> 原文：<https://gizmodo.com/can-you-hear-the-difference-in-high-quality-music-test-1661706595>
 
 这里有一个 [的简单测试](http://test.tidalhifi.com/) ，让你在极高质量的音乐文件和低质量的音乐文件之间切换。你能看出区别吗？
 

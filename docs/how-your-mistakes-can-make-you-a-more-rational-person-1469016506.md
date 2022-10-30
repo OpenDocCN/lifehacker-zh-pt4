@@ -1,6 +1,6 @@
 # 你的错误如何让你成为一个更理性的人
 
-> 原文:[https://gizmodo . com/how-your-missons-can-make-you-a-more-rational-person-1469016506](https://gizmodo.com/how-your-mistakes-can-make-you-a-more-rational-person-1469016506)
+> 原文：<https://gizmodo.com/how-your-mistakes-can-make-you-a-more-rational-person-1469016506>
 
 作为人类，我们无时无刻不在犯错误，但我们并不经常认识到它们的本质:那些需要被视为有用的教训的挫折。这里有一些惊人的大脑技巧，可以帮助你从失败中吸取教训，变得更加理性。
 

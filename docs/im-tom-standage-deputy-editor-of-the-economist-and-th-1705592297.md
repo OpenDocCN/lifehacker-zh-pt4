@@ -1,6 +1,6 @@
 # 我是《经济学人》的副主编汤姆·斯坦迪奇，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Tom-standage-the-economist-and-th-1705592297](https://lifehacker.com/im-tom-standage-deputy-editor-of-the-economist-and-th-1705592297)
+> 原文：<https://lifehacker.com/im-tom-standage-deputy-editor-of-the-economist-and-th-1705592297>
 
 《经济学人》是当今领先的国际报纸之一，为其周刊和网站带来精心制作的新闻和评论。担任该报副主编并领导其数字战略的是汤姆·斯坦德吉
 

@@ -1,6 +1,6 @@
 # 如何给予有效的表扬，更好地激励你的团队
 
-> 原文:[https://life hacker . com/how-to-give-effective-mass-and-motivate-your-team-1690301826](https://lifehacker.com/how-to-give-effective-praise-and-motivate-your-team-1690301826)
+> 原文：<https://lifehacker.com/how-to-give-effective-praise-and-motivate-your-team-1690301826>
 
 还有什么比表扬你的努力工作更能提神的呢？表扬可以扭转糟糕的一天。它可以提醒你，尽管你压力很大，埋在成堆的工作中，但你做得很好。这就是为什么团队成员，无论职位高低，都应该毫不犹豫地赞美对方。
 

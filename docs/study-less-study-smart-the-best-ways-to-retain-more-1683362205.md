@@ -1,6 +1,6 @@
 # “学得少，学得聪明”:用更少的时间记住更多东西的最佳方法
 
-> 原文:[https://life hacker . com/study-less-study-smart-the-best-ways-to-retain-more-1683362205](https://lifehacker.com/study-less-study-smart-the-best-ways-to-retain-more-1683362205)
+> 原文：<https://lifehacker.com/study-less-study-smart-the-best-ways-to-retain-more-1683362205>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-IlU-zDU6aQ0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-IlU-zDU6aQ0&start=0) 
 

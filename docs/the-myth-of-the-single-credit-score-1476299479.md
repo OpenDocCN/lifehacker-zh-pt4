@@ -1,6 +1,6 @@
 # 单一信用评分的神话
 
-> 原文:[https://life hacker . com/the-myth-of-single-credit-score-1476299479](https://lifehacker.com/the-myth-of-the-single-credit-score-1476299479)
+> 原文：<https://lifehacker.com/the-myth-of-the-single-credit-score-1476299479>
 
 越来越多的人被告知" [保护你的信用评分](http://blog.readyforzero.com/resources/credit-score/#protect-credit-identity-theft) ，" " [提高你的信用评分](http://blog.readyforzero.com/resources/credit-score/#improve-credit-score) ，" [免费了解你的信用评分](http://blog.readyforzero.com/resources/credit-score/#free-credit-score-credit-report) ！"所有人都认为，这种日益增长的合唱让普通人对自己的信用评分及其运作方式比以往任何时候都更感兴趣。这种对全能信用评分的新关注只有一个问题:事实上，我们不只有一个信用评分。
 

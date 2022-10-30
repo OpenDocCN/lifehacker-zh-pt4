@@ -1,6 +1,6 @@
 # 改变你对自己的信念，形成更好的习惯
 
-> 原文:[https://life hacker . com/take-small-actions-to-form-identity-based-habits-1576986608](https://lifehacker.com/take-small-actions-to-form-identity-based-habits-1576986608)
+> 原文：<https://lifehacker.com/take-small-actions-to-form-identity-based-habits-1576986608>
 
 基于身份的习惯可能是强大的东西。本质上，你对自己的信念可以驱动你的长期行为。通过关注你每天可以采取的小行动，你朝着你的愿望前进，并形成新的习惯。
 

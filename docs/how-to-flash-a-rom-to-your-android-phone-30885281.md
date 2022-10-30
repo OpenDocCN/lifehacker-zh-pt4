@@ -1,6 +1,6 @@
 # 如何将 ROM 闪存到您的 Android 手机中
 
-> 原文:[https://life hacker . com/how-to-flash-a-rom-to-your-Android-phone-30885281](https://lifehacker.com/how-to-flash-a-rom-to-your-android-phone-30885281)
+> 原文：<https://lifehacker.com/how-to-flash-a-rom-to-your-android-phone-30885281>
 
 Android 很棒，但有时，你的手机版本——无论是普通的 Android 还是三星的 touch wiz——都有一些不足之处。以下是如何在你的设备上安装新版本的 Android(或 ROM)以获得更好的 Android 体验。
 

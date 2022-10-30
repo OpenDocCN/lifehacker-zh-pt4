@@ -1,6 +1,6 @@
 # Android 的最佳播客管理器
 
-> 原文:[https://life hacker . com/the-best-podcast-manager-for-Android-5855861](https://lifehacker.com/the-best-podcast-manager-for-android-5855861)
+> 原文：<https://lifehacker.com/the-best-podcast-manager-for-android-5855861>
 
 Android 不缺播客管理器，很多都很不错。我们有很多最爱，但今天我们认为 Pocket Casts 是您在 Android 手机和其他设备上查找、下载和组织播客的选择。
 

@@ -1,6 +1,6 @@
 # 发现和分享优秀音乐的四种 Soundcloud 选择
 
-> 原文:[https://life hacker . com/four-soundcloud-alternatives-to-discover-and-share-grea-1601165644](https://lifehacker.com/four-soundcloud-alternatives-to-discover-and-share-grea-1601165644)
+> 原文：<https://lifehacker.com/four-soundcloud-alternatives-to-discover-and-share-grea-1601165644>
 
 我们 [爱着音云](https://lifehacker.com/soundcloud-helps-you-share-and-discover-new-free-music-5654702) ，但最近一直在火的[把王国的钥匙交给了音乐界](http://torrentfreak.com/record-labels-can-remove-soundcoud-tracks-without-oversight-140703/) 。因此，许多合法的音乐被删除，艺术家和乐队正在寻找其他地方。如果你想听新音乐，或者想分享你自己的音乐，看看这些选择。
 

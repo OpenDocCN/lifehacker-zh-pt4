@@ -1,6 +1,6 @@
 # 生孩子前如何准备职业生涯
 
-> 原文:[https://life hacker . com/how-to-prepare-your career before-1686911785](https://lifehacker.com/how-to-prepare-your-career-before-having-a-baby-1686911785)
+> 原文：<https://lifehacker.com/how-to-prepare-your-career-before-having-a-baby-1686911785>
 
 有了孩子是一个巨大的生活变化，令人兴奋，但确实会影响你的工作生活。你需要考虑所有的事情，从什么时候告诉你的老板，到如何让你的财务有条不紊(以及弥补你缺勤的成本)。这里有一些建议，可以让你在平衡怀孕和工作时表现得更好。
 

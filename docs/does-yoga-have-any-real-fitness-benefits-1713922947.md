@@ -1,6 +1,6 @@
 # 瑜伽有什么真正的健身好处吗？
 
-> 原文:[https://life hacker . com/does-yoga-have-any-real-fitness-benefits-1713922947](https://lifehacker.com/does-yoga-have-any-real-fitness-benefits-1713922947)
+> 原文：<https://lifehacker.com/does-yoga-have-any-real-fitness-benefits-1713922947>
 
 看一眼 [蝎子式](http://www.pocketyoga.com/Pose/scorpion) 的人，你就会知道:瑜伽可以增强力量和平衡。但是它和传统的力量训练相比如何呢——还有什么是*瑜伽不能为你的身体做的呢？*
 

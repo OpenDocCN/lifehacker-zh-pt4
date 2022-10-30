@@ -1,6 +1,6 @@
 # 习惯蔓延:渐进而合理的自我提升方式
 
-> 原文:[https://life hacker . com/habit-creep-the-gradual-and-reasonable-way-to-improve-1720039293](https://lifehacker.com/habit-creep-the-gradual-and-reasonable-way-to-improve-1720039293)
+> 原文：<https://lifehacker.com/habit-creep-the-gradual-and-reasonable-way-to-improve-1720039293>
 
 个人理财领域有一个普遍现象，叫做“生活方式蠕变”。它描述了随着收入的增加，我们倾向于购买更大、更好、更好的东西。如果我们以一种有益的方式将这个概念应用到我们的余生中，会怎么样呢？
 

@@ -1,6 +1,6 @@
 # 没有有线电视账号如何在线观看索契奥运会
 
-> 原文:[https://life hacker . com/how-to-watch-the-Sochi-Olympics-online-without-a-cable-1520922129](https://lifehacker.com/how-to-watch-the-sochi-olympics-online-without-a-cable-1520922129)
+> 原文：<https://lifehacker.com/how-to-watch-the-sochi-olympics-online-without-a-cable-1520922129>
 
 索契奥运会正在如火如荼地进行，但希望在线观看比赛的美国人需要一个有线电视账户来查看 NBC 的报道。不过，还是有办法解决的。这是你需要做的。
 

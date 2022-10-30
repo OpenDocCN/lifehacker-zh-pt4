@@ -1,6 +1,6 @@
 # 购买廉价教科书的五个最佳网站
 
-> 原文:[https://life hacker . com/five-best-sites-to-buy-bench-textbooks-5618881](https://lifehacker.com/five-best-sites-to-buy-cheap-textbooks-5618881)
+> 原文：<https://lifehacker.com/five-best-sites-to-buy-cheap-textbooks-5618881>
 
 如果你这学期要重返校园，你的教学大纲可能会列出一份昂贵书籍的购买清单。如果你买二手的或者二手的，你可以让你的钱花得更远一点，本周我们来看看五个最好的网站，在那里你可以买到便宜的教科书，而不用花光所有的钱。
 

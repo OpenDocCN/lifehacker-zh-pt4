@@ -1,6 +1,6 @@
 # 你小便的颜色说明了你的健康状况
 
-> 原文:[https://life hacker . com/what-the-color-of-you-pee-say-on-your-health-1477171258](https://lifehacker.com/what-the-color-of-your-pee-says-about-your-health-1477171258)
+> 原文：<https://lifehacker.com/what-the-color-of-your-pee-says-about-your-health-1477171258>
 
 这可能不是你经常会想到的事情，但是你的尿液可以告诉你很多关于你身体的信息。这张来自克利夫兰诊所的图片显示了不同的尿液颜色可能对你的健康有什么影响。
 

@@ -1,6 +1,6 @@
 # 如何限制 Gmail 的个性化广告
 
-> 原文:[https://life hacker . com/how-to-limit-Gmail-personalized-ads-1564245951](https://lifehacker.com/how-to-limit-gmails-personalized-ads-1564245951)
+> 原文：<https://lifehacker.com/how-to-limit-gmails-personalized-ads-1564245951>
 
 谷歌的算法总是扫描 Gmail 邮件来显示个性化广告，但最近对其服务条款 的一次 [更新让所有人再次谈论它。你不能完全停止扫描，但如果你想限制你看到的广告种类，甚至删除一些，你可以做一些调整。](http://www.google.com/intl/en/policies/terms/)
 

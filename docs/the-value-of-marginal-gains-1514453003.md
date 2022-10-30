@@ -1,6 +1,6 @@
 # 边际收益的价值
 
-> 原文:[https://life hacker . com/the-value-of-marginal-gains-1514453003](https://lifehacker.com/the-value-of-marginal-gains-1514453003)
+> 原文：<https://lifehacker.com/the-value-of-marginal-gains-1514453003>
 
 2010 年，Dave Brailsford 面临着一份艰难的工作。没有一个英国自行车手赢得过环法自行车赛，但作为天空队(英国职业自行车队)的新任总经理和表演总监，这就是 Brailsford 被要求做的。他的方法很简单:Brailsford 相信一个他称之为“边际收益集合”的概念。
 

@@ -1,6 +1,6 @@
 # 侧边栏小部件主屏幕
 
-> 原文:[https://life hacker . com/the-sidebar-widgets-home-screen-1585636440](https://lifehacker.com/the-sidebar-widgets-home-screen-1585636440)
+> 原文：<https://lifehacker.com/the-sidebar-widgets-home-screen-1585636440>
 
 Android:如果你有一部大手机和一双小手，那么在手机上到处伸手可能会很麻烦。我的彩屏用户 JRS05 的这个主屏幕把你需要的一切都放在一边，方便访问(抱歉左撇子)。
 

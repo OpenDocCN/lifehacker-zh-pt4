@@ -1,6 +1,6 @@
 # 健康是一种技能，而不是天赋:以下是如何培养它的方法
 
-> 原文:[https://life hacker . com/fitness-is-a-skill-not-a-talent-heres-how-to-develop-1651281013](https://lifehacker.com/fitness-is-a-skill-not-a-talent-heres-how-to-develop-1651281013)
+> 原文：<https://lifehacker.com/fitness-is-a-skill-not-a-talent-heres-how-to-develop-1651281013>
 
 作为一名健身教练和 Fitocracy 的联合创始人，我接触过无数人的成功故事和健身挑战。当他们没有达到健身目标时，人们经常告诉我他们没有天生的天赋。相反，他们应该将健身视为一种需要改进和提高的技能。
 

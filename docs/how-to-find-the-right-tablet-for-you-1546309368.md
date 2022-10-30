@@ -1,6 +1,6 @@
 # 如何找到适合自己的平板电脑
 
-> 原文:[https://life hacker . com/how-to-find-the-right-table t for-you-1546309368](https://lifehacker.com/how-to-find-the-right-tablet-for-you-1546309368)
+> 原文：<https://lifehacker.com/how-to-find-the-right-tablet-for-you-1546309368>
 
 短短几年间，世界已经从几乎没有值得拥有的平板电脑变成了太多。在 iPads、各种 Android 平板电脑和微软不太像笔记本电脑的产品之间，你怎么知道哪一个物有所值呢？当然，有了我们的向导。
 

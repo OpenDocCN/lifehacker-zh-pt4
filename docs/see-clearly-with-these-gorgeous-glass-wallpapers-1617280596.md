@@ -1,6 +1,6 @@
 # 用这些华丽的玻璃壁纸看得更清楚
 
-> 原文:[https://life hacker . com/see-clear-with the-thingly-glass-wallpapers-1617280596](https://lifehacker.com/see-clearly-with-these-gorgeous-glass-wallpapers-1617280596)
+> 原文：<https://lifehacker.com/see-clearly-with-these-gorgeous-glass-wallpapers-1617280596>
 
 玻璃和摄影是最古老的朋友。把相机对准一些玻璃，你就能得到一些令人惊叹的图像。用这些优秀的玻璃壁纸装饰你的桌面。
 

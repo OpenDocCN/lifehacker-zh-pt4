@@ -1,6 +1,6 @@
 # 宇航员地球生活指南:如何做好准备
 
-> 原文:[https://life hacker . com/an-Australia n-guide-to-life-on-earth-how-to-prepare-fo-1675987801](https://lifehacker.com/an-astronauts-guide-to-life-on-earth-how-to-prepare-fo-1675987801)
+> 原文：<https://lifehacker.com/an-astronauts-guide-to-life-on-earth-how-to-prepare-fo-1675987801>
 
 我们在生活中都有一点恐惧，尤其是当我们准备迎接一个重要时刻的时候。要摆脱它，一切都归结于准备和知道如何处理每一个可能性。在克里斯·哈德菲尔德上校的书《宇航员在地球上的生活指南》中，你将学习如何在不离开地球的情况下像宇航员一样准备和思考。
 

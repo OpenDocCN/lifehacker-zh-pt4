@@ -1,6 +1,6 @@
 # 爱德华·R·莫罗最好的人生课程
 
-> 原文:[https://life hacker . com/Edward-r-murrows-best-life-lessons-1719821162](https://lifehacker.com/edward-r-murrows-best-life-lessons-1719821162)
+> 原文：<https://lifehacker.com/edward-r-murrows-best-life-lessons-1719821162>
 
 爱德华·R·莫罗是广播业的巨人，并帮助推动了电视作为新闻广播媒体的发展。他不屈不挠地追求真理，并设法在逆境中控制住自己。我们来看看他是怎么做到的。
 

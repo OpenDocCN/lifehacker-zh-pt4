@@ -1,6 +1,6 @@
 # 累积压力理论:当压力增加时如何恢复
 
-> 原文:[https://life hacker . com/the-theory-of-cumulative-stress-how-to-recovery-when-ST-1652876546](https://lifehacker.com/the-theory-of-cumulative-stress-how-to-recover-when-st-1652876546)
+> 原文：<https://lifehacker.com/the-theory-of-cumulative-stress-how-to-recover-when-st-1652876546>
 
 对大多数人来说，压力只是生活中的一个事实，你需要学会如何管理它。简单地忽视生活中的压力会让它滚雪球般越滚越大，对身体造成伤害。以下是当你的压力开始积聚时如何应对的方法。
 

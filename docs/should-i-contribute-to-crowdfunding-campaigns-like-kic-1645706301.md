@@ -1,6 +1,6 @@
 # 我应该为众筹活动捐款吗(比如 Kickstarter？)
 
-> 原文:[https://life hacker . com/should-I-contribute-to-crowd funding-campaigns-like-kic-1645706301](https://lifehacker.com/should-i-contribute-to-crowdfunding-campaigns-like-kic-1645706301)
+> 原文：<https://lifehacker.com/should-i-contribute-to-crowdfunding-campaigns-like-kic-1645706301>
 
 亲爱的 Lifehacker，
 我最近看到了很多 Kickstarter 的活动，这些活动承诺了丰厚的回报和令人敬畏的想法。他们中的一些人已经得到了充分的资助，其他人需要一点帮助。如果他们已经得到资助，把我的钱给他们安全吗？我怎么知道最终的结果会不会像他们承诺的那样棒呢？

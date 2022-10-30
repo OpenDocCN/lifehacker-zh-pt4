@@ -1,6 +1,6 @@
 # 像科学家一样对待失败
 
-> 原文:[https://life hacker . com/treat-failure-like-a-scientist-1537090657](https://lifehacker.com/treat-failure-like-a-scientist-1537090657)
+> 原文：<https://lifehacker.com/treat-failure-like-a-scientist-1537090657>
 
 我最近和我的朋友 [贝克坦奇](http://becktench.com/) 进行了一次精彩的对话。在我们的聊天中，贝克告诉我她在一家科学博物馆工作时发生的一个有趣的思维转变。在那里工作期间，贝克学会了如何像科学家一样对待失败。一个科学家如何对待失败？我们能从他们的方法中学到什么？
 

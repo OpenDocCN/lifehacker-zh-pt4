@@ -1,6 +1,6 @@
 # 这张信息图向你展示了不同的葡萄酒在开封后能保存多久
 
-> 原文:[https://life hacker . com/this-infograph-shows-you-how-long-different-wines-las-1714039422](https://lifehacker.com/this-infographic-shows-you-how-long-different-wines-las-1714039422)
+> 原文：<https://lifehacker.com/this-infographic-shows-you-how-long-different-wines-las-1714039422>
 
 如果你没有喝完一瓶酒，你想确保你知道在味道发生巨大变化之前你必须喝完它。这张方便的信息图分解了普通类型的酒在打开后能保存多久。
 

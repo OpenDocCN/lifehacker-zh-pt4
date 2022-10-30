@@ -1,6 +1,6 @@
 # 我应该投资贵金属吗？
 
-> 原文:[https://life hacker . com/ask-life hacker-should-I-invest-in-precious-metals-1554113824](https://lifehacker.com/ask-lifehacker-should-i-invest-in-precious-metals-1554113824)
+> 原文：<https://lifehacker.com/ask-lifehacker-should-i-invest-in-precious-metals-1554113824>
 
 亲爱的两分钱，
 我听人说过投资贵金属。投资黄金和白银是个好主意吗？如果是，我该如何开始？

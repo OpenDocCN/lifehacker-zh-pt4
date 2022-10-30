@@ -1,6 +1,6 @@
 # 利用 Yosemite 新功能的最佳应用
 
-> 原文:[https://life hacker . com/the-best-apps-the-take-advantage-yosemites-new-feat-1650051011](https://lifehacker.com/the-best-apps-that-take-advantage-of-yosemites-new-feat-1650051011)
+> 原文：<https://lifehacker.com/the-best-apps-that-take-advantage-of-yosemites-new-feat-1650051011>
 
 约塞米蒂已经推出一周了，这意味着应用程序正在更新，以支持它的一些新功能。从通知中心调整到连续性功能，这里有一些利用 Yosemite 的最好的应用程序。
 

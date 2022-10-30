@@ -1,6 +1,6 @@
 # 极简主义的阁楼工作空间
 
-> 原文:[https://life hacker . com/the-minimal-loft-workspace-1624517906](https://lifehacker.com/the-minimalist-loft-workspace-1624517906)
+> 原文：<https://lifehacker.com/the-minimalist-loft-workspace-1624517906>
 
 如果你是室内设计“少即是多”方法的粉丝，你可能会喜欢这种极简主义的工作空间设置。
 

@@ -1,6 +1,6 @@
 # 五款最佳移动文档扫描应用
 
-> 原文:[https://life hacker . com/five-best-mobile-document-scanning-apps-1691417781](https://lifehacker.com/five-best-mobile-document-scanning-apps-1691417781)
+> 原文：<https://lifehacker.com/five-best-mobile-document-scanning-apps-1691417781>
 
 旅行时扫描收据、白板上的笔记或信封上的草图可以很容易。最适合这项工作的应用程序可以拍摄快照，可以进行文本识别，将扫描结果保存到云中，以便将来在其他设备上参考，等等。本周，我们来看看能完成这项工作的五款最佳智能手机应用。
 

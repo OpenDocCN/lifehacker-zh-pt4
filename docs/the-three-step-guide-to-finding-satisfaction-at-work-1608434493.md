@@ -1,6 +1,6 @@
 # 如何在工作中更加投入，并开始喜欢你的工作
 
-> 原文:[https://life hacker . com/the-this-step-guide-to-finding-satisfaction-in-work-1608434493](https://lifehacker.com/the-three-step-guide-to-finding-satisfaction-at-work-1608434493)
+> 原文：<https://lifehacker.com/the-three-step-guide-to-finding-satisfaction-at-work-1608434493>
 
 许多人努力在工作中寻找快乐，但是如果你积极主动，你可以在工作中找到更多的满足感和成就感。这里有三个步骤可以帮助你调整你的职业生涯，如果运气好的话，爱上你的工作。
 

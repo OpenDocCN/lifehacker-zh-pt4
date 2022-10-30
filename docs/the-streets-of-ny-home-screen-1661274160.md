@@ -1,6 +1,6 @@
 # 纽约街头主页屏幕
 
-> 原文:[https://life hacker . com/the-streets-of-ny-home-screen-1661274160](https://lifehacker.com/the-streets-of-ny-home-screen-1661274160)
+> 原文：<https://lifehacker.com/the-streets-of-ny-home-screen-1661274160>
 
 任何走过纽约街头的人都会感受到这座城市的动感和活力。今天的主屏幕旨在通过一些鲜明的对比和强烈的角度来捕捉这一点。
 

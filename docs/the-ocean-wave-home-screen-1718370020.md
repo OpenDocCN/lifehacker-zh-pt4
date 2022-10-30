@@ -1,6 +1,6 @@
 # 海浪主页屏幕
 
-> 原文:[https://life hacker . com/the-ocean-wave-home-screen-1718370020](https://lifehacker.com/the-ocean-wave-home-screen-1718370020)
+> 原文：<https://lifehacker.com/the-ocean-wave-home-screen-1718370020>
 
 有什么比在海滩度过平静的一天更让人放松的吗？嗯，我想蜷缩着读一本好书，洗个热水澡，或者听听 [宇宙](http://www.netflix.com/search/cosmos?jbv=80004448&jbp=0&jbr=0) 平稳的声音。尽管如此，海浪还是很酷！这个主屏幕设计每天带你去海滩度过一个 [寒冷的日子](https://www.youtube.com/watch?v=4txVqr1eNwc) 。
 

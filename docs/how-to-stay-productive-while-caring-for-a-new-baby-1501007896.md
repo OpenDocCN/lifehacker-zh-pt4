@@ -1,6 +1,6 @@
 # 如何在照顾新生儿的同时保持工作效率
 
-> 原文:[https://life hacker . com/how-to-stay-productive-while-care-a-new-baby-1501007896](https://lifehacker.com/how-to-stay-productive-while-caring-for-a-new-baby-1501007896)
+> 原文：<https://lifehacker.com/how-to-stay-productive-while-caring-for-a-new-baby-1501007896>
 
 最近，当我和妻子第一次做了父母时，我们做出了一个决定，在一周内分担抚养孩子的责任。虽然避免日托而喜欢早上额外的依偎是一件美好的事情，但同时工作和照顾婴儿可能是一个真正令人生畏的挑战。
 

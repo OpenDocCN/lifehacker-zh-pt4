@@ -1,6 +1,6 @@
 # 我们如何工作，2015 年:迪克·塔伦斯的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-out-2015-dick-talenss-gear-and-product-1686245045](https://lifehacker.com/how-we-work-out-2015-dick-talenss-gear-and-product-1686245045)
+> 原文：<https://lifehacker.com/how-we-work-out-2015-dick-talenss-gear-and-product-1686245045>
 
 每周，我们都会问一些有趣的人他们是如何工作的。本周，轮到我们了。我是迪克，以下是我最喜欢的一些技术、见解和应用。哦，因为我是 Lifehacker 的新活力博客的作者，我想把一些典型的问题换成“我们如何锻炼”会很酷
 

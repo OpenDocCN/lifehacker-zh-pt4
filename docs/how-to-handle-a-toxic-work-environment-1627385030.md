@@ -1,6 +1,6 @@
 # 如何处理有毒的工作环境
 
-> 原文:[https://life hacker . com/how-to-hand-a-toxic-work-environment-1627385030](https://lifehacker.com/how-to-handle-a-toxic-work-environment-1627385030)
+> 原文：<https://lifehacker.com/how-to-handle-a-toxic-work-environment-1627385030>
 
 不喜欢自己的工作是一回事，但上班时感到身体不适是另一回事。如果你的工作没有可取之处，你的工作环境可能在很多方面都是有害的。以下是处理方法，尤其是如果你不能就这么退出的话。
 

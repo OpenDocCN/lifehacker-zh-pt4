@@ -1,6 +1,6 @@
 # 我是丹·艾瑞里，作家兼教授，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Dan-ariely-author-and-professor-and-this-is-how-I-1615748781](https://lifehacker.com/im-dan-ariely-author-and-professor-and-this-is-how-i-1615748781)
+> 原文：<https://lifehacker.com/im-dan-ariely-author-and-professor-and-this-is-how-i-1615748781>
 
 聪明人有时会做傻事。这是为什么呢？你可能想问问心理学和行为经济学教授丹·艾瑞里，他通过研究我们为什么经常表现得不理性而出名。
 

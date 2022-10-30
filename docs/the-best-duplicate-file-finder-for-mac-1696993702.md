@@ -1,6 +1,6 @@
 # 最好的 Mac 重复文件查找工具
 
-> 原文:[https://life hacker . com/the-best-duplicate-file-finder-for-MAC-1696993702](https://lifehacker.com/the-best-duplicate-file-finder-for-mac-1696993702)
+> 原文：<https://lifehacker.com/the-best-duplicate-file-finder-for-mac-1696993702>
 
 你的照片库一团糟。你的下载文件夹一团糟。你的音乐文件夹充斥着如此多的重复，以至于你分不清哪些是新的，哪些是 Napster 遗留下来的。我们的电脑上都有太多我们不需要的重复文件。为了在你的 Mac 上摆脱它们，我们推荐 Gemini。
 

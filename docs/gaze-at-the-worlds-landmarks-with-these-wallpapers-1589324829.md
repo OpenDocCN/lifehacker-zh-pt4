@@ -1,6 +1,6 @@
 # 用这些壁纸凝视世界的地标
 
-> 原文:[https://life hacker . com/gaze-at-the-world-landmarks-with these-wallpapers-1589324829](https://lifehacker.com/gaze-at-the-worlds-landmarks-with-these-wallpapers-1589324829)
+> 原文：<https://lifehacker.com/gaze-at-the-worlds-landmarks-with-these-wallpapers-1589324829>
 
 如果你不能环游世界，至少你可以用这些壁纸一瞥它最雄伟的地标。
 

@@ -1,6 +1,6 @@
 # 如何成为素食者并在用餐时和平共处
 
-> 原文:[https://life hacker . com/how-to-be-a-素食与和平共处-1581622361](https://lifehacker.com/how-to-be-a-vegetarian-and-peacefully-co-exist-at-meal-1581622361)
+> 原文：<https://lifehacker.com/how-to-be-a-vegetarian-and-peacefully-co-exist-at-meal-1581622361>
 
 所以你决定成为一名素食者，或者你已经是了。欢迎加入俱乐部。我已经吃素十多年了，虽然这并不容易，但我已经学会了将我的食物选择融入到我的家庭和社交生活中，尽量减少双方的摩擦和争论。这里有一些在用餐时间与我们杂食的兄弟姐妹共处的小贴士。
 

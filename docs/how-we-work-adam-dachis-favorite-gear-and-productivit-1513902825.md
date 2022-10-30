@@ -1,6 +1,6 @@
 # 我们如何工作，2014:亚当·达奇斯的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-Adam-dachis-favorite-gear-and-productivit-1513902825](https://lifehacker.com/how-we-work-adam-dachis-favorite-gear-and-productivit-1513902825)
+> 原文：<https://lifehacker.com/how-we-work-adam-dachis-favorite-gear-and-productivit-1513902825>
 
 我们定期分享我们喜爱的专家和网络名人的技巧、诀窍和工具。然而，本周我们将让你们一窥我们是如何工作的。今天，我分享我有趣的工作空间、重要的工具和完成事情的奇怪方式。
 

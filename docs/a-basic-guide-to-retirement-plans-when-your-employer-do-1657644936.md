@@ -1,6 +1,6 @@
 # 当你的雇主没有提供退休计划的基本指南时
 
-> 原文:[https://life hacker . com/a-basic-guide-to-retirement-plans-when-your-employer-do-1657644936](https://lifehacker.com/a-basic-guide-to-retirement-plans-when-your-employer-do-1657644936)
+> 原文：<https://lifehacker.com/a-basic-guide-to-retirement-plans-when-your-employer-do-1657644936>
 
 也许你是个体户，或者你的雇主没有提供退休计划。不管怎样，当你独自一人的时候，很容易忽略为退休储蓄。你可能会被管理自己计划的想法淹没。从了解你的选择开始，选择最好的一个。这会让整个过程不那么令人生畏。
 

@@ -1,6 +1,6 @@
 # Mac OS X 的最佳系统显示器
 
-> 原文:[https://life hacker . com/the-best-system-monitor-for-MAC-OS-x-30804798](https://lifehacker.com/the-best-system-monitor-for-mac-os-x-30804798)
+> 原文：<https://lifehacker.com/the-best-system-monitor-for-mac-os-x-30804798>
 
 Mac OS X 已经配备了一个坚固的系统显示器，但它不是很好，只看你的整体系统健康。为此，我们喜欢 Monity，它位于您的通知中心，可以方便地访问大量信息。
 

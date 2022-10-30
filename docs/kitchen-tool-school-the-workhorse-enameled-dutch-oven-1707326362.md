@@ -1,6 +1,6 @@
 # 厨房工具学校:荷兰搪瓷烤箱
 
-> 原文:[https://life hacker . com/kitchen-tool-school-the-work horse-搪瓷-荷兰-烤箱-1707326362](https://lifehacker.com/kitchen-tool-school-the-workhorse-enameled-dutch-oven-1707326362)
+> 原文：<https://lifehacker.com/kitchen-tool-school-the-workhorse-enameled-dutch-oven-1707326362>
 
 我们已经提到过 [铸铁煎锅](https://lifehacker.com/kitchen-tool-school-all-about-the-cast-iron-skillet-1685315104) 对于任何厨房来说都是必不可少的，无论你是专业厨师还是偶尔为之的厨师。好吧，这里有另一个属于每个炉子的工具:搪瓷铸铁荷兰炉锅。
 

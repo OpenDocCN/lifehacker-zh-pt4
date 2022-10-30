@@ -1,6 +1,6 @@
 # 小心这些国税局的危险信号，以避免审计
 
-> 原文:[https://life hacker . com/watch-out-for-this-IRS-red-flags-to-avoid-an-audit-1550731582](https://lifehacker.com/watch-out-for-these-irs-red-flags-to-avoid-an-audit-1550731582)
+> 原文：<https://lifehacker.com/watch-out-for-these-irs-red-flags-to-avoid-an-audit-1550731582>
 
 国税局的审计可能是一场噩梦。令人欣慰的是，只有一小部分纳税申报单被审计。以下是如何进一步降低你被选中的几率。
 

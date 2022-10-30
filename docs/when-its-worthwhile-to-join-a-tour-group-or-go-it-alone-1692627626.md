@@ -1,6 +1,6 @@
 # 当值得参加旅行团或独自旅行时
 
-> 原文:[https://life hacker . com/when-its-value-to-join-a-tour-group-or-go-it-alone-1692627626](https://lifehacker.com/when-its-worthwhile-to-join-a-tour-group-or-go-it-alone-1692627626)
+> 原文：<https://lifehacker.com/when-its-worthwhile-to-join-a-tour-group-or-go-it-alone-1692627626>
 
 规划完美的旅行冒险需要做出许多选择。你可以通过把它外包给一个旅行团来更容易地做出决定，导游不会给你与独自旅行相同的体验。以下是如何决定最适合你的方法。
 

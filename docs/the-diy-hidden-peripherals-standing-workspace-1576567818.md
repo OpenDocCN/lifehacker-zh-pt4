@@ -1,6 +1,6 @@
 # DIY、隐藏外设的常设工作空间
 
-> 原文:[https://life hacker . com/the-DIY-hidden-peripherals-standing-workspace-1576567818](https://lifehacker.com/the-diy-hidden-peripherals-standing-workspace-1576567818)
+> 原文：<https://lifehacker.com/the-diy-hidden-peripherals-standing-workspace-1576567818>
 
 我们分享了许多的 DIY 站立工作空间，但 Flickr 用户 Evenprimes 为他的所有外围设备组装了一张带有隐藏隔间的桌子——因此它们被隐藏在视线之外。
 

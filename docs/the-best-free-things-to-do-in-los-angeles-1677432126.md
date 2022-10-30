@@ -1,6 +1,6 @@
 # 在洛杉矶最好做的免费事情是什么？
 
-> 原文:[https://life hacker . com/the-best-free-things-to-do-in-los Angeles-1677432126](https://lifehacker.com/the-best-free-things-to-do-in-los-angeles-1677432126)
+> 原文：<https://lifehacker.com/the-best-free-things-to-do-in-los-angeles-1677432126>
 
 在大多数大城市，有大量的免费活动。我们问你对纽约 的建议，现在让我们把注意力集中在洛杉矶。你在洛杉矶及周边做过什么免费活动？
 

@@ -1,6 +1,6 @@
 # 自由职业要避免的三个常见障碍
 
-> 原文:[https://life hacker . com/three-common-freelancing-rucks-to-avoid-1556393922](https://lifehacker.com/three-common-freelancing-roadblocks-to-avoid-1556393922)
+> 原文：<https://lifehacker.com/three-common-freelancing-roadblocks-to-avoid-1556393922>
 
 作为一名独立承包商，除了你现在的承诺之外，你没有任何保证。与在办公室工作的人相比，你更广泛的自由感意味着你可以决定你每天的努力将花在哪里。但这也意味着你对自己的底线和自我保护负有持续的责任。你的挑战是在不知道即将发生什么的情况下找到规划未来的方法。
 

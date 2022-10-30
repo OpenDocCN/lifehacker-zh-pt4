@@ -1,6 +1,6 @@
 # 时间紧迫:如何省钱预订假期旅行
 
-> 原文:[https://life hacker . com/the-clock-is-tick-to-save-money-booking-your-ho-5854188](https://lifehacker.com/the-clock-is-ticking-how-to-save-money-booking-your-ho-5854188)
+> 原文：<https://lifehacker.com/the-clock-is-ticking-how-to-save-money-booking-your-ho-5854188>
 
 假期很快就要到了，如果你计划去外地探亲访友，在机票、租车和酒店上获得最优惠价格的时间已经不多了。如果你还没有做好旅行安排，现在就留出一点时间来节省几百美元，以后你就不用花了。以下是方法。
 

@@ -1,6 +1,6 @@
 # 苹果终于有了逃离 iMessage 炼狱的工具
 
-> 原文:[https://gizmodo . com/apple-finally-has-a-way-to-escape-imessage-purgato-1656649491](https://gizmodo.com/apple-finally-has-a-way-to-escape-from-imessage-purgato-1656649491)
+> 原文：<https://gizmodo.com/apple-finally-has-a-way-to-escape-from-imessage-purgato-1656649491>
 
 [如果你曾经从一部 iPhone 换成任何一部手机](http://gizmodo.com/when-apple-damns-your-texts-to-imessage-purgatory-1575937398) ，你就会知道，从死寂的 iMessage 号码这个令人愤怒的黑洞中取出你的短信简直是地狱。最终，苹果听到了我们的祈祷(以及一小时又一小时的客户服务电话)，并且 [发布了一个在线工具，让整个过程变得简单](https://selfsolve.apple.com/deregister-imessage) 就像它一直以来应该的那样。
 

@@ -1,6 +1,6 @@
 # 灰度主屏幕
 
-> 原文:[https://life hacker . com/the-gray-scale-home-screen-1641872667](https://lifehacker.com/the-gray-scale-home-screen-1641872667)
+> 原文：<https://lifehacker.com/the-gray-scale-home-screen-1641872667>
 
 它可能比你典型的单色杰作更加丰富多彩，但灰度是我的彩色屏幕用户 [Peszec](http://mycolorscreen.com/peszek/) 称之为这种设计的，它在直角上很重，( [相对而言](http://lifehacker.com/the-purple-home-screen-1633749004) )在颜色上很轻。
 

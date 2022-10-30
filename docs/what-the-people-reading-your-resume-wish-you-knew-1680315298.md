@@ -1,6 +1,6 @@
 # 阅读你简历的人希望你知道什么
 
-> 原文:[https://life hacker . com/what-the-people-reading-your-resume-wish-you-know-1680315298](https://lifehacker.com/what-the-people-reading-your-resume-wish-you-knew-1680315298)
+> 原文：<https://lifehacker.com/what-the-people-reading-your-resume-wish-you-knew-1680315298>
 
 简历是非常私人的文件，你可能觉得你想传达一种真实的自我感觉。但是如果你把重点放在不必要的华丽辞藻上，或者让你的相关经历变得模棱两可，阅读你简历的人会毫不犹豫地把它扔到一边。最重要的是，专注于清晰！
 

@@ -1,6 +1,6 @@
 # 十大省钱买衣服的好方法
 
-> 原文:[https://life hacker . com/top-10-smart-ways-save-money-on-clothes-1692775219](https://lifehacker.com/top-10-smart-ways-to-save-money-on-clothes-1692775219)
+> 原文：<https://lifehacker.com/top-10-smart-ways-to-save-money-on-clothes-1692775219>
 
 普通家庭每年在服装上的花费约占预算的 2%，约为 1600 美元。虽然我们在 上花的钱不是最大的一笔 [，但每月仍有 100 多美元，也许我们可以削减。这里有至少十种既省钱又有好衣服的方法。](https://lifehacker.com/the-most-common-ways-you-waste-money-and-how-to-save-i-1183447200)
 

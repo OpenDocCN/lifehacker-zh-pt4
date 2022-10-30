@@ -1,6 +1,6 @@
 # 如何缩短硬盘行程以获得最佳速度
 
-> 原文:[https://life hacker . com/how-to-short-stroke-your-hard-drive-for-optimal-speed-1598306074](https://lifehacker.com/how-to-short-stroke-your-hard-drive-for-optimal-speed-1598306074)
+> 原文：<https://lifehacker.com/how-to-short-stroke-your-hard-drive-for-optimal-speed-1598306074>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-toLYV7th0L8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-toLYV7th0L8&start=0) 
 

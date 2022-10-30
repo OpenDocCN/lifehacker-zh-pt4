@@ -1,6 +1,6 @@
 # 细木工 101:如何用袖珍螺钉固定木板
 
-> 原文:[https://life hacker . com/joinery-101-how-to-attach-wooded-boards-sc-1619122030](https://lifehacker.com/joinery-101-how-to-attach-wooden-boards-with-pocket-sc-1619122030)
+> 原文：<https://lifehacker.com/joinery-101-how-to-attach-wooden-boards-with-pocket-sc-1619122030>
 
 很难遇到不需要将几块木板连接在一起的木工项目。理解这样做的基本技术是构建好东西的第一步。袖珍螺钉不需要任何专业技能，是开始建造家具和其他小项目的简单方法。
 

@@ -1,6 +1,6 @@
 # Microbus 桌面
 
-> 原文:[https://lifehacker.com/the-microbus-desktop-1602301935](https://lifehacker.com/the-microbus-desktop-1602301935)
+> 原文：<https://lifehacker.com/the-microbus-desktop-1602301935>
 
 我们之前已经强调过几款 [joergermeister](https://www.flickr.com/photos/joergermeister/) 的桌面，但是这款写满了“坐上派对大巴，上路吧”的桌面很平，看起来很简洁。以下是他如何设置的，以及你自己设置时需要的东西。
 

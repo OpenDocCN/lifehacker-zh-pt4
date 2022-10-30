@@ -1,6 +1,6 @@
 # 当心零售商用来愚弄你的大脑的这些定价伎俩
 
-> 原文:[https://life hacker . com/当心这些定价诡计-零售商-用来愚弄你-1706225322](https://lifehacker.com/beware-of-these-pricing-tricks-retailers-use-to-fool-yo-1706225322)
+> 原文：<https://lifehacker.com/beware-of-these-pricing-tricks-retailers-use-to-fool-yo-1706225322>
 
 零售商非常擅长发明诡计把我们和我们的钱分开。无论是通过他们选择的价格点，他们如何营销他们的产品，还是他们的折扣技术，他们都是进入我们大脑并影响我们购买决策的专家。以下是零售商使用的一些最流行的定价技巧，以及一些简单的反击方法。
 

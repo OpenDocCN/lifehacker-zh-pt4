@@ -1,6 +1,6 @@
 # 打印这份清单，为下一次工作面试做更好的准备
 
-> 原文:[https://life hacker . com/print-this-check list-to-better-prepare for your ' s next-jo-1462506055](https://lifehacker.com/print-this-checklist-to-better-prepare-for-your-next-jo-1462506055)
+> 原文：<https://lifehacker.com/print-this-checklist-to-better-prepare-for-your-next-jo-1462506055>
 
 工作面试让我们倍感压力，尤其是当我们真的想要这份工作的时候，而 [大部分时间我们都因为缺乏准备而搞砸了](https://lifehacker.com/the-main-reason-why-you-suck-at-interviews-lack-of-pre-5710712) 。你不能对你可能遇到的每件事都提前做好计划，但是你可以做好足够的准备，这样你会感到自信。这份可打印的清单将带你去那里。
 

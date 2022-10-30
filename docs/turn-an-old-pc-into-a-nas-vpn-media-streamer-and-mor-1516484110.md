@@ -1,6 +1,6 @@
 # 使用 Amahi 将旧 PC 转变为 NAS、VPN、媒体流等
 
-> 原文:[https://life hacker . com/turn-an-old-PC-into-a-nas-VPN-media-streamer-and-mor-1516484110](https://lifehacker.com/turn-an-old-pc-into-a-nas-vpn-media-streamer-and-mor-1516484110)
+> 原文：<https://lifehacker.com/turn-an-old-pc-into-a-nas-vpn-media-streamer-and-mor-1516484110>
 
 如果你有一台还有点寿命的旧电脑，或者你正在构建一台全能的家庭服务器，可以存储你的备份、音乐、电影和其他一切你需要备份和安全的东西， [阿玛希](https://www.amahi.org/) 是完成这项工作的完美工具。Amahi 可以将任何 PC 变成一个家庭 VPN，一个你所有文件的 NAS，等等。以下是方法。
 

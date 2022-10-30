@@ -1,6 +1,6 @@
 # 作为一名零售工作者，如何度过长假轮班
 
-> 原文:[https://life hacker . com/how-to-survive-long-holiday-shift-as-a-retail-worker-1464023647](https://lifehacker.com/how-to-survive-long-holiday-shifts-as-a-retail-worker-1464023647)
+> 原文：<https://lifehacker.com/how-to-survive-long-holiday-shifts-as-a-retail-worker-1464023647>
 
 假日购物季开始升温，虽然这意味着许多人在寻找便宜货，但也意味着大量零售和季节性员工长时间工作，站在货架上，与客户打交道，并记录购买情况。如果你是他们中的一员，这里有一些小贴士，可以帮助你应对这个假期中注定要分配给你的那些漫长而艰巨的轮班。
 

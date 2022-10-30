@@ -1,6 +1,6 @@
 # 获得更好客户服务的逐步指南
 
-> 原文:[https://life hacker . com/a-逐步改善客户服务指南-5805406](https://lifehacker.com/a-step-by-step-guide-to-getting-better-customer-service-5805406)
+> 原文：<https://lifehacker.com/a-step-by-step-guide-to-getting-better-customer-service-5805406>
 
 尽管你尽了最大努力自己解决问题，但有时你还是不得不寻求帮助——不管你的设备坏了，服务中断了，还是只是需要解决公司的错误。给客户服务打电话可能是一次痛苦的经历，但是当需要硬着头皮给他们打电话的时候，遵循这些建议，让事情尽可能顺利。
 

@@ -1,6 +1,6 @@
 # 如何在家制作更健康、更美味的便当盒
 
-> 原文:[https://life hacker . com/how-to-make-health-tastier-versions-of-lunch box-fav-1725203850](https://lifehacker.com/how-to-make-healthier-tastier-versions-of-lunchbox-fav-1725203850)
+> 原文：<https://lifehacker.com/how-to-make-healthier-tastier-versions-of-lunchbox-fav-1725203850>
 
 又到了开学季，这意味着铅笔采购和午餐计划。你已经知道 [为你的孩子](http://vitals.lifehacker.com/how-to-pack-a-healthy-lunchbox-for-your-kids-1723899097) 打包健康午餐的基本知识，其中一部分是确保你的孩子*真的吃你打包的*。下面的食谱不仅是受欢迎的预包装午餐的无限美味的版本，而且，因为你可以准确地控制它们的成分，它们也比商店里买的更健康。
 

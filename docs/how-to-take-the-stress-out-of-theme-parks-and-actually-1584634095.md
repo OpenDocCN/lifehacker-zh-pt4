@@ -1,6 +1,6 @@
 # 如何减轻主题公园的压力，真正享受乐趣
 
-> 原文:[https://life hacker . com/how-to-take-the-stress-out-of-theme-parks-and-actually-1584634095](https://lifehacker.com/how-to-take-the-stress-out-of-theme-parks-and-actually-1584634095)
+> 原文：<https://lifehacker.com/how-to-take-the-stress-out-of-theme-parks-and-actually-1584634095>
 
 主题公园可以成为通向刺激和兴奋的世界的入口，但是如果你没有做好充分的准备，它可能会是漫长的散步、昂贵的食物和永远的排队等令人筋疲力尽的一天。这些建议可以帮助你做好正确的准备。
 

@@ -1,6 +1,6 @@
 # 最好的电池备份/UPS 是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-battery-backup-ups-1464300026](https://lifehacker.com/whats-the-best-battery-backup-ups-1464300026)
+> 原文：<https://lifehacker.com/whats-the-best-battery-backup-ups-1464300026>
 
 停电和电涌很糟糕，但如果你真的想保护你的设备，一个好的备用电池对于你的家庭办公室或娱乐中心是必不可少的。它们提供电涌保护和备用电源，可以成为救命稻草。本周，我们想知道你认为哪些是最好的。
 

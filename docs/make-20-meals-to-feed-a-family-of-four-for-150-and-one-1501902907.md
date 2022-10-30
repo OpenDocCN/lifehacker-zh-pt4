@@ -1,6 +1,6 @@
 # 花 150 美元为一个四口之家做 20 顿饭，并去一趟好市多
 
-> 原文:[https://life hacker . com/make-20-meals-to-feed 一家四口 150-1501902907](https://lifehacker.com/make-20-meals-to-feed-a-family-of-four-for-150-and-one-1501902907)
+> 原文：<https://lifehacker.com/make-20-meals-to-feed-a-family-of-four-for-150-and-one-1501902907>
 
 好市多是批量购买优质食材，节省食品开支的最佳去处之一。只需一次旅行和 150 美元，你就可以捡足够做近三周的晚餐(每人 4 份)——而且还有很多剩菜。
 

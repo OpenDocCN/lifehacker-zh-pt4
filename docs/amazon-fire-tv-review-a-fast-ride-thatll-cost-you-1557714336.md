@@ -1,6 +1,6 @@
 # 亚马逊消防电视评论:一个会让你付出代价的快速旅程
 
-> 原文:[https://gizmodo . com/Amazon-fire-TV-review-a-fast-ride-that ll-cost-you-1557714336](https://gizmodo.com/amazon-fire-tv-review-a-fast-ride-thatll-cost-you-1557714336)
+> 原文：<https://gizmodo.com/amazon-fire-tv-review-a-fast-ride-thatll-cost-you-1557714336>
 
 带着你的 [选择流媒体设备](https://gizmodo.com/streaming-device-showdown-who-wins-the-battle-for-your-1537850412)——已经有很多了。亚马逊表示，其新推出的[Fire TV](http://gizmodo.com/amazons-fire-tv-everything-you-need-to-know-1556889628?rev=1396546126)在速度、易用性和附加功能方面可以胜过美国的所有 Roku、Chromecast 和 Apple TV。在大多数情况下，Fire TV 兑现了这些承诺。但这是有代价的。
 

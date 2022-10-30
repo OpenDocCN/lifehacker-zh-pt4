@@ -1,6 +1,6 @@
 # Gawker 媒体对我们的强奸 Gif 问题做了什么
 
-> 原文:[https://Jezebel . com/what-gawker-media-is-do-about-our-rape-gif-problem-1620742504](https://jezebel.com/what-gawker-media-is-doing-about-our-rape-gif-problem-1620742504)
+> 原文：<https://jezebel.com/what-gawker-media-is-doing-about-our-rape-gif-problem-1620742504>
 
 周一，我们发布了一封 [公开信](https://jezebel.com/we-have-a-rape-gif-problem-and-gawker-media-wont-do-any-1619384265) 给我们的母公司 Gawker Media 的管理层，内容是关于一个我们在 Jezebel 不能再容忍的问题:可怕的暴力强奸 gif 一直出现在我们的评论中。几个月来，我们向 Gawker 媒体总部寻求帮助，但尽管反复讨论，该公司的编辑主任乔尔·约翰逊(Joel Johnson)并没有快速找到解决方案。
 

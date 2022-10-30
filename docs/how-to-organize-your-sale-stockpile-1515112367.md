@@ -1,6 +1,6 @@
 # 如何组织你的销售库存
 
-> 原文:[https://life hacker . com/how-to-organize-your-sale-stock-1515112367](https://lifehacker.com/how-to-organize-your-sale-stockpile-1515112367)
+> 原文：<https://lifehacker.com/how-to-organize-your-sale-stockpile-1515112367>
 
 我的家人在食品杂货上最喜欢的省钱 方法之一是在发现大减价时囤货。例如，当我们最喜欢的意大利面酱以 1 美元一罐的价格出售时，我们买了 30 罐。这确保了我们不会以全价购买太多的酱料，在我们六口之家大量使用的东西上，每罐节省了 0 . 38 到 0 . 50 美分。但是我们又遇到了另一个问题:*我们把 30 罐意大利面条酱放在哪里？
 

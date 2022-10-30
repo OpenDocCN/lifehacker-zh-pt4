@@ -1,6 +1,6 @@
 # 根据《消费者报告》,在塔吉特买什么(不买什么)
 
-> 原文:[https://life hacker . com/what-to-buy-and-not-buy-at-target-by-consu-1644965078](https://lifehacker.com/what-to-buy-and-not-buy-at-target-according-to-consu-1644965078)
+> 原文：<https://lifehacker.com/what-to-buy-and-not-buy-at-target-according-to-consu-1644965078>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-2oEhYnCpFuk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-2oEhYnCpFuk&start=0) 
 

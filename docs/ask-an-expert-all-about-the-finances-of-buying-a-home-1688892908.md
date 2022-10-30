@@ -1,6 +1,6 @@
 # 请教专家:关于买房的所有财务问题
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-the-financies-of-buying-a-home-1688892908](https://lifehacker.com/ask-an-expert-all-about-the-finances-of-buying-a-home-1688892908)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-the-finances-of-buying-a-home-1688892908>
 
 拥有自己的房子仍然是经典的美国梦的一部分，但是为白色的尖桩栅栏融资很难。这是一个重大的人生决定，会对你如何管理预算产生重大影响。在这里，我们来自华尔街的朋友们将帮助我们解决买房的问题。
 

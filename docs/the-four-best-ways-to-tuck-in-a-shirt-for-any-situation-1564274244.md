@@ -1,6 +1,6 @@
 # 在任何情况下塞进衬衫的四种最佳方法
 
-> 原文:[https://life hacker . com/the-four-best-ways-tuck-in-a-a-shirt-anywhere-1564274244](https://lifehacker.com/the-four-best-ways-to-tuck-in-a-shirt-for-any-situation-1564274244)
+> 原文：<https://lifehacker.com/the-four-best-ways-to-tuck-in-a-shirt-for-any-situation-1564274244>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-7BOQsBk3bW8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-7BOQsBk3bW8&start=0) 
 

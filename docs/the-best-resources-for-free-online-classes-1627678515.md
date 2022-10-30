@@ -1,6 +1,6 @@
 # 免费在线课程的最佳资源
 
-> 原文:[https://life hacker . com/the-best-resources-for-free-online-classes-1627678515](https://lifehacker.com/the-best-resources-for-free-online-classes-1627678515)
+> 原文：<https://lifehacker.com/the-best-resources-for-free-online-classes-1627678515>
 
 在我们的 [Lifehacker U 系列](http://lifehacker.com/lifehacker-u) 中，我们已经收集了一些最好的免费在线课程，但我们重点介绍的课程来自网络上的各种来源，提供的内容远远超出了我们的能力范围。让我们为那些你可以在舒适的办公桌前选修的免费课程建立一个最好的网站、学校和资源的列表。
 

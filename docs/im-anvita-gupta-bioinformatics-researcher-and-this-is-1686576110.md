@@ -1,6 +1,6 @@
 # 我是安维塔·古普塔，生物信息学研究员，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-an vita-Gupta-bio informatics-research-and-this-is-1686576110](https://lifehacker.com/im-anvita-gupta-bioinformatics-researcher-and-this-is-1686576110)
+> 原文：<https://lifehacker.com/im-anvita-gupta-bioinformatics-researcher-and-this-is-1686576110>
 
 我们经常向生活和商业的老手们寻求分享他们在职业生涯中积累的智慧，但是今天我们展望未来，向一位有着惊人抱负的年轻女性。17 岁的 Anvita Gupta 是一名生物信息学研究员，英特尔科学人才搜索决赛选手，也是一名高中生。
 

@@ -1,6 +1,6 @@
 # Windows 10 将于 7 月 29 日发布，现在就预订免费版本吧
 
-> 原文:[https://life hacker . com/windows-10-will-be-released-July-29-reserve-your-COP-1708136305](https://lifehacker.com/windows-10-will-be-released-july-29th-reserve-your-cop-1708136305)
+> 原文：<https://lifehacker.com/windows-10-will-be-released-july-29th-reserve-your-cop-1708136305>
 
 今天，微软终于宣布了它将于何时推出 Windows 的最新版本[:7 月 29 日将是个大日子。为了迎接这一天，微软向旧版本用户发出通知，提醒他们预订免费版本。](http://lifehacker.com/all-the-new-stuff-in-windows-10-1640838152)
 

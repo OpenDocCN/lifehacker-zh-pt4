@@ -1,6 +1,6 @@
 # 如何解决 OS X Mavericks 最大的烦恼
 
-> 原文:[https://life hacker . com/how-to-fix-OS-x-Mavericks-biggest-annoyances-1450220339](https://lifehacker.com/how-to-fix-os-x-mavericks-biggest-annoyances-1450220339)
+> 原文：<https://lifehacker.com/how-to-fix-os-x-mavericks-biggest-annoyances-1450220339>
 
 OS X Mavericks 昨天发布，虽然很难对一个免费的操作系统抱怨太多，但 Mavericks 做的一些事情可能会让你发火。以下是解决这些烦恼的方法。
 

@@ -1,6 +1,6 @@
 # 玻璃屏幕保护套比塑料的好吗？
 
-> 原文:[https://life hacker . com/are-glass-screen-protectors-better-than-plastic-one-1611904544](https://lifehacker.com/are-glass-screen-protectors-better-than-plastic-ones-1611904544)
+> 原文：<https://lifehacker.com/are-glass-screen-protectors-better-than-plastic-ones-1611904544>
 
 亲爱的 Lifehacker，
 我刮伤了我上一部手机的屏幕，我想在我的新手机上避免这种情况。我不是塑料屏幕保护器的粉丝，但我一直听说很多关于玻璃屏幕保护器的事情。它们比塑料好吗？

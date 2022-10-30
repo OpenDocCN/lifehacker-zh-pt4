@@ -1,6 +1,6 @@
 # 定制的模型家庭工作空间
 
-> 原文:[https://life hacker . com/the-custom-build-model-home-workspace-1694828114](https://lifehacker.com/the-custom-built-model-home-workspace-1694828114)
+> 原文：<https://lifehacker.com/the-custom-built-model-home-workspace-1694828114>
 
 样板房是为了吸引潜在的购房者，所以样板房的设计要有吸引力和实用性。这个模型家的办公室有很多定制的存储空间和一个宽敞的桌面。
 

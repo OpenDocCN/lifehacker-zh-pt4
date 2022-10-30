@@ -1,6 +1,6 @@
 # 获得六块腹肌如何改变你的生活(以及如何不改变)
 
-> 原文:[https://life hacker . com/how-getting-a-six-pack-changes-your-life-and-how-it-do-1696896251](https://lifehacker.com/how-getting-a-six-pack-changes-your-life-and-how-it-do-1696896251)
+> 原文：<https://lifehacker.com/how-getting-a-six-pack-changes-your-life-and-how-it-do-1696896251>
 
 啊，难以捉摸的六块腹肌。对许多人来说，这是健身的圣杯。但是当你实现了一个目标后，你的生活真的改变了吗？让我们来看看六块腹肌是如何改变你的生活的，以及什么时候它真的只是傻瓜的金子。
 

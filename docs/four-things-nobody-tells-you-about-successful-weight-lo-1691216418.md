@@ -1,6 +1,6 @@
 # 没人告诉你的成功减肥的四件事
 
-> 原文:[https://life hacker . com/four-things-nobody-tell-you-successful-weight-lo-1691216418](https://lifehacker.com/four-things-nobody-tells-you-about-successful-weight-lo-1691216418)
+> 原文：<https://lifehacker.com/four-things-nobody-tells-you-about-successful-weight-lo-1691216418>
 
 每个减肥成功的人都克服了一系列类似的挑战。但是，让我们诚实地说:成功的减肥是相对罕见的，使许多这些挑战闻所未闻。因此，当它们出现时，你可能会认为自己做错了。但你没有，原因如下。
 

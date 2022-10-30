@@ -1,6 +1,6 @@
 # 有哪些离不开的浏览器扩展？
 
-> 原文:[https://life hacker . com/what-browser-extensions-cant-you-live-without-1700748660](https://lifehacker.com/what-browser-extensions-cant-you-live-without-1700748660)
+> 原文：<https://lifehacker.com/what-browser-extensions-cant-you-live-without-1700748660>
 
 所有的浏览器扩展都是有用的，但是有些对于我们的工作和娱乐来说是如此重要，以至于没有它们我们可能会哭。让我们列出这些超级有用的扩展。
 

@@ -1,6 +1,6 @@
 # “个人品牌”神话
 
-> 原文:[https://lifehacker.com/the-personal-brand-myth-1450843371](https://lifehacker.com/the-personal-brand-myth-1450843371)
+> 原文：<https://lifehacker.com/the-personal-brand-myth-1450843371>
 
 最近，我受邀在当地一所大学举办一个关于品牌的研讨会。我同意将品牌作为一个元概念来讨论的意图。我一点也不知道，这个演讲被预先命名为一个更大的正在进行的系列的一部分…我预定做的演讲的标题是，“创造你自己的品牌。”无可否认，我最初的反应是反感。
 

@@ -1,6 +1,6 @@
 # 如何让 Windows 8 的开始屏幕真正有用
 
-> 原文:[https://life hacker . com/how-to-make-windows-8s-start-screen-actually-useful-1593655320](https://lifehacker.com/how-to-make-windows-8s-start-screen-actually-useful-1593655320)
+> 原文：<https://lifehacker.com/how-to-make-windows-8s-start-screen-actually-useful-1593655320>
 
 Windows 8 的开始屏幕得到了不好的评价，但是通过适当的调整和下载，它实际上非常有用。以下是如何将开始屏幕变成你可能真正想要使用的东西。
 

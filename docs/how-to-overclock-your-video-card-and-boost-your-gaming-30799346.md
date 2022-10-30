@@ -1,6 +1,6 @@
 # 如何超频您的显卡并提升游戏性能
 
-> 原文:[https://life hacker . com/how-to-over clock-your ' s video-card-and-boost-your-gaming-30799346](https://lifehacker.com/how-to-overclock-your-video-card-and-boost-your-gaming-30799346)
+> 原文：<https://lifehacker.com/how-to-overclock-your-video-card-and-boost-your-gaming-30799346>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-W36EAnHp4oA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-W36EAnHp4oA&start=0) 
 

@@ -1,6 +1,6 @@
 # 杰瑞·宋飞的六个最佳生产力秘诀
 
-> 原文:[https://life hacker . com/Jerry-seinfelds-six-best-productivity-tips-1497047075](https://lifehacker.com/jerry-seinfelds-six-best-productivity-tips-1497047075)
+> 原文：<https://lifehacker.com/jerry-seinfelds-six-best-productivity-tips-1497047075>
 
 本周早些时候，杰瑞·宋飞在 Reddit 停下来，讨论它著名的“问我任何问题”之一。尽管在以他名字命名的节目结束后他一直保持低调；这位漫画家有着有据可查的 [职业道德](http://www.nytimes.com/2012/12/23/magazine/jerry-seinfeld-intends-to-die-standing-up.html?_r=1&) ，定期表演并领导副业项目，如他的 [低调的 YouTube 系列](http://comediansincarsgettingcoffee.com/) 。正因为如此，他的回答对解决问题有很多实际的见解，因为，用宋飞的话说，“喜剧不是玩笑。”
 

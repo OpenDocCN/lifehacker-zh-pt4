@@ -1,6 +1,6 @@
 # 如何在 10 秒钟内削完芒果皮
 
-> 原文:[https://life hacker . com/how-to-peel-a-mango-under-10 seconds-1603398060](https://lifehacker.com/how-to-peel-a-mango-in-under-10-seconds-1603398060)
+> 原文：<https://lifehacker.com/how-to-peel-a-mango-in-under-10-seconds-1603398060>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-2BT1cd49pIw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-2BT1cd49pIw&start=0) 
 

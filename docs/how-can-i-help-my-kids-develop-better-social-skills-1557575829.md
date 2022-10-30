@@ -1,6 +1,6 @@
 # 我如何帮助我的孩子发展更好的社交技能？
 
-> 原文:[https://life hacker . com/how-can-I-help-my-kids-develop-better-social-skills-1557575829](https://lifehacker.com/how-can-i-help-my-kids-develop-better-social-skills-1557575829)
+> 原文：<https://lifehacker.com/how-can-i-help-my-kids-develop-better-social-skills-1557575829>
 
 亲爱的生活黑客，我希望我的孩子成长为快乐、适应力强的成年人。然而，说到社交技巧，我就不知所措了。我的一个孩子看起来很孤独，但对其他人不感兴趣，而另一个则是校园里的恐怖分子。我能做些什么来帮助他们发展生活所需的社交技能？
 

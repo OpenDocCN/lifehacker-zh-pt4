@@ -1,6 +1,6 @@
 # 耐力赛前吃什么
 
-> 原文:[https://life hacker . com/耐力赛前吃什么-1690585905](https://lifehacker.com/what-to-eat-before-an-endurance-race-1690585905)
+> 原文：<https://lifehacker.com/what-to-eat-before-an-endurance-race-1690585905>
 
 所以你决定进行一场耐力赛——也许是马拉松或半程马拉松，也许是铁人三项，世纪骑行，全天远足，或者其他一些长时间的努力。在那天你要做的许多艰难的决定中，第一个是:你早餐应该吃什么？
 

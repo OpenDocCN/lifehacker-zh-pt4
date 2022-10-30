@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:我爱上了我最好朋友的妹妹
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-im-in-love-with-my-best-friends-sist-1589934350](https://kotaku.com/ask-dr-nerdlove-im-in-love-with-my-best-friends-sist-1589934350)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-im-in-love-with-my-best-friends-sist-1589934350>
 
 你好互联网！欢迎询问 NerdLove 博士，这是唯一一个废话少、字数多、目的窄、视野广的约会建议专栏。
 

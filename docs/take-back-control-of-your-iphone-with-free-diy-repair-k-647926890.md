@@ -1,6 +1,6 @@
 # 用免费的 DIY 维修包夺回你的 iPhone 控制权(节省 20 美元)
 
-> 原文:[https://life hacker . com/take-back-control-of-your-iphone-with-free-DIY-repair-k-647926890](https://lifehacker.com/take-back-control-of-your-iphone-with-free-diy-repair-k-647926890)
+> 原文：<https://lifehacker.com/take-back-control-of-your-iphone-with-free-diy-repair-k-647926890>
 
 令人恼火的是，iPhones 是用苹果设计的特殊五叶螺丝而不是标准的菲利普斯螺丝组装起来的。如果你想打开你的 iPhone，而不是把它送到苹果公司维修，从 iFixit 获得这些免费的 iPhone 解放工具包。
 

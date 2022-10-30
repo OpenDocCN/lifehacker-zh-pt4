@@ -1,6 +1,6 @@
 # 如何解决 iOS 8 的最大问题
 
-> 原文:[https://life hacker . com/how-to-fix-IOs-8s-maximum-annoyances-1634970941](https://lifehacker.com/how-to-fix-ios-8s-biggest-annoyances-1634970941)
+> 原文：<https://lifehacker.com/how-to-fix-ios-8s-biggest-annoyances-1634970941>
 
 每个操作系统都有其令人烦恼的地方，iOS 8 也不例外。从令人讨厌的 U2 专辑到最近出现在你不想要的地方的联系人，以下是如何解决一些最糟糕的烦恼。
 

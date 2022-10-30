@@ -1,6 +1,6 @@
 # 你应该忽略的三个经典商业事实
 
-> 原文:[https://life hacker . com/three-classic-business-truth-the-you-should-ignore-1617112718](https://lifehacker.com/three-classic-business-truths-that-you-should-ignore-1617112718)
+> 原文：<https://lifehacker.com/three-classic-business-truths-that-you-should-ignore-1617112718>
 
 [不要相信你读到的一切。](http://www.inc.com/erik-sherman/3-studies-prove-dont-believe-everything-you-read.html) 还是一次又一次地听到，甚至来自真正聪明的人。对于一些我们都听过很多次的商业“真理”来说，这也同样适用。如果你正在考虑自己创业，后退一步，考虑一下你应该忽略哪些建议。
 

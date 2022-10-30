@@ -1,6 +1,6 @@
 # 跳过轻量级:举重对女性来说没什么不同
 
-> 原文:[https://life hacker . com/skip-the-micro-weights-lifting-not-differe-1724484355](https://lifehacker.com/skip-the-tiny-weights-weight-lifting-isnt-that-differe-1724484355)
+> 原文：<https://lifehacker.com/skip-the-tiny-weights-weight-lifting-isnt-that-differe-1724484355>
 
 许多女性力量训练偏离了实际力量和力量发展，强调更轻的重量。这延续了男人做的运动不适合我们的观念。但事实并非如此。如果女性愿意的话，她们可以也应该像男性一样进行高强度的举重训练，并进行相同的锻炼和项目。
 

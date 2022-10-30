@@ -1,6 +1,6 @@
 # 我怎样才能让我的老板听我的想法？
 
-> 原文:[https://life hacker . com/how-can-I-get-my-boss-to-listen-my ideas-1636417238](https://lifehacker.com/how-can-i-get-my-boss-to-listen-to-my-ideas-1636417238)
+> 原文：<https://lifehacker.com/how-can-i-get-my-boss-to-listen-to-my-ideas-1636417238>
 
 亲爱的生活黑客，我觉得我在工作中没有被倾听。我们的团队有很多事情可以做得更好，但每次我提出建议，我要么被否决，要么觉得它没有被认真对待。我怎样才能让我的老板听我的想法？
 

@@ -1,6 +1,6 @@
 # 怪异的工作空间
 
-> 原文:[https://lifehacker.com/the-spooky-workspace-1582730995](https://lifehacker.com/the-spooky-workspace-1582730995)
+> 原文：<https://lifehacker.com/the-spooky-workspace-1582730995>
 
 如果你是恐怖电影的粉丝，你可能会喜欢今天的特色工作空间。虽然总体上装饰优雅，但克里斯托弗·布瑞尔的家庭办公室还装饰着一个骷髅面具、Baphomet 面具、弗莱迪·克鲁格手套和其他怪异的物品。
 

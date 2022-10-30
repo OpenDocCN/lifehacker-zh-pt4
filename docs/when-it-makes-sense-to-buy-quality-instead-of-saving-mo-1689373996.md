@@ -1,6 +1,6 @@
 # 当购买质量比省钱更有意义时
 
-> 原文:[https://life hacker . com/when-it-sense-to-buy-quality-not-saving-mo-1689373996](https://lifehacker.com/when-it-makes-sense-to-buy-quality-instead-of-saving-mo-1689373996)
+> 原文：<https://lifehacker.com/when-it-makes-sense-to-buy-quality-instead-of-saving-mo-1689373996>
 
 节俭不仅仅意味着省钱，还意味着明智地花钱。这也意味着一些东西现在可能很便宜，但从长远来看实际上花费更多，而其他时候为了更好、更持久的体验现在花更多是有意义的。让我们来看看什么时候现在挥霍以备后用是有意义的。
 

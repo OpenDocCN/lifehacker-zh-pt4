@@ -1,6 +1,6 @@
 # 五款最佳桌面防病毒应用
 
-> 原文:[https://life hacker . com/five-best-desktop-anti virus-applications-1607557993](https://lifehacker.com/five-best-desktop-antivirus-applications-1607557993)
+> 原文：<https://lifehacker.com/five-best-desktop-antivirus-applications-1607557993>
 
 良好的浏览卫生和“常识”只能让你在互联网上走到这一步。一个好的防病毒工具值得放在你的口袋里，以防这两样东西中的任何一个让你失望(过去已经知道了)，或者某个不太懂技术的人向你要一个好工具。根据你的提名，本周我们来看看五款最好的防病毒工具。
 

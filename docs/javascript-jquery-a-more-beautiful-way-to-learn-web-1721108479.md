@@ -1,6 +1,6 @@
 # JavaScript & JQuery:学习 Web 开发的更好方法
 
-> 原文:[https://life hacker . com/JavaScript-jquery-a-more-beautiful-way-to-learn-we b-1721108479](https://lifehacker.com/javascript-jquery-a-more-beautiful-way-to-learn-web-1721108479)
+> 原文：<https://lifehacker.com/javascript-jquery-a-more-beautiful-way-to-learn-web-1721108479>
 
 如今，不缺乏 [在线资源](http://lifehacker.com/the-best-resources-to-learn-to-code-1517844722#_ga=1.155127864.1230454105.1438273190)[自学编码](http://lifehacker.com/top-10-ways-to-teach-yourself-to-code-1684250889) ，但也没有什么比从头到尾阅读一本好的指导手册更好的了。Jon Duckett 的《JavaScript》&JQuery**、** ,也许是你可以从中学习 JavaScript 的最优雅、最吸引人的书籍。
 

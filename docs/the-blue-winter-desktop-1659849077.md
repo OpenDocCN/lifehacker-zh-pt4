@@ -1,6 +1,6 @@
 # 蓝色的冬季桌面
 
-> 原文:[https://lifehacker.com/the-blue-winter-desktop-1659849077](https://lifehacker.com/the-blue-winter-desktop-1659849077)
+> 原文：<https://lifehacker.com/the-blue-winter-desktop-1659849077>
 
 Flickr 用户如果你和我们一样喜欢这个外观，这里有一些你需要在电脑上安装的工具。
 

@@ -1,6 +1,6 @@
 # 如何使用 Dropbox 和 Google Drive 在任何地方播放流媒体
 
-> 原文:[https://life hacker . com/how-to-turn-Google-drive-into-your-personal-media-serve-1551083632](https://lifehacker.com/how-to-turn-google-drive-into-your-personal-media-serve-1551083632)
+> 原文：<https://lifehacker.com/how-to-turn-google-drive-into-your-personal-media-serve-1551083632>
 
 谷歌和 [Dropbox](https://lifehacker.com/dropbox-upgrades-pro-users-to-1tb-adds-remote-wipe-se-1627403731) 有一些价格低得离谱的 1TB 存储选项。这么大的空间，这么少的钱，你能用它做什么？首先，你可以把它们变成你自己的个人媒体服务器。
 

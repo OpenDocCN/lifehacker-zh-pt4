@@ -1,6 +1,6 @@
 # 职业聚焦:我作为一名医师助理的工作
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-physician-assistant-1705270683](https://lifehacker.com/career-spotlight-what-i-do-as-a-physician-assistant-1705270683)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-physician-assistant-1705270683>
 
 除了医生和护士，还有各种各样的专业人士每天为人们提供医疗保健。举例来说，一个医师助理通常比一个赶时间的医生有更多的时间花在病人身上并提供护理。
 

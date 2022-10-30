@@ -1,6 +1,6 @@
 # 你没有使用(但应该使用)的最好的音乐下载商店
 
-> 原文:[https://life hacker . com/the-best-music-download-stores-you-not-use-but-sh-1460502841](https://lifehacker.com/the-best-music-download-stores-youre-not-using-but-sh-1460502841)
+> 原文：<https://lifehacker.com/the-best-music-download-stores-youre-not-using-but-sh-1460502841>
 
 流媒体音乐很棒，但你可能听过你必须拥有的歌曲，或者你想通过购买他们的音乐来支持你的艺术家或乐队。在大商店这样做既便宜又容易，但是还有很多小的音乐商店有有趣的音乐，你也应该去看看。让我们来看看。
 

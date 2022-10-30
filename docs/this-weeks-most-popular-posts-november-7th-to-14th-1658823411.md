@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:11 月 7 日至 14 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-11 月 7 日至 14 日-1658823411](https://lifehacker.com/this-weeks-most-popular-posts-november-7th-to-14th-1658823411)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-november-7th-to-14th-1658823411>
 
 本周我们 [终结了一个铸铁神话](https://lifehacker.com/go-ahead-and-use-soap-to-clean-your-cast-iron-pan-1658416503)[磨练了我们的家装技能](http://lifehacker.com/top-10-home-improvement-tips-every-homeowner-should-kno-1656251243)[把我们的数据迁移到新手机](http://lifehacker.com/how-to-upgrade-to-a-new-android-phone-and-take-everythi-5843206)[学习了最常见的金钱错误](http://twocents.lifehacker.com/the-most-common-money-mistakes-people-make-at-every-age-1657120724) 。这里回顾一下。
 

@@ -1,6 +1,6 @@
 # 最好的家用 Wi-Fi 路由器是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-home-wi-fi-router-1537276588](https://lifehacker.com/whats-the-best-home-wi-fi-router-1537276588)
+> 原文：<https://lifehacker.com/whats-the-best-home-wi-fi-router-1537276588>
 
 Wi-Fi 路由器是大多数人家庭网络的中心，但并不是每个路由器都是好的。自从我们上次查看市场上最好的 Wi-Fi 路由器已经有一段时间了，本周我们想重新审视一下，并建立一个更好的前五名名单。
 

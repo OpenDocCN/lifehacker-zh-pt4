@@ -1,6 +1,6 @@
 # 木质工作空间
 
-> 原文:[https://lifehacker.com/the-woodsy-workspace-1679332698](https://lifehacker.com/the-woodsy-workspace-1679332698)
+> 原文：<https://lifehacker.com/the-woodsy-workspace-1679332698>
 
 风景壁纸对我来说似乎总是有点做作，但这个工作空间表明，在一个小空间里战略性地使用壁画可以真正改变一个房间。
 

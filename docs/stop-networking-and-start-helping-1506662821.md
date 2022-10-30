@@ -1,6 +1,6 @@
 # 停止社交，开始帮忙吧
 
-> 原文:[https://life hacker . com/stop-networking-and-start-help-1506662821](https://lifehacker.com/stop-networking-and-start-helping-1506662821)
+> 原文：<https://lifehacker.com/stop-networking-and-start-helping-1506662821>
 
 是这样的。人际关系很糟糕，你可能不擅长。我这么说是因为我也相信这一点:我讨厌社交，而且我不擅长。所以我不干。
 

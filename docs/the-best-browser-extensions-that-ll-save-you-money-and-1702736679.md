@@ -1,6 +1,6 @@
 # 最省钱的浏览器扩展(哪些可以跳过)
 
-> 原文:[https://life hacker . com/the-best-browser-extensions-that-ll-save-you-money-and-1702736679](https://lifehacker.com/the-best-browser-extensions-that-ll-save-you-money-and-1702736679)
+> 原文：<https://lifehacker.com/the-best-browser-extensions-that-ll-save-you-money-and-1702736679>
 
 你现在可能大部分都在网上购物，所以正确的浏览器扩展可能是节省一些钱的杀手锏。尽管有很多，但并不是所有的公司都能兑现他们的承诺。这里是帮助你省钱的最好的扩展，也是你最好跳过的。
 

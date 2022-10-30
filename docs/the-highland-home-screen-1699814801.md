@@ -1,6 +1,6 @@
 # 高地主屏幕
 
-> 原文:[https://lifehacker.com/the-highland-home-screen-1699814801](https://lifehacker.com/the-highland-home-screen-1699814801)
+> 原文：<https://lifehacker.com/the-highland-home-screen-1699814801>
 
 如果你是山景和宁静色彩的爱好者，这个主屏幕就是为你准备的。该设计采用背景图像中使用的颜色，给用户界面一个柔和的色调。
 

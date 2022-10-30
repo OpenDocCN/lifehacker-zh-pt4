@@ -1,6 +1,6 @@
 # 可能阻碍你的五个求职误区
 
-> 原文:[https://life hacker . com/five-job-search-myths-that may-hold-you-back-1718227317](https://lifehacker.com/five-job-search-myths-that-might-be-holding-you-back-1718227317)
+> 原文：<https://lifehacker.com/five-job-search-myths-that-might-be-holding-you-back-1718227317>
 
 如果你想找到一份你热爱的工作，你必须有高标准。你必须知道你想要什么 [你的价值](https://www.themuse.com/advice/the-easiest-way-to-find-out-if-youre-underpaid) ，你不能满足于比这更低的东西。但这并不意味着你可以用同样的标准来衡量求职过程。事实上，对于求职者来说，带着对求职过程不切实际的期望去找工作太容易了——这种期望经常导致失望。
 

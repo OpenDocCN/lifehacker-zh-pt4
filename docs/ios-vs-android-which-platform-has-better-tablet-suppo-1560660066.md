@@ -1,6 +1,6 @@
 # iOS vs. Android:哪个平台对平板电脑的支持更好？
 
-> 原文:[https://life hacker . com/IOs-vs-Android-哪个平台拥有更好的平板电脑-suppo-1560660066](https://lifehacker.com/ios-vs-android-which-platform-has-better-tablet-suppo-1560660066)
+> 原文：<https://lifehacker.com/ios-vs-android-which-platform-has-better-tablet-suppo-1560660066>
 
 谈到手机，Android 和 iOS 都已经达到了各自应用商店足够成熟的程度。然而，平板电脑相对较新。我们决定看看在过去三到四年的发展中，平板电脑在这两个平台上的支持程度如何。
 

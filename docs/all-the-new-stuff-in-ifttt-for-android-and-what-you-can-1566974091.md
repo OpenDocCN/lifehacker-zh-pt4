@@ -1,6 +1,6 @@
 # IFTTT for Android 中的所有新内容以及您可以用它做什么
 
-> 原文:[https://life hacker . com/all-the-new-stuff-stuff TT-for-Android-and-what-you-can-1566974091](https://lifehacker.com/all-the-new-stuff-in-ifttt-for-android-and-what-you-can-1566974091)
+> 原文：<https://lifehacker.com/all-the-new-stuff-in-ifttt-for-android-and-what-you-can-1566974091>
 
 我们非常喜欢在这些地方周围的 [和](http://lifehacker.com/tag/ifttt) 。去年，该公司发布了一款 iOS 应用，我们收到了大量专为 iPhone 设计的新食谱。现在，轮到安卓了。今天，官方 Android 应用程序发布。下面是你可以用它做什么。
 

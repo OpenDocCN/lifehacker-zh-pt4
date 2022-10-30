@@ -1,6 +1,6 @@
 # 海滨主屏幕
 
-> 原文:[https://life hacker . com/the-ocean front-home-screen-1595574260](https://lifehacker.com/the-oceanfront-home-screen-1595574260)
+> 原文：<https://lifehacker.com/the-oceanfront-home-screen-1595574260>
 
 Android:今天的特色主屏幕来自读者 [floridagizzi](http://floridagizzi.kinja.com/) 。该设计的特点是一个简化的三屏住宅，有工作、放松的空间，还有一个中央“开始”区。
 

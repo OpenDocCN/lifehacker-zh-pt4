@@ -1,6 +1,6 @@
 # 如何用很少的钱买很多电子游戏
 
-> 原文:[https://kotaku . com/how-to-buy-a-lot-lot-money-1594750333](https://kotaku.com/how-to-buy-a-lot-of-video-games-with-very-little-money-1594750333)
+> 原文：<https://kotaku.com/how-to-buy-a-lot-of-video-games-with-very-little-money-1594750333>
 
 任何好的爱好都需要投资，通过时间或金钱。游戏两者都需要。
 

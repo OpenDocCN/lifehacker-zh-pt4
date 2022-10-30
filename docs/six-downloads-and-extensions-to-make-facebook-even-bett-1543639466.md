@@ -1,6 +1,6 @@
 # 六次下载和扩展，让脸书变得更好
 
-> 原文:[https://life hacker . com/six-downloads-and-extensions-to-make-Facebook-even-bett-1543639466](https://lifehacker.com/six-downloads-and-extensions-to-make-facebook-even-bett-1543639466)
+> 原文：<https://lifehacker.com/six-downloads-and-extensions-to-make-facebook-even-bett-1543639466>
 
 脸书，不管你喜不喜欢，是镇上最大的社交网络游戏，已经吸引了超过 10 亿人的关注。它并不是没有烦恼，它当然可以在这里或那里使用一点改进。这里有一些最好的扩展，你可以用它来更好地使用脸书。
 

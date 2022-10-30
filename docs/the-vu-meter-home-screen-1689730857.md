@@ -1,6 +1,6 @@
 # VU 血糖仪主屏幕
 
-> 原文:[https://lifehacker.com/the-vu-meter-home-screen-1689730857](https://lifehacker.com/the-vu-meter-home-screen-1689730857)
+> 原文：<https://lifehacker.com/the-vu-meter-home-screen-1689730857>
 
 VU 米有一种令人愉快的怀旧情绪。虽然我们可能有更节省空间的方法来测量电池寿命等事情，但这个主屏幕看起来确实不错。
 

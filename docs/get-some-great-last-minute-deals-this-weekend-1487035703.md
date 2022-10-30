@@ -1,6 +1,6 @@
 # 这个周末获得一些伟大的最后一分钟的交易
 
-> 原文:[https://life hacker . com/get-some-great-last-minute-deals-this-weekend-1487035703](https://lifehacker.com/get-some-great-last-minute-deals-this-weekend-1487035703)
+> 原文：<https://lifehacker.com/get-some-great-last-minute-deals-this-weekend-1487035703>
 
 我们马上就要到了，但是在时间用完之前，你还有时间为假期买一些礼物。如果你知道去哪里找，交易还是有的，这个周末是你得到它们的最后机会。
 

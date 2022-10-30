@@ -1,6 +1,6 @@
 # 我怎样才能在阅读时最好地吸收信息？
 
-> 原文:[https://life hacker . com/how-can-I-best-absorb-information-while-reading-1538836809](https://lifehacker.com/how-can-i-best-absorb-information-while-reading-1538836809)
+> 原文：<https://lifehacker.com/how-can-i-best-absorb-information-while-reading-1538836809>
 
 阅读一本好书可能是一种有益的体验，但当信息只是在你的脑海中浮动而没有留在你的记忆中时，它可能会令人沮丧。幸运的是，有一些方法真的可以在保留信息方面有所作为。书虫们在 [*栈交换*](http://productivity.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=productivity-108) *提供一些小技巧来帮助你的 Jeopardy 游戏。*
 

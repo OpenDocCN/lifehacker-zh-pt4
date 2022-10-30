@@ -1,6 +1,6 @@
 # 关于注重隐私的新型智能手机，您需要了解的一切
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-the-new-privacy-focus-1540483077](https://lifehacker.com/everything-you-need-to-know-about-the-new-privacy-focus-1540483077)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-the-new-privacy-focus-1540483077>
 
 上个月，新一代注重隐私的智能手机在 [世界移动通信大会](http://www.mobileworldcongress.com/) (MWC)上亮相。从表面上看，它们都很令人兴奋，但是你真的需要它们中的一个来保护你的数据免受窥探吗？以下是你需要知道的。
 

@@ -1,6 +1,6 @@
 # 购买电脑零件的五个最佳地点
 
-> 原文:[https://life hacker . com/five-best-places-to-buy-computer-parts-1642332463](https://lifehacker.com/five-best-places-to-buy-computer-parts-1642332463)
+> 原文：<https://lifehacker.com/five-best-places-to-buy-computer-parts-1642332463>
 
 [Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)) : title[![](../Images/044fbadc98edfd613c34b7c809fe4420.png)](https://pcbuild.kinja.com)[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)Building your own desktop PC is a great, geeky pleasure. We'll show you how to do it and everything you need to know to keep your system properly maintained.
 

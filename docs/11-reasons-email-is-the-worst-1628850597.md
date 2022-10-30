@@ -1,6 +1,6 @@
 # 电子邮件最糟糕的 11 个原因
 
-> 原文:[https://gizmodo . com/11-reasons-email-is-the-worst-1628850597](https://gizmodo.com/11-reasons-email-is-the-worst-1628850597)
+> 原文：<https://gizmodo.com/11-reasons-email-is-the-worst-1628850597>
 
 [电子邮件只是你生活中的一部分，期间](http://waitbutwhy.com/2013/12/11-awkward-things-about-email.html) 。我们大多数人都知道有人关闭了他们的脸书账户，或者拒绝加入一个小小的践踏袖手旁观自我的地方，你甚至可能知道有人为自己没有智能手机而兴奋不已。
 

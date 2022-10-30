@@ -1,6 +1,6 @@
 # 最好的文字编辑器是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-text-editor-1563993257](https://lifehacker.com/whats-the-best-text-editor-1563993257)
+> 原文：<https://lifehacker.com/whats-the-best-text-editor-1563993257>
 
 无论你是需要编辑代码，做笔记，还是喜欢简单的、不受干扰的写作工具，一个好的文本编辑器都是你最好的朋友。本周，我们想知道你认为哪些文本编辑器是最好的——有很多可供选择。
 

@@ -1,6 +1,6 @@
 # 举办完美聚会的 10 大技巧
 
-> 原文:[https://life hacker . com/top-10-tips-for-hosting-the-perfect-get-together-1715613753](https://lifehacker.com/top-10-tips-for-hosting-the-perfect-get-together-1715613753)
+> 原文：<https://lifehacker.com/top-10-tips-for-hosting-the-perfect-get-together-1715613753>
 
 无论您是为一群人提供娱乐，还是与密友进行最后一分钟的聚会，合适的用品和工具都可以让您的客人和您自己度过一段美好时光。以下是我们的十大娱乐技巧。
 

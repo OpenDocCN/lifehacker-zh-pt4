@@ -1,6 +1,6 @@
 # 当你遇到车祸时该怎么办
 
-> 原文:[https://jalopnik . com/what-to-do what-what-when-you ' s-in-a-car-affair-1678833273](https://jalopnik.com/what-to-do-when-you-are-in-a-car-accident-1678833273)
+> 原文：<https://jalopnik.com/what-to-do-when-you-are-in-a-car-accident-1678833273>
 
 无论你是一个多么出色的司机，总有一天你会遭遇车祸。以下是我对事故发生后如何保护自己和自己权利的建议。
 

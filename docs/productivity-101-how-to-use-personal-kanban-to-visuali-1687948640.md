@@ -1,6 +1,6 @@
 # 生产力 101:如何使用个人看板来可视化你的工作
 
-> 原文:[https://life hacker . com/productivity-101-how-to-use-personal-kanban-to-visuali-1687948640](https://lifehacker.com/productivity-101-how-to-use-personal-kanban-to-visuali-1687948640)
+> 原文：<https://lifehacker.com/productivity-101-how-to-use-personal-kanban-to-visuali-1687948640>
 
 最好的效率方法是让你的待办事项摆在你面前，并按优先顺序排列，这样你就永远不会想接下来要做什么。有些很复杂，但有些可以让你很容易地看到所有的东西，按优先顺序组织起来——如果你愿意，你可以使用便利贴。让我们来谈谈其中的一个系统:个人看板。
 

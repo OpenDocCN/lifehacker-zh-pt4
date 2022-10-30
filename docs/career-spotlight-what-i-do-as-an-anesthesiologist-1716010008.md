@@ -1,6 +1,6 @@
 # 职业聚焦:我作为一名麻醉师做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-an-麻醉师-1716010008](https://lifehacker.com/career-spotlight-what-i-do-as-an-anesthesiologist-1716010008)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-an-anesthesiologist-1716010008>
 
 人们很容易理所当然地认为现代医学可以精确地控制和减轻疼痛，无论你是在接受手术还是在康复中。麻醉师对此有一个笑话:任何人都可以让你睡着，但只有麻醉师才能让你醒过来。
 

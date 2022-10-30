@@ -1,6 +1,6 @@
 # 最常见的运动损伤(以及如何避免)
 
-> 原文:[https://life hacker . com/the-most-common-exercise-injury-and-how-you-can-avoi-1659615551](https://lifehacker.com/the-most-common-exercise-injuries-and-how-you-can-avoi-1659615551)
+> 原文：<https://lifehacker.com/the-most-common-exercise-injuries-and-how-you-can-avoi-1659615551>
 
 受伤是痛苦的，使人虚弱的，并且有可能使你的锻炼目标推迟几周或几个月。一些伤害构成了大部分的运动事故，虽然没有人真的能免受伤害，但至少你可以做一些事情来降低风险。
 

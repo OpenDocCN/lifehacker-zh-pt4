@@ -1,6 +1,6 @@
 # 急救人员的日常携带
 
-> 原文:[https://lifehacker.com/the-emts-daily-carry-1659729009](https://lifehacker.com/the-emts-daily-carry-1659729009)
+> 原文：<https://lifehacker.com/the-emts-daily-carry-1659729009>
 
 正如你可能会猜测的那样，成为一名急救人员意味着你会一直随身携带大量的急救设备。《每日随身携带》的读者托尼分享了他的包，里面装满了足够的装备，可以帮助任何人直到救援到来。
 

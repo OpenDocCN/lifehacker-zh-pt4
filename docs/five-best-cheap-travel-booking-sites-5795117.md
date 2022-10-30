@@ -1,6 +1,6 @@
 # 五个最便宜的旅游预订网站
 
-> 原文:[https://life hacker . com/five-best-cheap-travel-booking-sites-5795117](https://lifehacker.com/five-best-cheap-travel-booking-sites-5795117)
+> 原文：<https://lifehacker.com/five-best-cheap-travel-booking-sites-5795117>
 
 出去度个小假不应该很贵。有很多很棒的网站可以帮助你计划你的下一次旅行，无论是商务旅行还是休闲旅行，比较航班、酒店、火车票或汽车票，所有这些都不会让你倾家荡产。根据你的提名，这里有五个最好的。
 

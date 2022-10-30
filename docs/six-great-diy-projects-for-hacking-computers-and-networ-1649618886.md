@@ -1,6 +1,6 @@
 # 黑客入侵计算机和网络的六大 DIY 项目
 
-> 原文:[https://life hacker . com/six-great-DIY-projects-for-hacking-computer-and-networking-1649618886](https://lifehacker.com/six-great-diy-projects-for-hacking-computers-and-networ-1649618886)
+> 原文：<https://lifehacker.com/six-great-diy-projects-for-hacking-computers-and-networ-1649618886>
 
 如果你正在测试你的黑客技术或者试图学习更多关于安全的知识，你的工具包不应该仅限于你的电脑。如果你愿意拿起螺丝刀、烙铁或其他一些工具，有几个伟大的 DIY 黑客项目可以测试你的勇气，同时教会你一些关于网络的事情。让我们来看看其中的一些。
 

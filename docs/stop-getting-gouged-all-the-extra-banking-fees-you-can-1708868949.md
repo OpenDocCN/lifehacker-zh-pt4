@@ -1,6 +1,6 @@
 # 停止被欺骗:所有你可以避免的额外银行费用
 
-> 原文:[https://life hacker . com/stop-getting-gougged-all-the-extra-banking-fees-you-can-1708868949](https://lifehacker.com/stop-getting-gouged-all-the-extra-banking-fees-you-can-1708868949)
+> 原文：<https://lifehacker.com/stop-getting-gouged-all-the-extra-banking-fees-you-can-1708868949>
 
 如果说银行喜欢什么的话，那就是对愚蠢的事情收取额外的费用，并希望你不会注意到。不要让贪婪的银行将你遗忘。以下是一些很容易避免的极其常见的费用。
 

@@ -1,6 +1,6 @@
 # 获得更好技术支持的逐步指南
 
-> 原文:[https://life hacker . com/a-step-by-step-by-step-guide-to-get-better-tech-support-1576312060](https://lifehacker.com/a-step-by-step-guide-to-getting-better-tech-support-1576312060)
+> 原文：<https://lifehacker.com/a-step-by-step-guide-to-getting-better-tech-support-1576312060>
 
 当你需要帮助修理电脑时，你最不希望的就是沟通问题。在你打电话给技术支持或提交错误报告之前，有几件事你应该做，以确保你得到最好的帮助。
 

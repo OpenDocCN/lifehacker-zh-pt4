@@ -1,6 +1,6 @@
 # 用杂货店等价物整年搞定你的女童子军饼干
 
-> 原文:[https://life hacker . com/get-your-girl-scout-cookie-fix-all-year-with 杂货店-st-5898791](https://lifehacker.com/get-your-girl-scout-cookie-fix-all-year-with-grocery-st-5898791)
+> 原文：<https://lifehacker.com/get-your-girl-scout-cookie-fix-all-year-with-grocery-st-5898791>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-6eKW5cVfe9k&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-6eKW5cVfe9k&start=0) 
 

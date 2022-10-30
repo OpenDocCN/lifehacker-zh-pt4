@@ -1,6 +1,6 @@
 # 创建一个 USB 密码窃取器，看看你的信息到底有多安全
 
-> 原文:[https://life hacker . com/create-a-USB-password-stealter-to-see-how-secure-your-I-1650354166](https://lifehacker.com/create-a-usb-password-stealer-to-see-how-secure-your-i-1650354166)
+> 原文：<https://lifehacker.com/create-a-usb-password-stealer-to-see-how-secure-your-i-1650354166>
 
 在密码安全上的松懈会带来可怕的后果。即便如此，还是很容易忘记有多少人容易受到攻击。只需几个文件，你就可以从受害者的 Windows PC 上几乎任何地方窃取密码，包括你自己的，只是为了看看它们到底有多安全。
 

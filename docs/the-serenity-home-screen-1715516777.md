@@ -1,6 +1,6 @@
 # 宁静主屏幕
 
-> 原文:[https://lifehacker.com/the-serenity-home-screen-1715516777](https://lifehacker.com/the-serenity-home-screen-1715516777)
+> 原文：<https://lifehacker.com/the-serenity-home-screen-1715516777>
 
 不， [不是那个](http://www.imdb.com/title/tt0379786/) 。这个主屏幕设计旨在给你忙碌的主屏幕带来一些平静。它包括几个最小的部件和一个中性的灰色配色方案。
 

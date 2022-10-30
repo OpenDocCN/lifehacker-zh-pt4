@@ -1,6 +1,6 @@
 # 为什么伟大的想法总是在淋浴时出现(以及如何利用它们)
 
-> 原文:[https://life hacker . com/why-great-ideas-always-come-in-the-shower-and-how-to-h-1617303016](https://lifehacker.com/why-great-ideas-always-come-in-the-shower-and-how-to-h-1617303016)
+> 原文：<https://lifehacker.com/why-great-ideas-always-come-in-the-shower-and-how-to-h-1617303016>
 
 我们每个人都遇到过这种情况——你正在洗澡，灵感来了。你努力回忆你出狱的时候。有时候你会成功，有时候可能不会——但是为什么淋浴是激发灵感的最佳场所呢？让我们来看看，看看你如何在其他时候也能利用这种才华。
 

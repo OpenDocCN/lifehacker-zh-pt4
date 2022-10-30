@@ -1,6 +1,6 @@
 # 如何在网上购买衣服并获得完美的合身
 
-> 原文:[https://life hacker . com/how-to-shop for-clothing-online-and-get-a perfect-fit-1501813895](https://lifehacker.com/how-to-shop-for-clothes-online-and-get-a-perfect-fit-1501813895)
+> 原文：<https://lifehacker.com/how-to-shop-for-clothes-online-and-get-a-perfect-fit-1501813895>
 
 在网上买衣服，不管你是从大卖场还是定制服装店买，都能以低廉的价格买到漂亮的款式。不幸的是，这也带来了担忧，因为你买的衣服看都没看就不合身，你浪费了钱。以下是如何确保这种情况永远不会发生。
 

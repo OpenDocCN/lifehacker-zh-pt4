@@ -1,6 +1,6 @@
 # 如何将你的安卓手机变成一个游戏强国
 
-> 原文:[https://kotaku . com/how-to-turn-your-Android-phone-a-gaming-powerful-505045321](https://kotaku.com/how-to-turn-your-android-phone-into-a-gaming-powerhouse-505045321)
+> 原文：<https://kotaku.com/how-to-turn-your-android-phone-into-a-gaming-powerhouse-505045321>
 
 你的安卓手机不仅仅是用来玩小工具、聊天、Google Now 和拍照的。如果你愿意花一点时间，它也可以成为世界上最好的游戏平台之一。
 

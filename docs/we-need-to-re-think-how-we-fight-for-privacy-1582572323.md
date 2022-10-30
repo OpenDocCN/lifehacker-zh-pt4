@@ -1,6 +1,6 @@
 # 我们需要重新思考我们如何争取隐私
 
-> 原文:[https://life hacker . com/we-need-re-think-how-we-fight-for privacy-1582572323](https://lifehacker.com/we-need-to-re-think-how-we-fight-for-privacy-1582572323)
+> 原文：<https://lifehacker.com/we-need-to-re-think-how-we-fight-for-privacy-1582572323>
 
 我们大多数人都认为互联网上的隐私很重要。不幸的是，我们这些提倡隐私的人并不专注。我们对现实问题、阴谋论、半真半假的真理和格言大放厥词，而不关注我们实际上如何解决问题。我们需要改变这种情况。
 

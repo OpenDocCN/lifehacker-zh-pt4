@@ -1,6 +1,6 @@
 # 使用这些附件，充分利用您的旋转工具
 
-> 原文:[https://life hacker . com/get-the-most-out-of-your-rotary-tool-with this-attach m-1625100373](https://lifehacker.com/get-the-most-out-of-your-rotary-tool-with-these-attachm-1625100373)
+> 原文：<https://lifehacker.com/get-the-most-out-of-your-rotary-tool-with-these-attachm-1625100373>
 
 我喜欢为我已经拥有的工具寻找新的用途，旋转工具——通常被称为 Dremel(实际上是一个品牌名称，而不是一种工具)——有大量的附件和潜在的应用。以下是可用附件类型和一些潜在用途的概述。
 

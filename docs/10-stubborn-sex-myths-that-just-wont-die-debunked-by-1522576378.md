@@ -1,6 +1,6 @@
 # 10 个顽固不化的性爱神话被揭穿
 
-> 原文:[https://life hacker . com/10-顽固的性神话-不会死-被 1522576378 揭穿](https://lifehacker.com/10-stubborn-sex-myths-that-just-wont-die-debunked-by-1522576378)
+> 原文：<https://lifehacker.com/10-stubborn-sex-myths-that-just-wont-die-debunked-by-1522576378>
 
 也许你听说过尺寸很重要，女人天生比男人更双性恋，或者密宗性爱意味着持久的高潮。事实是，这些事情都不完全正确。性一直存在，但我们才刚刚开始了解它。今天，我们要揭穿 10 个最常见的性误区，以正视听。
 

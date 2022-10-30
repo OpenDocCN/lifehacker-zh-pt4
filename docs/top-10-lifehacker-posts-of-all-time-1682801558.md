@@ -1,6 +1,6 @@
 # 史上十大生活黑客帖子
 
-> 原文:[https://life hacker . com/top-10-life hacker-posts-of-all-time-1682801558](https://lifehacker.com/top-10-lifehacker-posts-of-all-time-1682801558)
+> 原文：<https://lifehacker.com/top-10-lifehacker-posts-of-all-time-1682801558>
 
 Lifehacker 在十年前的今天推出了(祝我们生日快乐)！鉴于这种情况，让我们回顾一下过去十年中我们与你分享的一些最受欢迎的帖子。
 

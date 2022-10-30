@@ -1,6 +1,6 @@
 # 你应该知道的关于你的汽车即将使用的燃料
 
-> 原文:[https://jalopnik . com/what-you-should-you-put-I-1450089585](https://jalopnik.com/what-you-should-know-about-the-fuel-youll-be-putting-i-1450089585)
+> 原文：<https://jalopnik.com/what-you-should-know-about-the-fuel-youll-be-putting-i-1450089585>
 
 你知道你体内的一些液体会有季节性变化吗？比如，很多咖啡连锁店正在用南瓜浸泡他们能得到的任何东西。给你的汽车添加液体也是一样——我们现在正进入冬季混合汽油的时代。以下是它将如何影响你，以及为什么会发生这种情况。
 

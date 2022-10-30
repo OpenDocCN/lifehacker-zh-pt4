@@ -1,6 +1,6 @@
 # 操作系统 LinuX 桌面
 
-> 原文:[https://lifehacker.com/the-os-linux-desktop-1623539448](https://lifehacker.com/the-os-linux-desktop-1623539448)
+> 原文：<https://lifehacker.com/the-os-linux-desktop-1623539448>
 
 读者 [奥利弗](http://litech.kinja.com/) 想让他的 Linux Mint 桌面看起来尽可能像 Mac，这样其他人会觉得它很容易使用。鉴于我们以前的一些 Linux 特色桌面，我们知道这并不困难，但最终结果看起来仍然很棒。这是所有设置的方式。
 

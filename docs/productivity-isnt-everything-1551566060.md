@@ -1,6 +1,6 @@
 # 生产力不是一切
 
-> 原文:[https://life hacker . com/productivity-not-everything-1551566060](https://lifehacker.com/productivity-isnt-everything-1551566060)
+> 原文：<https://lifehacker.com/productivity-isnt-everything-1551566060>
 
 每天，我几乎完成了我待办清单上的所有事情。我创建了系统，外包了工作，并花时间去做，这样我的日子就能尽可能简单容易地度过。但是这种效率并不一定让我们都快乐，它只是意味着我们完成了更多的工作。这还不够。我们需要一个原因。
 

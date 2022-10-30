@@ -1,6 +1,6 @@
 # 最好的电子书阅读器是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-ebook-reader-1698079009](https://lifehacker.com/whats-the-best-ebook-reader-1698079009)
+> 原文：<https://lifehacker.com/whats-the-best-ebook-reader-1698079009>
 
 无论你是喜欢与一个装满书籍的大商店捆绑在一起的电子书阅读器，还是给你更多自由的电子书阅读器，你都有大量的选择。本周，我们想知道你认为哪种电子书阅读器或平板电脑最全面。
 

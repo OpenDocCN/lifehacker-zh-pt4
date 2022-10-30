@@ -1,6 +1,6 @@
 # 整洁的地球桌面
 
-> 原文:[https://life hacker . com/the-sharp-dressed-earth-desktop-1704735854](https://lifehacker.com/the-sharp-dressed-earth-desktop-1704735854)
+> 原文：<https://lifehacker.com/the-sharp-dressed-earth-desktop-1704735854>
 
 Flickr 的托马斯 将我最喜欢的一张壁纸与一些智能小工具和音乐播放控件结合起来，创建了一个工作空间，使用起来可能和看起来一样有趣。他是这样设计的。
 

@@ -1,6 +1,6 @@
 # 通过这张信息图，学习如何在烤架上烹饪任何食物
 
-> 原文:[https://life hacker . com/know-how-to-cook-any-on-the-grill-this-infogr-1599262922](https://lifehacker.com/know-how-to-cook-anything-on-the-grill-with-this-infogr-1599262922)
+> 原文：<https://lifehacker.com/know-how-to-cook-anything-on-the-grill-with-this-infogr-1599262922>
 
 即使是最有经验的烧烤大师也很难记住每样东西的烹饪时间。这张图表告诉你几乎所有值得烧烤的东西。
 

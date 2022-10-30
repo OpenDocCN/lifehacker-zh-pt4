@@ -1,6 +1,6 @@
 # BlackBerry Messenger、智能手机音量和假期
 
-> 原文:[https://life hacker . com/blackberry-messenger-smart phone-volume-and-vacation-d-1451048676](https://lifehacker.com/blackberry-messenger-smartphone-volume-and-vacation-d-1451048676)
+> 原文：<https://lifehacker.com/blackberry-messenger-smartphone-volume-and-vacation-d-1451048676>
 
 读者们提供了绕过 BBM 等候名单、提高浴室智能手机音量和跟踪年假天数的最佳技巧。
 

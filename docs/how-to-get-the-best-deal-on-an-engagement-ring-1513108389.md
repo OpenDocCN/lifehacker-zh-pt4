@@ -1,6 +1,6 @@
 # 如何买到最划算的订婚戒指
 
-> 原文:[https://life hacker . com/how-to-get-the-best-deal-on-a-engagement-ring-1513108389](https://lifehacker.com/how-to-get-the-best-deal-on-an-engagement-ring-1513108389)
+> 原文：<https://lifehacker.com/how-to-get-the-best-deal-on-an-engagement-ring-1513108389>
 
 据婚礼策划网站称，39%的婚礼始于感恩节和情人节之间的求婚。每个人都想买一枚完美的戒指。作为我们一生中最昂贵的购买之一，提前计划并理解这个过程是很重要的。这会让收件人和你的钱包都开心。
 

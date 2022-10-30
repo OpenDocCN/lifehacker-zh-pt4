@@ -1,6 +1,6 @@
 # 通过此流程图了解您是否可以免费升级到 Windows 10
 
-> 原文:[https://life hacker . com/find-out-if-you-get-a-free-upgrade-to-windows-10 with-t-1713466323](https://lifehacker.com/find-out-if-you-get-a-free-upgrade-to-windows-10-with-t-1713466323)
+> 原文：<https://lifehacker.com/find-out-if-you-get-a-free-upgrade-to-windows-10-with-t-1713466323>
 
 关于谁能在 7 月 29 日 免费升级到 [Windows 10，有很多困惑，但是这个流程图应该可以很简单地确定你是否能做到。](http://lifehacker.com/windows-10-will-be-released-july-29th-reserve-your-cop-1708136305#_ga=1.6584182.515970378.1434646157)
 

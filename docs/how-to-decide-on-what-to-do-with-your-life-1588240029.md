@@ -1,6 +1,6 @@
 # 如何决定你的人生
 
-> 原文:[https://life hacker . com/how-to-decision-what-do-your life-1588240029](https://lifehacker.com/how-to-decide-on-what-to-do-with-your-life-1588240029)
+> 原文：<https://lifehacker.com/how-to-decide-on-what-to-do-with-your-life-1588240029>
 
 当你年轻的时候，世界是你的，机会似乎是无限的，但在决定人生道路时会有很多压力。你怎么知道要从事什么职业，未来要做什么？
 

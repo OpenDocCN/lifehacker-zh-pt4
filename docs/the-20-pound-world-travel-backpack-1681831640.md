@@ -1,6 +1,6 @@
 # 20 磅的世界旅行背包
 
-> 原文:[https://life hacker . com/the-20 磅世界旅行背包-1681831640](https://lifehacker.com/the-20-pound-world-travel-backpack-1681831640)
+> 原文：<https://lifehacker.com/the-20-pound-world-travel-backpack-1681831640>
 
 环游世界需要重量和准备的微妙平衡。关于男子气概的艺术，旅游作家 David Danzeiser 分享了他为期一年的 23 个国家之旅。
 

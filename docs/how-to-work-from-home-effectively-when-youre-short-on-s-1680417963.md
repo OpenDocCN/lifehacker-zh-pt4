@@ -1,6 +1,6 @@
 # 当空间不足时，如何在家有效地工作
 
-> 原文:[https://life hacker . com/how-to-work-from-home-effective-when-you-short-on-s-1680417963](https://lifehacker.com/how-to-work-from-home-effectively-when-youre-short-on-s-1680417963)
+> 原文：<https://lifehacker.com/how-to-work-from-home-effectively-when-youre-short-on-s-1680417963>
 
 在家工作——每天或者只是偶尔——会很棒。然而，并不是所有人都有完美的、高效的家庭办公室。如果你没有足够的工作空间，这里有一些建议可以帮助你完成工作。
 

@@ -1,6 +1,6 @@
 # 专家们不同意的理财建议:使用信用卡奖励
 
-> 原文:[https://life hacker . com/money-advice-not-every one-consense-on-use-credit-card-1594620799](https://lifehacker.com/money-advice-not-everyone-agrees-on-using-credit-card-1594620799)
+> 原文：<https://lifehacker.com/money-advice-not-everyone-agrees-on-using-credit-card-1594620799>
 
 信用卡奖励计划已经变得非常受欢迎。我们中的许多人使用它们都很顺利。但是一些人说信用卡奖励游戏可能是危险的——毕竟，普通美国人有超过 15，000 美元的消费债务。一些专家建议完全远离纸牌。但其他人反对这一建议，而是赞成增加额外津贴。
 

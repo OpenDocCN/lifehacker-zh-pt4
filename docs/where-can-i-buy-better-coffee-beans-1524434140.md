@@ -1,6 +1,6 @@
 # 哪里可以买到比较好的咖啡豆？
 
-> 原文:[https://life hacker . com/where-can-I-buy-better-coffee-beans-1524434140](https://lifehacker.com/where-can-i-buy-better-coffee-beans-1524434140)
+> 原文：<https://lifehacker.com/where-can-i-buy-better-coffee-beans-1524434140>
 
 亲爱的 Lifehacker，
 我已经准备好投入制作更好的咖啡，我已经挑选好了所有的装备——但是我在哪里可以买到咖啡豆呢？我是在杂货店买，还是应该买些更好的？在我买一吨咖啡之前，有没有办法尝试不同的咖啡？

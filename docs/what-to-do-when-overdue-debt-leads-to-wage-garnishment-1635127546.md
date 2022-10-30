@@ -1,6 +1,6 @@
 # 逾期债务导致工资扣发时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-what-what-what-what-do-when-outside-debt-leads-to-payment-扣发工资-1635127546](https://lifehacker.com/what-to-do-when-overdue-debt-leads-to-wage-garnishment-1635127546)
+> 原文：<https://lifehacker.com/what-to-do-when-overdue-debt-leads-to-wage-garnishment-1635127546>
 
 当我还是个小孩的时候，我经常听成年人使用金融术语，感到非常恐慌。我怎么会明白这些东西的意思呢？“我会想。我清楚地记得读过美国体操运动员 [多米尼克·莫克亚努](http://www.biography.com/people/dominique-moceanu-21210207) 的传记，以及她的家人如何用他们的房子做第二次抵押来支付她的运动训练。当时我甚至不明白什么是抵押贷款——但是第二次抵押贷款？听起来很严重。
 

@@ -1,6 +1,6 @@
 # 平静而从容的工作空间
 
-> 原文:[https://life hacker . com/the-calm-and-collected-workspace-1657432639](https://lifehacker.com/the-calm-and-collected-workspace-1657432639)
+> 原文：<https://lifehacker.com/the-calm-and-collected-workspace-1657432639>
 
 这是一个有个性的传统工作空间。从精美的木质桌面到海星拉手，正是这些小细节让这间办公室看起来浑然一体。
 

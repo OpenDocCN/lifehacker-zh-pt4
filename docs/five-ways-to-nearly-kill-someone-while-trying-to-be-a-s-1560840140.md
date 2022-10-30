@@ -1,6 +1,6 @@
 # 试图成为安全驾驶员时差点撞死人的五种方法
 
-> 原文:[https://jalopnik . com/five-ways-to-near-kill-someone-while-that-be-a-s-1560840140](https://jalopnik.com/five-ways-to-nearly-kill-someone-while-trying-to-be-a-s-1560840140)
+> 原文：<https://jalopnik.com/five-ways-to-nearly-kill-someone-while-trying-to-be-a-s-1560840140>
 
 作为一名驾车者，你是一个好人。你是解决方案的一部分；你做了正确的事。唉，你有半个葡萄柚般的情境意识，所以你在可能导致某人死亡的时刻采取行动。以下是避免这种情况发生的方法。
 

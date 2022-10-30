@@ -1,6 +1,6 @@
 # 建造新游戏电脑的 10 件最糟糕的事情
 
-> 原文:[https://kotaku . com/the-10-worst-things-about-building-a-new-gaming-PC-1606794540](https://kotaku.com/the-10-worst-things-about-building-a-new-gaming-pc-1606794540)
+> 原文：<https://kotaku.com/the-10-worst-things-about-building-a-new-gaming-pc-1606794540>
 
 构建一台游戏 PC 既困难又有压力。有一千件事情可能出错，其中任何一件都可能导致数百美元的损失。然而我们还是做了。为什么？只有上帝知道。
 

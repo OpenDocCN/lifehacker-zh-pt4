@@ -1,6 +1,6 @@
 # 如何冥想(并从中获得最大收益)
 
-> 原文:[https://gizmodo . com/how-to-mouth-and-get-the-most-benefit-1688990555](https://gizmodo.com/how-to-meditate-and-get-the-most-benefit-out-of-it-1688990555)
+> 原文：<https://gizmodo.com/how-to-meditate-and-get-the-most-benefit-out-of-it-1688990555>
 
 神经科学家和心理学家不断发现正念冥想对健康有更多益处。幸运的是，这是一个简单的练习，几乎每个人都可以做。但是你如何开始，如何从实践中获得最大的回报？这是我们快速简单的冥想指南。
 

@@ -1,6 +1,6 @@
 # 在亚马逊购物的十大诀窍
 
-> 原文:[https://life hacker . com/top-10-tricks-for-shopping-at-Amazon-1639616751](https://lifehacker.com/top-10-tricks-for-shopping-at-amazon-1639616751)
+> 原文：<https://lifehacker.com/top-10-tricks-for-shopping-at-amazon-1639616751>
 
 我们喜欢亚马逊的便利性、多样性和价格。我们*也*喜欢在大型网上商店购物时帮助我们省钱并获得更多利益的技巧和提示。以下是我们最喜欢的十个亚马逊技巧。
 

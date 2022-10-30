@@ -1,6 +1,6 @@
 # 你实际上可以花比特币的地方
 
-> 原文:[https://life hacker . com/places-you-can-actual-spend-bit coin-1595062323](https://lifehacker.com/places-you-can-actually-spend-bitcoin-1595062323)
+> 原文：<https://lifehacker.com/places-you-can-actually-spend-bitcoin-1595062323>
 
 坐拥一些比特币？如果你想知道你实际上可以在哪里花这个流行的数字货币，这里有一些企业可以像你的信用卡一样轻松地接受它。
 

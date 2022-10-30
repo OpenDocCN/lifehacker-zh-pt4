@@ -1,6 +1,6 @@
 # Pebble Steel 评论:最好的智能手表，现在也很漂亮
 
-> 原文:[https://gizmodo . com/pebble-steel-review-the-best-smart watch-now-also-beau-1522229183](https://gizmodo.com/pebble-steel-review-the-best-smartwatch-now-also-beau-1522229183)
+> 原文：<https://gizmodo.com/pebble-steel-review-the-best-smartwatch-now-also-beau-1522229183>
 
 智能手表太牛了！智能手表很多时候看起来有点傻！尽管他们不需要这么做，卵石钢就是证明。改进的外观还不足以使它成为完美的智能手表，但它还有很长的路要走。
 

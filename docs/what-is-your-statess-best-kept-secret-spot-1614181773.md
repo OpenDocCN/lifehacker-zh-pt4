@@ -1,6 +1,6 @@
 # 你所在的州最隐秘的地方是哪里？
 
-> 原文:[https://life hacker . com/what-is-your-States s-best-keep-secret-spot-1614181773](https://lifehacker.com/what-is-your-statess-best-kept-secret-spot-1614181773)
+> 原文：<https://lifehacker.com/what-is-your-statess-best-kept-secret-spot-1614181773>
 
 像苹果和谷歌这样的全球品牌很容易了解，因为我们都知道它们。当地的商店和餐馆更难，因为它们可能不被发现。你所在的地区有哪些让你生活更美好的地方？
 

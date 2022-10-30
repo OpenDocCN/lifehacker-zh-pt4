@@ -1,6 +1,6 @@
 # 新手如何提高技能和避免受伤
 
-> 原文:[https://life hacker . com/how-beginning-runners-can-improve-skills-and-avoid-inju-1512296932](https://lifehacker.com/how-beginning-runners-can-improve-skills-and-avoid-inju-1512296932)
+> 原文：<https://lifehacker.com/how-beginning-runners-can-improve-skills-and-avoid-inju-1512296932>
 
 好的跑步者是*造就的*，而不是天生的。毕竟，当天赋没有努力时，努力战胜了天赋。如果你想成为一名更好的跑步者，如果你采取正确的步骤，机会就在那里。
 

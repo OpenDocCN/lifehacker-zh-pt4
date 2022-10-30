@@ -1,6 +1,6 @@
 # 让亚马逊更棒的最佳扩展
 
-> 原文:[https://life hacker . com/the-best-extensions-to-make-Amazon-more-awesome-1579539841](https://lifehacker.com/the-best-extensions-to-make-amazon-more-awesome-1579539841)
+> 原文：<https://lifehacker.com/the-best-extensions-to-make-amazon-more-awesome-1579539841>
 
 亚马逊是无可争议的在线零售之王，但这并不意味着它是完美的。该网站有一个非常实用的界面，有时会显得笨拙。幸运的是，浏览器扩展可以增加功能，让一些任务变得更简单，让在世界上最大的网上商店购物变得更棒。
 

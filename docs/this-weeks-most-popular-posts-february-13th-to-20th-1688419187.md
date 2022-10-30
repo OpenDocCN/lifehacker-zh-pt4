@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:2 月 20 日至 27 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-2 月 13 日至 20 日-1688419187](https://lifehacker.com/this-weeks-most-popular-posts-february-13th-to-20th-1688419187)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-february-13th-to-20th-1688419187>
 
 本周我们 [用一种新的生产力方法](https://lifehacker.com/productivity-101-how-to-use-personal-kanban-to-visuali-1687948640) ， [为能够下载 Windows ISOs](http://lifehacker.com/microsoft-now-lets-you-download-windows-7-isos-with-a-v-1688039211) ， [发现了最好的家居改进](http://lifehacker.com/the-10-home-improvement-projects-with-the-highest-retur-1687978686) ， [学习了一些基本设计](http://lifehacker.com/how-to-use-basic-design-principles-to-decorate-your-hom-1687607782) 。这里回顾一下。
 

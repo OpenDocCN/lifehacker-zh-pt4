@@ -1,6 +1,6 @@
 # 像学生一样思考，在会议中做更好的笔记
 
-> 原文:[https://life hacker . com/take-better-notes-in-meeting-by-thinking-like-a-ST-1704449069](https://lifehacker.com/take-better-notes-during-meetings-by-thinking-like-a-st-1704449069)
+> 原文：<https://lifehacker.com/take-better-notes-during-meetings-by-thinking-like-a-st-1704449069>
 
 仅仅因为你在开会的时候把所有事情都写下来并不意味着你订婚了。如果你不把心思放在你写的东西上，心不在焉的笔记是没有用的；相反，你应该像学生一样对待它。
 

@@ -1,6 +1,6 @@
 # 最好的灯泡是什么？
 
-> 原文:[https://lifehacker.com/whats-the-best-light-bulb-1715262175](https://lifehacker.com/whats-the-best-light-bulb-1715262175)
+> 原文：<https://lifehacker.com/whats-the-best-light-bulb-1715262175>
 
 不是所有的灯泡都一样。一些具有智能家居功能，另一些是能量吸收器。有的可以用 Wi-Fi 控制，有的会变色。本周，我们想知道哪些是你认为最好的，或者在你的智能家居愿望清单上。
 

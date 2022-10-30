@@ -1,6 +1,6 @@
 # 汽车黑客的未来
 
-> 原文:[https://lifehacker.com/the-future-of-car-hacking-1485302164](https://lifehacker.com/the-future-of-car-hacking-1485302164)
+> 原文：<https://lifehacker.com/the-future-of-car-hacking-1485302164>
 
 汽车的未来很重要，3D 打印已经开始在家庭中扎根，大量的蓝牙设备允许我们与移动设备建立更好的连接，新的油漆涂层减少了清洁工作。让我们来看看在不久的将来，你将如何让你的车做更多的事情。
 

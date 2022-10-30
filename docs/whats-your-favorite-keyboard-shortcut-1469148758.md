@@ -1,6 +1,6 @@
 # 你最喜欢的键盘快捷键是什么？
 
-> 原文:[https://life hacker . com/whats-your-favorite-keyboard-shortcut-1469148758](https://lifehacker.com/whats-your-favorite-keyboard-shortcut-1469148758)
+> 原文：<https://lifehacker.com/whats-your-favorite-keyboard-shortcut-1469148758>
 
 你可能已经注意到了，我们在 Lifehacker 这里喜欢一些键盘快捷键，这些年来我们已经分享了很多。但是现在我们有点好奇你最喜欢的快捷方式。
 

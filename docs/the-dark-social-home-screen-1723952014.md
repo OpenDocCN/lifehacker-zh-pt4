@@ -1,6 +1,6 @@
 # 黑暗的社交主屏幕
 
-> 原文:[https://life hacker . com/the-dark-social-home-screen-1723952014](https://lifehacker.com/the-dark-social-home-screen-1723952014)
+> 原文：<https://lifehacker.com/the-dark-social-home-screen-1723952014>
 
 当谈到单页主屏幕时，你希望它看起来不错，并能一次给你所有你可能需要的信息。这个主屏幕在巧妙的设计中做到了这两点。
 

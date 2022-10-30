@@ -1,6 +1,6 @@
 # 如何让你的夏季无帮鞋没有臭味
 
-> 原文:[https://life hacker . com/how-to-keep-your-socks-summer-shoes-less-free-1715974420](https://lifehacker.com/how-to-keep-your-sockless-summer-shoes-stink-free-1715974420)
+> 原文：<https://lifehacker.com/how-to-keep-your-sockless-summer-shoes-stink-free-1715974420>
 
 有些鞋子最好不穿袜子，尤其是在夏天。不管你是喜欢穿平底鞋、船鞋、凉鞋还是休闲鞋，这里有一些小贴士可以帮你在光脚走路的时候防止鞋子散发出难闻的气味。
 

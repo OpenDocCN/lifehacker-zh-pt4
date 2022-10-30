@@ -1,6 +1,6 @@
 # 如何自己解决大多数电脑故障
 
-> 原文:[https://gizmodo . com/how-to-fix-most-any-computer-glitch-by-yourself-1702223195](https://gizmodo.com/how-to-fix-most-any-computer-glitch-by-yourself-1702223195)
+> 原文：<https://gizmodo.com/how-to-fix-most-any-computer-glitch-by-yourself-1702223195>
 
 知道 HDMI 和 USB 之间的区别使我有资格成为当地的技术“专家”，所以人们经常邀请我去修理他们的电脑问题。不过，我要告诉你一个小秘密:大多数时候，我并没有做什么令人印象深刻或神奇的事情。排除基本的计算机故障实际上非常简单。
 

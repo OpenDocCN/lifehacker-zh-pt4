@@ -1,6 +1,6 @@
 # Nexus 5 与其最激烈的智能手机竞争相比如何
 
-> 原文:[https://gizmodo . com/how-the-nexus-5-compare-to-its-tough-smart phone-com-1456332159](https://gizmodo.com/how-the-nexus-5-compares-to-its-toughest-smartphone-com-1456332159)
+> 原文：<https://gizmodo.com/how-the-nexus-5-compares-to-its-toughest-smartphone-com-1456332159>
 
 终于， [期待已久的](https://gizmodo.com/nexus-5-leaks-again-for-pre-registration-with-a-full-1453800644) Nexus 5 以 [5 英寸纯净、未经过滤的 Android 的形式到来了，这正是谷歌一直想要的](http://gizmodo.com/nexus-5-a-pure-google-dream-phone-thats-ridiculously-1445522531) 。这些听起来都不错，但作为谷歌对 iPhone 5S 和 Lumia 1020 等其他大狗的旗舰回应，更新后的 Nexus 有能力跟上竞争吗(至少一篇论文)？我们整理了下面的对比图表来找出答案。
 

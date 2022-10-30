@@ -1,6 +1,6 @@
 # PhoneRocket 比较了智能手机的规格、功能和基准
 
-> 原文:[https://life hacker . com/phone rocket-comparates-smarts-specs-features-and-511569422](https://lifehacker.com/phonerocket-compares-smartphones-specs-features-and-511569422)
+> 原文：<https://lifehacker.com/phonerocket-compares-smartphones-specs-features-and-511569422>
 
 从现在众多的手机中选择一款适合自己的智能手机绝非易事。哪款续航最好？照片质量最好的？最快的处理器？PhoneRocket 有答案。
 

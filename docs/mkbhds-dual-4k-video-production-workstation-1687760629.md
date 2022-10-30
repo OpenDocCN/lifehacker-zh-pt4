@@ -1,6 +1,6 @@
 # MKBHD 的双 4K 视频制作工作站
 
-> 原文:[https://life hacker . com/mkbhds-dual-4k-video-production-workstation-1687760629](https://lifehacker.com/mkbhds-dual-4k-video-production-workstation-1687760629)
+> 原文：<https://lifehacker.com/mkbhds-dual-4k-video-production-workstation-1687760629>
 
 今天的特色工作空间属于马克斯·布朗利，因为他在 YouTube 上著名的技术视频而被称为。正如你所料，这个战斗站配备了华丽的装备，同时也是对设计平衡和对称的研究。
 

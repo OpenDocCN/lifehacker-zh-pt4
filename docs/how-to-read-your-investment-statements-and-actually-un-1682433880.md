@@ -1,6 +1,6 @@
 # 如何真正读懂你的退休账户报表
 
-> 原文:[https://life hacker . com/how-to-read-your-investment-statement-and-actually-un-1682433880](https://lifehacker.com/how-to-read-your-investment-statements-and-actually-un-1682433880)
+> 原文：<https://lifehacker.com/how-to-read-your-investment-statements-and-actually-un-1682433880>
 
 你可能把钱投资在 401(k)或个人退休账户上，但也许你不知道如何阅读你的投资报表。投资组合中有许多令人困惑的数字和术语。这里有一个方便的指南来帮助你解码。
 

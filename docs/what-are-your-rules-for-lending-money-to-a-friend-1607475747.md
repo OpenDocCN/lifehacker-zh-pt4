@@ -1,6 +1,6 @@
 # 你借钱给朋友的规则是什么？
 
-> 原文:[https://life hacker . com/what ' s-your ' s rules to lending-a-friend-1607475747](https://lifehacker.com/what-are-your-rules-for-lending-money-to-a-friend-1607475747)
+> 原文：<https://lifehacker.com/what-are-your-rules-for-lending-money-to-a-friend-1607475747>
 
 有人说你不应该借钱给朋友或家人。但在绝望的时候，很难说不。如果你曾经借钱给你亲近的人，我们想知道，你的规则是什么？
 

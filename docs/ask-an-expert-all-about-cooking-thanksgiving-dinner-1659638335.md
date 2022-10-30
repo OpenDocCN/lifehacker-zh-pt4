@@ -1,6 +1,6 @@
 # 问专家:关于做感恩节晚餐
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-cooking-感恩节晚餐-1659638335](https://lifehacker.com/ask-an-expert-all-about-cooking-thanksgiving-dinner-1659638335)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-cooking-thanksgiving-dinner-1659638335>
 
 随着感恩节的临近，是时候把你的鸭子排好队，也许把它们塞进火鸡里了。有各种各样的菜肴需要一些计划和准备，这里有来自 [Food52](http://food52.com/) 的克里斯汀·米格罗来帮忙。
 

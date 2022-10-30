@@ -1,6 +1,6 @@
 # 如何在亚马逊购物时获得降价和省钱
 
-> 原文:[https://life hacker . com/how-to-get-discount-and-save money-when-shopping-5910524](https://lifehacker.com/how-to-get-reduced-prices-and-save-money-when-shopping-5910524)
+> 原文：<https://lifehacker.com/how-to-get-reduced-prices-and-save-money-when-shopping-5910524>
 
 我们喜欢划算的交易和亚马逊的便利，但并不是每笔交易都会奇迹般地浮出水面。网上零售商提供了几种你可能不知道的省钱方法，通过一些策略，你可以省更多的钱。
 

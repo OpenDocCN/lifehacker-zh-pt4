@@ -1,6 +1,6 @@
 # 现在如何为你未来的购房做准备
 
-> 原文:[https://life hacker . com/how-to-prepare-for-your future-home-buy-now-1562420833](https://lifehacker.com/how-to-prepare-for-your-future-home-purchase-now-1562420833)
+> 原文：<https://lifehacker.com/how-to-prepare-for-your-future-home-purchase-now-1562420833>
 
 近期打算买房？你越早理清你的财务状况，就越容易获得抵押贷款。以下是你如何为将来的购房准备你的信用和财务。
 

@@ -1,6 +1,6 @@
 # 如何知道什么时候该下班回家
 
-> 原文:[https://life hacker . com/how-to-know-when-it-time-to-leave-work and-home-1658015570](https://lifehacker.com/how-to-know-when-its-time-to-leave-work-and-go-home-1658015570)
+> 原文：<https://lifehacker.com/how-to-know-when-its-time-to-leave-work-and-go-home-1658015570>
 
 你怎么知道今天已经结束了？每个人都想在合理的时间离开办公室，但你也不想在注销和停止阅读电子邮件时感觉自己像个懒鬼。这里有一些“终点线”可以帮助你知道什么时候可以停止工作，继续你的一天。
 

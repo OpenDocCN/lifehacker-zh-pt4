@@ -1,6 +1,6 @@
 # 这是你吃糖的大脑
 
-> 原文:[https://life hacker . com/this-is-your ' s brain-on-sugar-1501074572](https://lifehacker.com/this-is-your-brain-on-sugar-1501074572)
+> 原文：<https://lifehacker.com/this-is-your-brain-on-sugar-1501074572>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-lEXBxijQREo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-lEXBxijQREo&start=0) 
 

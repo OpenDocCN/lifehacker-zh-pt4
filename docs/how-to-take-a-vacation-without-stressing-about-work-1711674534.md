@@ -1,6 +1,6 @@
 # 如何在没有工作压力的情况下度假
 
-> 原文:[https://life hacker . com/how-to-take a vacation-no-strengthed-on-work-1711674534](https://lifehacker.com/how-to-take-a-vacation-without-stressing-about-work-1711674534)
+> 原文：<https://lifehacker.com/how-to-take-a-vacation-without-stressing-about-work-1711674534>
 
 仅仅是计划一次假期的想法就会让人感到压力。除了预订旅行，你需要做的所有准备工作都会让你感到不知所措。但是，如果你只是战略性地思考你需要做什么，你可以放弃压力，最终从工作中得到休息。
 

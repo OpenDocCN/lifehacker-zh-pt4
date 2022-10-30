@@ -1,6 +1,6 @@
 # 鼓舞人心的工作空间
 
-> 原文:[https://life hacker . com/the-inspirational-workspace-1609671537](https://lifehacker.com/the-inspirational-workspace-1609671537)
+> 原文：<https://lifehacker.com/the-inspirational-workspace-1609671537>
 
 挂上一些激励性的海报，你不仅装饰了你的办公室，你还鼓励自己每次在那个地方都更有效率。手工刻字艺术家 Sean McCabe 的工作室见证了文字和设计的力量。
 

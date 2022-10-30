@@ -1,6 +1,6 @@
 # 洗车的十大误区
 
-> 原文:[https://jalopnik . com/ten-myths-about-washing-your car-1712230385](https://jalopnik.com/ten-myths-about-washing-your-car-1712230385)
+> 原文：<https://jalopnik.com/ten-myths-about-washing-your-car-1712230385>
 
 如果这一条或以下十条中的任何一条是你心目中完美的洗车方式，那你就错了。
 

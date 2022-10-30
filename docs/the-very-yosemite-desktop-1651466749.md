@@ -1,6 +1,6 @@
 # 优胜美地桌面
 
-> 原文:[https://lifehacker.com/the-very-yosemite-desktop-1651466749](https://lifehacker.com/the-very-yosemite-desktop-1651466749)
+> 原文：<https://lifehacker.com/the-very-yosemite-desktop-1651466749>
 
 读者 [joshnroy](https://www.flickr.com/photos/124027196@N04/) 刚刚升级到约塞米蒂，做了一点小小的调整，提交了这个运行在 OS X 约塞米蒂上的约塞米蒂国家公园宁静的桌面。这是他用来设置的。
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:10 月 17 日至 24 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-10 月 17 日至 24 日-1650384082](https://lifehacker.com/this-weeks-most-popular-posts-october-17th-to-24th-1650384082)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-october-17th-to-24th-1650384082>
 
 本周我们 [揭开了 OS X 优山美地](https://lifehacker.com/top-10-hidden-features-of-os-x-yosemite-1646774857)[拗我们的邪肌](http://lifehacker.com/how-to-tap-your-network-and-see-everything-that-happens-1649292940)[发现了一些奇怪的规律](http://lifehacker.com/what-are-some-things-that-are-legal-but-people-think-a-1648959467)[学习了摄影基础知识](http://lifehacker.com/learn-the-basics-of-photography-with-this-interactive-c-1647605577) 。这里回顾一下。
 

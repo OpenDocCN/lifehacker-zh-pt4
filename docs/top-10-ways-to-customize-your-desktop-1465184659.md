@@ -1,6 +1,6 @@
 # 定制桌面的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-customize-your-desktop-1465184659](https://lifehacker.com/top-10-ways-to-customize-your-desktop-1465184659)
+> 原文：<https://lifehacker.com/top-10-ways-to-customize-your-desktop-1465184659>
 
 你醒着的时候在电脑前花了很多时间，为什么不把它变得更漂亮一点(更有效率)？这里有 10 种方法来定制你的桌面，不管你用的是什么操作系统。
 

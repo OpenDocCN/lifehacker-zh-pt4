@@ -1,6 +1,6 @@
 # 如果价格下降，所有商店都会给你退款
 
-> 原文:[https://life hacker . com/all-the-stores-that-will-you-if-a-price-d-1661273299](https://lifehacker.com/all-the-stores-that-will-give-you-a-refund-if-a-price-d-1661273299)
+> 原文：<https://lifehacker.com/all-the-stores-that-will-give-you-a-refund-if-a-price-d-1661273299>
 
 你曾经买过东西，然后在零售商的下一页传单上发现该商品正在打折吗？如果你像我一样是一个 [讨价还价的购物者](https://lifehacker.com/know-which-retailers-accept-coupons-from-competitors-1571845239) ，你知道这可能会让人抓狂。但幸运的是，许多主要零售商会很乐意在规定的时间内为你提供 [价格调整](http://lifehacker.com/know-these-major-retailers-online-price-match-policies-1501472181) 。
 

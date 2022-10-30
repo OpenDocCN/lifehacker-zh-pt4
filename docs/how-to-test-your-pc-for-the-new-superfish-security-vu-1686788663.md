@@ -1,6 +1,6 @@
 # 如何测试你的电脑是否存在新的“超级鱼”安全漏洞
 
-> 原文:[https://life hacker . com/how-to-test-your-PC-for-the-new-super fish-security-vu-1686788663](https://lifehacker.com/how-to-test-your-pc-for-the-new-superfish-security-vu-1686788663)
+> 原文：<https://lifehacker.com/how-to-test-your-pc-for-the-new-superfish-security-vu-1686788663>
 
 安全研究人员在一款名为超级鱼 的 [广告软件中发现了一个漏洞，使得你的电脑容易受到各种攻击。Superfish 预装在许多联想电脑上，但也可以安装在*的任何*机器上。这是怎么回事，以及如何测试你是否被感染。](https://gizmodo.com/lenovo-installs-adware-on-new-computers-that-could-stea-1686721226)
 

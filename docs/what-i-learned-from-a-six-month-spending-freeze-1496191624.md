@@ -1,6 +1,6 @@
 # 我从六个月的开支冻结中学到了什么
 
-> 原文:[https://life hacker . com/what-I-learn-from-a-six-month-spending-freeze-1496191624](https://lifehacker.com/what-i-learned-from-a-six-month-spending-freeze-1496191624)
+> 原文：<https://lifehacker.com/what-i-learned-from-a-six-month-spending-freeze-1496191624>
 
 如果我说我是一个购物狂，你可能会想象出这样一幅画面:一个人在购物中心里，每只胳膊上拎着一打袋子，心烦意乱地走向下一家商店。事实上，我更像是一个痴迷于网上购物的人。
 

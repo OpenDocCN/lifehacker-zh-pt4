@@ -1,6 +1,6 @@
 # 如何为干净整洁的野餐打包食物
 
-> 原文:[https://life hacker . com/how-to-pack your food for a mess-free-picnic-1713767407](https://lifehacker.com/how-to-pack-your-food-for-a-mess-free-picnic-1713767407)
+> 原文：<https://lifehacker.com/how-to-pack-your-food-for-a-mess-free-picnic-1713767407>
 
 夏天来了，这意味着有很多压力要走出家门，通过海滩日、烧烤和野餐真正享受“所有这些好天气”，但在外面吃饭可能有点麻烦。三明治会变得潮湿，塑料餐具很薄，吃膝盖上的盘子会很尴尬。有了正确的食谱和一点点准备工作，你就可以无忧无虑地实现你的 Pinterest-fuel 梦想。
 

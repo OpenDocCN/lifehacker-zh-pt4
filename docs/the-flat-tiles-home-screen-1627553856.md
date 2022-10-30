@@ -1,6 +1,6 @@
 # 平铺主屏幕
 
-> 原文:[https://life hacker . com/the-flat-tiles-home-screen-1627553856](https://lifehacker.com/the-flat-tiles-home-screen-1627553856)
+> 原文：<https://lifehacker.com/the-flat-tiles-home-screen-1627553856>
 
 单一屏幕的主屏幕可以很好地让你找到你需要的东西，而不需要太多的点击。我的彩屏用户 [Pitoko/David](http://mycolorscreen.com/pitoko/) 的这个设计很有天赋，使用了一些引人注目的瓷砖。
 

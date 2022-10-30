@@ -1,6 +1,6 @@
 # 大学费用:超出标价估算
 
-> 原文:[https://life hacker . com/the-cost-of-college-sizing-it-beyond-the-sticker-pr-1545620623](https://lifehacker.com/the-cost-of-college-sizing-it-up-beyond-the-sticker-pr-1545620623)
+> 原文：<https://lifehacker.com/the-cost-of-college-sizing-it-up-beyond-the-sticker-pr-1545620623>
 
 如果大学学费让你不寒而栗，那就加入这个俱乐部吧。最贵的学校仅学费就要 4 万多美元——这还不包括住宿费、伙食费和书本费——高等教育的财务规划就像是一场全天候的焦虑噩梦。好消息和坏消息是，评估一所学校是否负担得起远远不止看标价。摆脱你的恐惧，深呼吸，仔细阅读如何找出一所学校的真实价格。
 

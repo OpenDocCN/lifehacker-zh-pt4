@@ -1,6 +1,6 @@
 # 长度罗恩·哈伯德的最佳职业经验
 
-> 原文:[https://life hacker . com/l-Ron-hubbards-best-career-lessons-1695860543](https://lifehacker.com/l-ron-hubbards-best-career-lessons-1695860543)
+> 原文：<https://lifehacker.com/l-ron-hubbards-best-career-lessons-1695860543>
 
 关于有争议的 L·罗恩·哈伯德，山达基的创始人和多产作家，你可以说很多，但不可否认的是，他在这个世界上取得了很多成就。以下是你可以从哈伯德的生活中学到的东西，无需任何审核。
 

@@ -1,6 +1,6 @@
 # 玻璃环绕主屏幕
 
-> 原文:[https://life hacker . com/the-glass-circles-home-screen-1655604066](https://lifehacker.com/the-glass-circles-home-screen-1655604066)
+> 原文：<https://lifehacker.com/the-glass-circles-home-screen-1655604066>
 
 为了简单起见，我的彩色屏幕用户 [阿维纳什·巴鲁阿](http://mycolorscreen.com/rookie001/) 创造了这个设计，它的特点是类似仪表盘时钟的小部件，点缀着大而醒目的圆圈，以表示重要信息或开始常见任务。
 

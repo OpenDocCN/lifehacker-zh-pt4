@@ -1,6 +1,6 @@
 # 增强邮箱功能的最佳附件
 
-> 原文:[https://life hacker . com/the-best-add-ons-to-super charge-postbox-1567358421](https://lifehacker.com/the-best-add-ons-to-supercharge-postbox-1567358421)
+> 原文：<https://lifehacker.com/the-best-add-ons-to-supercharge-postbox-1567358421>
 
 邮箱是我们最喜欢的电子邮件客户端之一，因为它建立在雷鸟奠定的基础上，它还支持大量优秀的附加组件和扩展，可以使它变得更好。让我们来看看一些最好的，以及它们如何使您的电子邮件更容易管理，并帮助您更有效率。
 

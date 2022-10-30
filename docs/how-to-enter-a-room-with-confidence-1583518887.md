@@ -1,6 +1,6 @@
 # 如何自信地进入房间
 
-> 原文:[https://life hacker . com/how-to-entry-a room-1583518887](https://lifehacker.com/how-to-enter-a-room-with-confidence-1583518887)
+> 原文：<https://lifehacker.com/how-to-enter-a-room-with-confidence-1583518887>
 
 当你走进一个房间，所有的眼睛都盯着你。无论是工作面试、演讲，还是工作之外的事情，人们都会关注你如何展示自己。以下是如何确保你从一开始就拥有这个房间。
 

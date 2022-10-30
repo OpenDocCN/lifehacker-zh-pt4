@@ -1,6 +1,6 @@
 # USB 有一个你无法察觉的基本安全缺陷
 
-> 原文:[https://gizmodo . com/USB-has-a-fundamental-security-flaw-that-you-cant-detec-1613833339](https://gizmodo.com/usb-has-a-fundamental-security-flaw-that-you-cant-detec-1613833339)
+> 原文：<https://gizmodo.com/usb-has-a-fundamental-security-flaw-that-you-cant-detec-1613833339>
 
 我们都依赖 USB 来互连我们的数字生活，但《连线》 首先报道的新研究 [揭示，在不起眼的通用串行总线的工作方式中存在一个根本的安全缺陷，它可以被用来对任何计算机进行破坏。](http://www.wired.com/2014/07/usb-security/)
 

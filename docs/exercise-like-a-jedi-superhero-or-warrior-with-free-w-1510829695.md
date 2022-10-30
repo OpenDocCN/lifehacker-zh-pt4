@@ -1,6 +1,6 @@
 # 像绝地武士、超级英雄或战士一样使用免费的锻炼海报进行锻炼
 
-> 原文:[https://life hacker . com/exercise-like-a-Jedi-super-or-warrior-with-free-w-1510829695](https://lifehacker.com/exercise-like-a-jedi-superhero-or-warrior-with-free-w-1510829695)
+> 原文：<https://lifehacker.com/exercise-like-a-jedi-superhero-or-warrior-with-free-w-1510829695>
 
 对你的日常锻炼有点厌倦了吗？这里有近 100 张锻炼海报，可以激励你像洛奇一样训练，像雷神一样锻炼，或者干脆改变你的锻炼方式。
 

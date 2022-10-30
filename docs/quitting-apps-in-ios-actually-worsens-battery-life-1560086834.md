@@ -1,6 +1,6 @@
 # 退出 iOS 中的所有应用程序实际上会延长电池寿命
 
-> 原文:[https://life hacker . com/quiting-apps-in-IOs-actually-worsed-battery-life-1560086834](https://lifehacker.com/quitting-apps-in-ios-actually-worsens-battery-life-1560086834)
+> 原文：<https://lifehacker.com/quitting-apps-in-ios-actually-worsens-battery-life-1560086834>
 
 长期以来，人们一直规定，当你的苹果手机电池电量不足时，你应该关闭所有正在运行的应用程序以延长电池寿命(我们在 之前已经提到过了)。如果你在使用电脑，这是有道理的，但正如作家(也是前天才酒吧技术人员)斯科特·洛夫莱斯所指出的，在 iOS 中情况并非如此。
 

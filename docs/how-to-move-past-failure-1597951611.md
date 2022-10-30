@@ -1,6 +1,6 @@
 # 如何走出失败
 
-> 原文:[https://lifehacker.com/how-to-move-past-failure-1597951611](https://lifehacker.com/how-to-move-past-failure-1597951611)
+> 原文：<https://lifehacker.com/how-to-move-past-failure-1597951611>
 
 失败是走向成功最重要的一步，但它仍然会让你感觉像是在摧毁你的灵魂。要让失败成为你的朋友而不是敌人，你必须战胜它。这里有一些艰难的休息后继续前进的策略。
 

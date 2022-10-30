@@ -1,6 +1,6 @@
 # 如何挑选一个不烂的手袋
 
-> 原文:[https://life hacker . com/how-to-pick-a-not-suck-1558157018](https://lifehacker.com/how-to-pick-a-handbag-that-doesnt-suck-1558157018)
+> 原文：<https://lifehacker.com/how-to-pick-a-handbag-that-doesnt-suck-1558157018>
 
 手袋很赞。它们不仅携带我们的必需品，还能整合我们的外观，轻松升级我们的衣柜。可惜很难找到不烂的。
 

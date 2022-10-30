@@ -1,6 +1,6 @@
 # 统一的恐怖理论帮助你避免成为那个粗略的家伙
 
-> 原文:[https://life hacker . com/the-unified-creepiness-theory-helps-you-avoid-be tha-1554004050](https://lifehacker.com/the-unified-creepiness-theory-helps-you-avoid-being-tha-1554004050)
+> 原文：<https://lifehacker.com/the-unified-creepiness-theory-helps-you-avoid-being-tha-1554004050>
 
 对异性有点尴尬和令人毛骨悚然之间只有一线之隔。正如 Reddit 用户 saigonsquare 解释的那样，这条线可以用下面的公式来表达:Creepiness =(笨拙 x 向前/吸引力)^持久性。
 

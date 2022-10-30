@@ -1,6 +1,6 @@
 # 蒸汽石板桌面
 
-> 原文:[https://lifehacker.com/the-steam-slate-desktop-1640341482](https://lifehacker.com/the-steam-slate-desktop-1640341482)
+> 原文：<https://lifehacker.com/the-steam-slate-desktop-1640341482>
 
 在 [我们的脸书页面](http://facebook.com/lifehacker) 上，熊猫阮(Panda Nguyen)在我们关于上周特色桌面的帖子的评论中分享了他的桌面——嗯，我们太喜欢它了，我们也必须特色它。它可能看起来像是内置的，但它不是——它只是非常适合。他是这样设计的。
 

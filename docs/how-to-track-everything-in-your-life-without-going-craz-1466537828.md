@@ -1,6 +1,6 @@
 # 如何在不发疯的情况下追踪生活中的一切
 
-> 原文:[https://life hacker . com/how-to-track-everything in your life-without-going-craz-1466537828](https://lifehacker.com/how-to-track-everything-in-your-life-without-going-craz-1466537828)
+> 原文：<https://lifehacker.com/how-to-track-everything-in-your-life-without-going-craz-1466537828>
 
 如今，只要有合适的设备，你就可以追踪任何事情:你如何移动、睡觉、开车，甚至你如何进食，这给了我们量化的机会...任何事。但是我们到底需要多少数据，在什么点上这些信息弊大于利？我决定追踪我生活中的一切，以下是我的发现。
 

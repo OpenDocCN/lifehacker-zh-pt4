@@ -1,6 +1,6 @@
 # 地狱桌面
 
-> 原文:[https://lifehacker.com/the-limbo-desktop-1679021690](https://lifehacker.com/the-limbo-desktop-1679021690)
+> 原文：<https://lifehacker.com/the-limbo-desktop-1679021690>
 
 读者
 

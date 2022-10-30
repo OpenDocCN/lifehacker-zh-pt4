@@ -1,6 +1,6 @@
 # 阻止脸书和其他公司利用你的网页历史做广告
 
-> 原文:[https://life hacker . com/stop-Facebook-and-other-companies-from-use-your-web-h-1589941425](https://lifehacker.com/stop-facebook-and-other-companies-from-using-your-web-h-1589941425)
+> 原文：<https://lifehacker.com/stop-facebook-and-other-companies-from-using-your-web-h-1589941425>
 
 我们已经知道脸书 [正在跟踪我们在网上的一举一动](https://lifehacker.com/facebook-is-tracking-your-every-move-on-the-web-heres-5843969) ，就像其他人 一样 [，但是现在这个社交网络说它将使用来自我们访问的其他网站和我们使用的应用程序的数据来提供更多相关的广告。如果你想退出这个增强的行为目标，有一个表格。](http://lifehacker.com/everyones-trying-to-track-what-you-do-on-the-web-heres-5887140)
 

@@ -1,6 +1,6 @@
 # 如何从任何地方购买电子书，并在一个地方阅读它们
 
-> 原文:[https://life hacker . com/how-to-buy-from-anywhere-and-still-read-them-all-1553478027](https://lifehacker.com/how-to-buy-ebooks-from-anywhere-and-still-read-them-all-1553478027)
+> 原文：<https://lifehacker.com/how-to-buy-ebooks-from-anywhere-and-still-read-them-all-1553478027>
 
 大多数电子书卖家试图将你锁定在一个特定的生态系统中。如果你不介意每次都从同一家公司购买，这并不太糟糕，但你失去了比较商店的能力，也使得切换应用程序变得困难。幸运的是，有一种方法可以解决这个问题。
 

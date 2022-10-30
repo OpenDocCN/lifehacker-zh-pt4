@@ -1,6 +1,6 @@
 # 为普通人定义的最大的科技行业流行语
 
-> 原文:[https://life hacker . com/the-biggest-tech-industry-buzz words-defined-for-normal-1564463267](https://lifehacker.com/the-biggest-tech-industry-buzzwords-defined-for-normal-1564463267)
+> 原文：<https://lifehacker.com/the-biggest-tech-industry-buzzwords-defined-for-normal-1564463267>
 
 科技行业喜欢朗朗上口的短语，但事实是，其中大多数要么没有任何意义，要么只是表达简单想法的复杂方式。考虑到这一点，让我们深入了解一下像“物联网”或“颠覆”这样的说法对我们普通人意味着什么。
 

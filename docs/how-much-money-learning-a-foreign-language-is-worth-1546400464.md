@@ -1,6 +1,6 @@
 # 学习外语值多少钱
 
-> 原文:[https://life hacker . com/how-much-money-learning-a-foreign-language-worth-1546400464](https://lifehacker.com/how-much-money-learning-a-foreign-language-is-worth-1546400464)
+> 原文：<https://lifehacker.com/how-much-money-learning-a-foreign-language-is-worth-1546400464>
 
 除了学习一门新语言的个人满足感之外，精通一门语言还能增加你一生的收入。《经济学人》着眼于学习一门外语的投资回报，以及哪种语言是最值得学习的，至少在金钱方面是如此。
 

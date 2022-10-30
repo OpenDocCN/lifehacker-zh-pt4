@@ -1,6 +1,6 @@
 # 这个周末改善你的牙齿健康
 
-> 原文:[https://life hacker . com/improve-your-dental-health-this-weekend-1477796960](https://lifehacker.com/improve-your-dental-health-this-weekend-1477796960)
+> 原文：<https://lifehacker.com/improve-your-dental-health-this-weekend-1477796960>
 
 我们的身体需要大量的保养，嘴巴也不例外。照顾好我们的牙齿和牙龈会对我们的生活产生重大影响。这个周末，花些时间确保你没有忽略任何重要的事情，并得到最好的牙齿护理。
 

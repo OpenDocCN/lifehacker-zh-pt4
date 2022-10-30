@@ -1,6 +1,6 @@
 # OneNote 摘要、Flickr 查看器和睾丸健康
 
-> 原文:[https://life hacker . com/onenote-summarys-Flickr-viewers-and-睾丸-healt-1449680822](https://lifehacker.com/onenote-summaries-flickr-viewers-and-testicular-healt-1449680822)
+> 原文：<https://lifehacker.com/onenote-summaries-flickr-viewers-and-testicular-healt-1449680822>
 
 读者提供了在 OneNote 中创建摘要页面、在新的 Flickr 查看器模式中获取全尺寸图像以及记得进行睾丸自检的最佳技巧。
 

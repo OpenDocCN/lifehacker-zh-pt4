@@ -1,6 +1,6 @@
 # 口袋大小的日常携带
 
-> 原文:[https://life hacker . com/the-pocket-size-daily-carry-1713091127](https://lifehacker.com/the-pocket-sized-daily-carry-1713091127)
+> 原文：<https://lifehacker.com/the-pocket-sized-daily-carry-1713091127>
 
 我们不需要每天都带着一个全尺寸的包。Carry reader(也是 ICU 护士)Aileen Ciriaco 分享了她的袖珍日用包。
 

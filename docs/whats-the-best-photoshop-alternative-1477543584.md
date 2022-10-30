@@ -1,6 +1,6 @@
 # 最好的 Photoshop 替代品是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-Photoshop-alternative-1477543584](https://lifehacker.com/whats-the-best-photoshop-alternative-1477543584)
+> 原文：<https://lifehacker.com/whats-the-best-photoshop-alternative-1477543584>
 
 如果你需要在分享或发布到网上之前编辑图像、润色照片、删除对象或只是让图像看起来像你想要的样子，你有很多很好的选择，其中许多是免费或低价的。Adobe 的 Photoshop 是一个很好的工具，也是领先的行业标准，但本周我们想谈谈你最喜欢的功能丰富的替代品。
 

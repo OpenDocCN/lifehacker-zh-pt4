@@ -1,6 +1,6 @@
 # 如何在摆脱债务的同时为退休储蓄
 
-> 原文:[https://life hacker . com/how-to-save for the retirement-while-get-out-of-debt-1715022423](https://lifehacker.com/how-to-save-for-retirement-while-getting-out-of-debt-1715022423)
+> 原文：<https://lifehacker.com/how-to-save-for-retirement-while-getting-out-of-debt-1715022423>
 
 我们都想达到一个不用工作谋生的地步。我们想要放松，享受没有任何经济压力的生活。当然，如果你不为退休储蓄，那就不会发生。但是如果你负债累累，你怎么存钱呢？当你试图平衡退休储蓄和偿还债务时，有几件事需要考虑。
 

@@ -1,6 +1,6 @@
 # 如何正确牵引 U 型拖车
 
-> 原文:[https://jalopnik . com/how-to-avoid-of-a-unbalanced-trailer-1519952988](https://jalopnik.com/how-to-avoid-the-perils-of-an-unbalanced-trailer-1519952988)
+> 原文：<https://jalopnik.com/how-to-avoid-the-perils-of-an-unbalanced-trailer-1519952988>
 
 如果你偶尔需要搬运一吨小东西(或者只是一件非常大的东西)，有很多公司会租给你一辆拖车。但是你怎么保证自己不会搞砸呢？我去了 U-Haul 在亚利桑那州的测试设施，学习了牵引 U-小型拖车的正确和错误方法。
 

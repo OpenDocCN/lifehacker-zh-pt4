@@ -1,6 +1,6 @@
 # 最好的家庭咖啡制作设备
 
-> 原文:[https://life hacker . com/the-best-in-home-fake-making-gear-1564012367](https://lifehacker.com/the-best-at-home-coffee-making-gear-1564012367)
+> 原文：<https://lifehacker.com/the-best-at-home-coffee-making-gear-1564012367>
 
 一杯好咖啡始于 [合适的咖啡豆](http://lifehacker.com/where-can-i-buy-better-coffee-beans-1524434140) ，但从那时起，你还需要合适的工具来获得最好的结果。当然， [我们有自己最喜欢的咖啡机](http://lifehacker.com/five-best-coffee-makers-500592468) ，但是我们想建立一个最好的咖啡制作设备的清单。让我们开始吧。
 

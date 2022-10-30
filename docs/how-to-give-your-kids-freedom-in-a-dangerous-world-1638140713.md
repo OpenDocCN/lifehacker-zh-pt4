@@ -1,6 +1,6 @@
 # 如何在危险的世界里给你的孩子自由
 
-> 原文:[https://life hacker . com/how-to-give-your-kids-freedom-in-a-dangerous-world-1638140713](https://lifehacker.com/how-to-give-your-kids-freedom-in-a-dangerous-world-1638140713)
+> 原文：<https://lifehacker.com/how-to-give-your-kids-freedom-in-a-dangerous-world-1638140713>
 
 过度保护父母已经成为许多家庭的一种生活方式，因为父母担心他们的孩子会受到伤害。但是为了学习和成长，孩子们也需要亲身体验这个世界。当涉及到你的孩子时，你如何在自由和保护之间找到平衡？
 

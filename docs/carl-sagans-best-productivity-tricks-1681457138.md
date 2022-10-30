@@ -1,6 +1,6 @@
 # 卡尔·萨根的最佳生产率诀窍
 
-> 原文:[https://life hacker . com/Carl-sagans-best-productivity-tricks-1681457138](https://lifehacker.com/carl-sagans-best-productivity-tricks-1681457138)
+> 原文：<https://lifehacker.com/carl-sagans-best-productivity-tricks-1681457138>
 
 卡尔·萨根 是一位著名的天文学家、宇宙学家、作家，也是最著名的科学传播者和《宇宙》节目的主持人。他对科学和普通生活的观点既鼓舞人心又振奋人心。让我们来看看他的一些对我们所有人都有用的想法。
 

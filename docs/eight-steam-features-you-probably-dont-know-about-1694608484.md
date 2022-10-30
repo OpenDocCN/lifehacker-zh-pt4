@@ -1,6 +1,6 @@
 # 你可能不知道的 16 个 Steam 特性
 
-> 原文:[https://kotaku . com/eight-steam-features-you-possible-not-know-on-1694608484](https://kotaku.com/eight-steam-features-you-probably-dont-know-about-1694608484)
+> 原文：<https://kotaku.com/eight-steam-features-you-probably-dont-know-about-1694608484>
 
 像它主持的成千上万的游戏一样，Steam 也有秘密。
 

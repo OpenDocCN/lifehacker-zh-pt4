@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:3 月 14 日至 21 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-March-14-to-21-1548731748](https://lifehacker.com/this-weeks-most-popular-posts-march-14th-to-21st-1548731748)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-march-14th-to-21st-1548731748>
 
 本周我们 [得到了对 20 多岁的人的建议](https://lifehacker.com/10-of-the-most-important-life-lessons-i-learned-from-my-1547298543)[找到了最好的待办事项列表管理器](http://lifehacker.com/five-best-to-do-list-managers-5924093)[学习了一些 Windows 快捷键](http://lifehacker.com/three-windows-shortcuts-every-beginner-should-know-1545115910)[让 PC 游戏变得更好](http://lifehacker.com/top-10-ways-to-boost-your-pc-gaming-1540393268) 。这里回顾一下。
 

@@ -1,6 +1,6 @@
 # 制作你自己的植物性代餐粉来省钱
 
-> 原文:[https://life hacker . com/make-your-own-蛋白粉省钱-1725194916](https://lifehacker.com/make-your-own-protein-powder-to-save-money-1725194916)
+> 原文：<https://lifehacker.com/make-your-own-protein-powder-to-save-money-1725194916>
 
 代餐饮料(想一想确保或肌肉牛奶)在你当地的杂货店或补充剂商店会变得很贵，所以这里有一个更实惠的方法，在家里重现即饮补充剂的便利。
 

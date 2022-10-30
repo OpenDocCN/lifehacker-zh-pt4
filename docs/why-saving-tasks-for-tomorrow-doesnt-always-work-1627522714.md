@@ -1,6 +1,6 @@
 # 为什么把任务留到明天并不总是有效
 
-> 原文:[https://life hacker . com/why-saving-tasks-for-tomorrow-dont-always-work-1627522714](https://lifehacker.com/why-saving-tasks-for-tomorrow-doesnt-always-work-1627522714)
+> 原文：<https://lifehacker.com/why-saving-tasks-for-tomorrow-doesnt-always-work-1627522714>
 
 你是否经常告诉自己“下一次”你会做得更好，然后到时候不会改变？你是否经常决定“以后”做某件事，却发现它从未完成？今天糟糕的时间管理只会导致明天糟糕的时间管理，但是这里有一些你可以改进的方法。
 

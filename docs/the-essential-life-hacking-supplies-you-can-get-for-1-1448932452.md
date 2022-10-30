@@ -1,6 +1,6 @@
 # 1 美元就能买到的基本生活黑客用品
 
-> 原文:[https://life hacker . com/the-essential-life-hacking-supplies-you-can-get-for-1-1448932452](https://lifehacker.com/the-essential-life-hacking-supplies-you-can-get-for-1-1448932452)
+> 原文：<https://lifehacker.com/the-essential-life-hacking-supplies-you-can-get-for-1-1448932452>
 
 一个没有合适工具的生活黑客有点像米开朗基罗带着一盒蜡笔:你或许可以做出一些好东西，但你不会创造出西斯廷教堂的生活黑客。这里有一些最有用的生活黑客用品，你可以花一美元或更少。
 

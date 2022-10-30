@@ -1,6 +1,6 @@
 # Moto 提示回顾:第一款我不羞于佩戴的蓝牙耳机
 
-> 原文:[https://gizmodo . com/moto-hint-review-the-first-bluetooth-headset-I-wasnt-1645744079](https://gizmodo.com/moto-hint-review-the-first-bluetooth-headset-i-wasnt-1645744079)
+> 原文：<https://gizmodo.com/moto-hint-review-the-first-bluetooth-headset-i-wasnt-1645744079>
 
 蓝牙耳机总是突出来。我的意思是它们已经从你的耳朵里伸出来了。也许它们不像谷歌眼镜那样是一种时尚失礼，但它们绝对是一种耻辱。为了对抗电子人的外观，一些可穿戴制造商正在制造智能手表，但摩托罗拉也有一个备用计划:一个小巧帅气的耳塞，可以充当个人助理。
 

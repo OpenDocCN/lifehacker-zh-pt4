@@ -1,6 +1,6 @@
 # Cleancast:认识母女专业组织团队
 
-> 原文:[https://deadspin . com/clean cast-meet-the-mother-女儿-professional-organi-1713763273](https://deadspin.com/cleancast-meet-the-mother-daughter-professional-organi-1713763273)
+> 原文：<https://deadspin.com/cleancast-meet-the-mother-daughter-professional-organi-1713763273>
 
 我本周在官方的“问一个干净的人”播客上的嘉宾是[Done&Done NYC](http://www.doneanddonenyc.com/)T3】的女士们，这是一家专业的组织和家庭分期公司，由母女团队安·莱特富特和凯特·鲍洛夫斯基在四年前创立。他们的运营经理艾比·洛夫伯格(Abby Lofberg)是凯特三年级认识的最好的朋友，她也加入了我们的一个 45 分钟的长节目，专门讲述整理你的家和放弃你不再需要的物品的挑战，以及爱人去世后财产清算带来的情感困难。我保证这远没有听起来那么可怕！
 

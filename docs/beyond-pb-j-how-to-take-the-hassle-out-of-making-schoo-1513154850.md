@@ -1,6 +1,6 @@
 # 超越 PB&J:如何解决学校午餐的麻烦
 
-> 原文:[https://life hacker . com/beyond-p b-j-how-to-take-the-trouble-out-of-making-schoo-1513154850](https://lifehacker.com/beyond-pb-j-how-to-take-the-hassle-out-of-making-schoo-1513154850)
+> 原文：<https://lifehacker.com/beyond-pb-j-how-to-take-the-hassle-out-of-making-schoo-1513154850>
 
 想弄清楚 [该往自己的棕色袋子](https://lifehacker.com/how-can-i-upgrade-my-brown-bag-lunch-5935300) 里放什么已经够难的了。当你每天为孩子打包午餐时，这个问题会成倍增加——尤其是如果你的孩子挑食或食物过敏。让我们走出学校午餐的窠臼，想办法做各种孩子们会吃的健康午餐。
 

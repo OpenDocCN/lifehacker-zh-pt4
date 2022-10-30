@@ -1,6 +1,6 @@
 # 跑步时的“脚跟撞击”也许并没有那么糟糕
 
-> 原文:[https://life hacker . com/the heel-striking-when-you-run-may-been-a-1687024801](https://lifehacker.com/heel-striking-when-you-run-may-not-be-so-bad-after-a-1687024801)
+> 原文：<https://lifehacker.com/heel-striking-when-you-run-may-not-be-so-bad-after-a-1687024801>
 
 如果你跑步时脚后跟先着地，你就是脚后跟前锋。你可能听说过这是一件坏事，但不要急于改变你的跑步模式。
 

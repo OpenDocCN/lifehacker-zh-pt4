@@ -1,6 +1,6 @@
 # 如何将你的安卓手机变成终极 GPS 导航仪
 
-> 原文:[https://gizmodo . com/how-to-turn-your-Android-phone-to-ultimate-GPS-na-1592832379](https://gizmodo.com/how-to-turn-your-android-phone-into-the-ultimate-gps-na-1592832379)
+> 原文：<https://gizmodo.com/how-to-turn-your-android-phone-into-the-ultimate-gps-na-1592832379>
 
 曾经想在户外使用你的手机作为 GPS 导航仪吗？这是一个一步一步的指南，可以帮助你找到地图，创建路线和路标，然后在你的 Android 手机上使用它们。
 

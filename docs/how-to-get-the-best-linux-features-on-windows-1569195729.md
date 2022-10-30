@@ -1,6 +1,6 @@
 # 如何在 Windows 上获得最好的 Linux 特性
 
-> 原文:[https://life hacker . com/how-to-get-the-best-Linux-features-on-windows-1569195729](https://lifehacker.com/how-to-get-the-best-linux-features-on-windows-1569195729)
+> 原文：<https://lifehacker.com/how-to-get-the-best-linux-features-on-windows-1569195729>
 
 对于许多用户来说，Linux 不是日常工作的可行选择。有些人没有时间或资源来学习新的操作系统，而其他人则需要只有 Windows 才能提供的功能。然而，Linux 仍然有很多很好的特性和优势。以下是如何在 Windows 上安装它们的方法。
 

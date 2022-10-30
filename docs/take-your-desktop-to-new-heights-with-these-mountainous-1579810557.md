@@ -1,6 +1,6 @@
 # 使用这些堆积如山的壁纸，将您的桌面提升到新的高度
 
-> 原文:[https://life hacker . com/take-your-desktop-to-new-heights with these-mountain-1579810557](https://lifehacker.com/take-your-desktop-to-new-heights-with-these-mountainous-1579810557)
+> 原文：<https://lifehacker.com/take-your-desktop-to-new-heights-with-these-mountainous-1579810557>
 
 你也许不能爬山，但是你可以用这些壁纸从你的桌面上欣赏(二维)风景。
 

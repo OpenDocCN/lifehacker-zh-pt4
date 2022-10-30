@@ -1,6 +1,6 @@
 # 五家最佳新闻组供应商
 
-> 原文:[https://life hacker . com/five-best-usenet-providers-1611239789](https://lifehacker.com/five-best-usenet-providers-1611239789)
+> 原文：<https://lifehacker.com/five-best-usenet-providers-1611239789>
 
 新闻组已经存在了几十年，但它仍然是一个伟大的资源，它提供了 bittorrent 无法比拟的速度和可靠性。抛开整个“新闻组第一法则”，本周我们来看看基于你的提名的五个最好的新闻组提供商。
 

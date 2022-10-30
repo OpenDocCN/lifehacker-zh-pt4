@@ -1,6 +1,6 @@
 # 度过寒冷、严酷的冬天的十大方法
 
-> 原文:[https://life hacker . com/top-10-ways-survive-the-cold-harsh-winter-1498172684](https://lifehacker.com/top-10-ways-to-survive-the-cold-harsh-winter-1498172684)
+> 原文：<https://lifehacker.com/top-10-ways-to-survive-the-cold-harsh-winter-1498172684>
 
 冬天回来了，比以往任何时候都冷。再加上下雪、空气干燥、疾病以及冬天带来的一切，天气变得相当恶劣。这里有 10 种方法可以让你在这个萧瑟的季节保持理智。
 

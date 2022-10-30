@@ -1,6 +1,6 @@
 # 如何以最小的存储空间充分利用 iPhone
 
-> 原文:[https://life hacker . com/how-to-make-the-most-a iphone with minimal-storage-1592159896](https://lifehacker.com/how-to-make-the-most-of-an-iphone-with-minimal-storage-1592159896)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-an-iphone-with-minimal-storage-1592159896>
 
 随着越来越多的数据被存储在云中，音乐等娱乐被流媒体播放，似乎没有太多存储空间的手机应该很容易生活。然而，存储空间很快就会被耗尽。以下是处理方法。
 

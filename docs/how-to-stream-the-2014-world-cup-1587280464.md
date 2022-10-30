@@ -1,6 +1,6 @@
 # 如何直播 2014 年世界杯
 
-> 原文:[https://life hacker . com/how-to-stream-the-2014-world-cup-1587280464](https://lifehacker.com/how-to-stream-the-2014-world-cup-1587280464)
+> 原文：<https://lifehacker.com/how-to-stream-the-2014-world-cup-1587280464>
 
 2014 年世界杯本周开始，如果你想收听，你有很多选择——包括从你的 PC、手机或机顶盒播放。如果你在美国，以下是你需要知道的。
 

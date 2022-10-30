@@ -1,6 +1,6 @@
 # Valve 宣布推出“蒸汽机器”，希望改善客厅游戏
 
-> 原文:[https://kotaku . com/valve-announces-steam-machines-1386046176](https://kotaku.com/valve-announces-steam-machines-1386046176)
+> 原文：<https://kotaku.com/valve-announces-steam-machines-1386046176>
 
 希望你不会太在意“蒸汽箱”这个名字——Valve 正与多家公司合作，发布他们称之为 [蒸汽机器](http://store.steampowered.com/livingroom/SteamMachines/) 的硬件。这些电脑是为在你的电视上玩游戏而设计的，它们将与下一代游戏机争夺对你客厅的控制权。
 

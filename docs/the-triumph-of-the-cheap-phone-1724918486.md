@@ -1,6 +1,6 @@
 # 廉价手机的胜利
 
-> 原文:[https://gizmodo . com/the-triumph-of-the-price-phone-1724918486](https://gizmodo.com/the-triumph-of-the-cheap-phone-1724918486)
+> 原文：<https://gizmodo.com/the-triumph-of-the-cheap-phone-1724918486>
 
 以前买个便宜手机有点郁闷。你买了一个，因为你有。现在它们终于变成了你想买的手机。运营商的回应是撕毁他们的两年合约。自由——是有代价的。
 

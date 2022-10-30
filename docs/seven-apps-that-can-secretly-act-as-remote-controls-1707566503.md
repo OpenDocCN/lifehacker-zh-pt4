@@ -1,6 +1,6 @@
 # 七款可以秘密充当遥控器的应用
 
-> 原文:[https://life hacker . com/seven-apps-the-can-secretly-act-as-remote-controls-1707566503](https://lifehacker.com/seven-apps-that-can-secretly-act-as-remote-controls-1707566503)
+> 原文：<https://lifehacker.com/seven-apps-that-can-secretly-act-as-remote-controls-1707566503>
 
 智能手机 有 [无数](http://lifehacker.com/how-to-control-anything-on-your-pc-with-your-android-ph-1500063190) [通用遥控 app](https://lifehacker.com/the-best-remote-apps-for-your-android-5709967)[，但很有可能，你并不真的需要它们。许多应用程序，包括 Spotify 和 YouTube，都有隐藏的内置远程功能。](http://lifehacker.com/the-best-remote-apps-for-your-iphone-5709968)
 

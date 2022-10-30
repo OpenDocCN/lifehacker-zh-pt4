@@ -1,6 +1,6 @@
 # “让自己快乐，这样当别人看着你时，他们也会变得快乐”
 
-> 原文:[https://life hacker . com/make-you-so-when-others-look-you-them-be-1548146673](https://lifehacker.com/make-yourself-happy-so-when-others-look-at-you-they-be-1548146673)
+> 原文：<https://lifehacker.com/make-yourself-happy-so-when-others-look-at-you-they-be-1548146673>
 
 今天是联合国国际幸福日。这是一个反思我们自己幸福的好时机——也是思考幸福如何影响他人的好时机。
 

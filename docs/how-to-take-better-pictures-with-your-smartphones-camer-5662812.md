@@ -1,6 +1,6 @@
 # 如何用智能手机相机拍出更好的照片
 
-> 原文:[https://life hacker . com/how-to-take-better-pictures-with your-smart phones-camer-5662812](https://lifehacker.com/how-to-take-better-pictures-with-your-smartphones-camer-5662812)
+> 原文：<https://lifehacker.com/how-to-take-better-pictures-with-your-smartphones-camer-5662812>
 
 在过去的几年里，拍照手机已经取得了很大的进步，但它们并不总是在第一次尝试时就拍摄出高质量的照片( [，更不用说 DSLR 质量的](https://lifehacker.com/the-differences-between-a-dslr-and-smartphone-camera-i-1540339341) )。以下是如何从智能手机的相机中获取最佳质量照片的方法。
 

@@ -1,6 +1,6 @@
 # 什么时候购买新发布的小工具和升级是有意义的？
 
-> 原文:[https://life hacker . com/when-it-make-sense-budding-edge-gadgets-an-1642927951](https://lifehacker.com/when-does-it-make-sense-to-buy-bleeding-edge-gadgets-an-1642927951)
+> 原文：<https://lifehacker.com/when-does-it-make-sense-to-buy-bleeding-edge-gadgets-an-1642927951>
 
 亲爱的 Lifehacker，
 最近有很多很棒的新更新。我想买一部新手机，一个新的电脑显卡，甚至一些新的耳机——但是这些新产品现在才刚刚上市。马上扑向他们有意义吗？什么时候买入比持有更有意义？

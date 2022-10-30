@@ -1,6 +1,6 @@
 # 为什么你认为你什么都很棒，即使你很差劲
 
-> 原文:[https://life hacker . com/why-you-think-you-re-great at-even-when-you-1492423875](https://lifehacker.com/why-you-think-you-re-great-at-everything-even-when-you-1492423875)
+> 原文：<https://lifehacker.com/why-you-think-you-re-great-at-everything-even-when-you-1492423875>
 
 作为人类，我们很不擅长判断自己的能力。从锻炼到我们的幽默感，我们都确信我们在所做的每件事上都是最棒的。问题是，在很多情况下，我们比自己想象的要糟糕得多。这可能会阻碍我们取得长期的成功。
 

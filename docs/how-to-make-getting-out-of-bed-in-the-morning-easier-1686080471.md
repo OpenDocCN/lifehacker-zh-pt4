@@ -1,6 +1,6 @@
 # 如何让早上起床更容易
 
-> 原文:[https://life hacker . com/how-to-make-up the bed-in-more-more-1686080471](https://lifehacker.com/how-to-make-getting-out-of-bed-in-the-morning-easier-1686080471)
+> 原文：<https://lifehacker.com/how-to-make-getting-out-of-bed-in-the-morning-easier-1686080471>
 
 起床可能会很艰难。闹钟响了，有那么一会儿，你只是躺在温暖舒适的床上，希望自己不用动。当然，我们无论如何都要起床，通常是因为我们不得不起床，但这很糟糕，很不舒服，有时很痛苦。这里有一些小贴士可以让起床这个时刻变得不那么糟糕。
 

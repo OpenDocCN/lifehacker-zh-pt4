@@ -1,6 +1,6 @@
 # 买房全过程指南
 
-> 原文:[https://life hacker . com/the-start-to-finish-guide-to-buying-a-home-1663317601](https://lifehacker.com/the-start-to-finish-guide-to-buying-a-home-1663317601)
+> 原文：<https://lifehacker.com/the-start-to-finish-guide-to-buying-a-home-1663317601>
 
 买房是一个重要的里程碑，排在许多人一生要做的事情清单的首位——也许也是他们财务恐惧的清单。但这肯定不一定是一次可怕或紧张的经历。随着时间的推移，护理和研究，你可以控制购房过程。
 

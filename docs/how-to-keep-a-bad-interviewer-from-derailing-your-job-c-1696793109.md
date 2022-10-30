@@ -1,6 +1,6 @@
 # 如何防止糟糕的面试官破坏你的工作机会
 
-> 原文:[https://life hacker . com/how-to-keep a bad-面试官不要让你的工作出轨-c-1696793109](https://lifehacker.com/how-to-keep-a-bad-interviewer-from-derailing-your-job-c-1696793109)
+> 原文：<https://lifehacker.com/how-to-keep-a-bad-interviewer-from-derailing-your-job-c-1696793109>
 
 有时候，当你得到一份工作面试，你最终会和一个可能不是最好的面试官交谈。无论你遇到的是沉默寡言的面试官还是关注错误事情的缺乏经验的经理，知道如何应对桌子另一边的流氓对获得这份工作至关重要。
 

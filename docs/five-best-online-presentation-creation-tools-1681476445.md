@@ -1,6 +1,6 @@
 # 五款最佳在线演示文稿制作工具
 
-> 原文:[https://life hacker . com/five-best-online-presentation-creation-tools-1681476445](https://lifehacker.com/five-best-online-presentation-creation-tools-1681476445)
+> 原文：<https://lifehacker.com/five-best-online-presentation-creation-tools-1681476445>
 
 您不必下载 office 套件来为工作、谈话或学校创建好看的演示文稿。有很多在线选项可以在任何装有网络浏览器的电脑上运行，无论是你的台式机、工作中的个人电脑还是移动中的笔记本电脑。本周我们来看五个最好的。
 

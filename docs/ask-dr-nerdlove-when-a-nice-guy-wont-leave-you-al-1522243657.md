@@ -1,6 +1,6 @@
 # 问问 Nerdlove 博士:当一个“好男人”不会放过你的时候
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-when-a-good-guy-won-leave-you-al-1522243657](https://kotaku.com/ask-dr-nerdlove-when-a-nice-guy-wont-leave-you-al-1522243657)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-when-a-nice-guy-wont-leave-you-al-1522243657>
 
 怎么了，各位？欢迎来到最新一期的 [向书呆子爱博士](http://kotaku.com/askdrnerdlove) 提问，这是人类有史以来最伟大的书呆子爱情建议专栏。
 

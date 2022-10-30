@@ -1,6 +1,6 @@
 # 如何在竞争激烈的城市找到你梦想中的公寓
 
-> 原文:[https://life hacker . com/how-to-land a dream-apartment-in-a-competitive-city-1691354779](https://lifehacker.com/how-to-land-a-dream-apartment-in-a-competitive-city-1691354779)
+> 原文：<https://lifehacker.com/how-to-land-a-dream-apartment-in-a-competitive-city-1691354779>
 
 当你生活在竞争激烈的租赁市场，如旧金山或纽约，找到一个伟大的(甚至体面的)家可能会觉得不可能。准备就是一切，所以这里有一些提示和工具可以帮助你得到你想要的。
 

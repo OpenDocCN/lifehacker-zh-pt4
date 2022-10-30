@@ -1,6 +1,6 @@
 # 如何不再在乎别人的想法
 
-> 原文:[https://life hacker . com/how-to-stop-giving-a-f-CK-what-people-think-1530784365](https://lifehacker.com/how-to-stop-giving-a-f-ck-what-people-think-1530784365)
+> 原文：<https://lifehacker.com/how-to-stop-giving-a-f-ck-what-people-think-1530784365>
 
 我们都有罪。每天从我们醒来的那一刻起，我们都在关心别人对我们的看法。
 

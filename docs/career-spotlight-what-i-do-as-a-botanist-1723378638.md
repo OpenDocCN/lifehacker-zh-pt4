@@ -1,6 +1,6 @@
 # 职业聚焦:作为植物学家我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-botant ist-1723378638](https://lifehacker.com/career-spotlight-what-i-do-as-a-botanist-1723378638)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-botanist-1723378638>
 
 植物是生命中如此无处不在的一个方面——实际上是它的基础——以至于你可能很少想到它们的科学研究。植物学有潜力在许多影响我们日常生活的领域结出硕果，从医学到农业到环境科学。
 

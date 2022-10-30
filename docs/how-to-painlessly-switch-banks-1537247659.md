@@ -1,6 +1,6 @@
 # 如何无痛切换银行
 
-> 原文:[https://life hacker . com/how-to-painly-switch-banks-1537247659](https://lifehacker.com/how-to-painlessly-switch-banks-1537247659)
+> 原文：<https://lifehacker.com/how-to-painlessly-switch-banks-1537247659>
 
 如果你曾经试图换银行，你知道这可能是一个巨大的麻烦。但是一个详细的计划会有很大的不同。如果你正在考虑换一家银行，遵循这个指南，让它尽可能不痛苦。
 

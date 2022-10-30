@@ -1,6 +1,6 @@
 # 在多次购买中省钱的最佳捆绑包
 
-> 原文:[https://life hacker . com/the-best-bundles-the-save money-on-multiple-purchases-1617563803](https://lifehacker.com/the-best-bundles-that-save-money-on-multiple-purchases-1617563803)
+> 原文：<https://lifehacker.com/the-best-bundles-that-save-money-on-multiple-purchases-1617563803>
 
 无论你是在购买书籍、音乐、软件还是视频游戏，网络上到处都是“捆绑包”，或者打折包，在这里你可以以折扣价买到很多好东西。让我们在网上建立一个提供物美价廉的最佳捆绑包列表——不管是什么东西。
 

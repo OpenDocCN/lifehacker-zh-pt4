@@ -1,6 +1,6 @@
 # 当一个同事成为你的新老板时，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-what-do what-what-your-co-worker-be your-boss-1692396713](https://lifehacker.com/what-to-do-when-your-co-worker-becomes-your-boss-1692396713)
+> 原文：<https://lifehacker.com/what-to-do-when-your-co-worker-becomes-your-boss-1692396713>
 
 所以，这就是你:当你被告知一个同事现在是你的新老板时的尴尬时刻。消息传来时，你的头脑在飞速运转。当你掩饰你最初的震惊并强颜欢笑时，你不禁会想——我的午餐伙伴正成为我的经理。现在怎么办？
 

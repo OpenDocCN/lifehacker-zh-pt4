@@ -1,6 +1,6 @@
 # 五种最佳语言翻译工具
 
-> 原文:[https://life hacker . com/five-best-language-translation-tools-1634228212](https://lifehacker.com/five-best-language-translation-tools-1634228212)
+> 原文：<https://lifehacker.com/five-best-language-translation-tools-1634228212>
 
 当你需要将一种语言翻译成另一种语言时，无论是为了交流还是因为你试图阅读一些东西，你都有大量的选择——它们只是在捕捉原始语言的真正含义而不听起来很傻方面不太好。本周我们将根据你们的提名选出五位最佳选手。
 

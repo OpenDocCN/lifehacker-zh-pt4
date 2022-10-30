@@ -1,6 +1,6 @@
 # 哪些科技公司保护你的数据不受政府的侵犯？
 
-> 原文:[https://gizmodo . com/which-tech-companies-protect-your-data-from-the-government-486127045](https://gizmodo.com/which-tech-companies-protect-your-data-from-the-governm-486127045)
+> 原文：<https://gizmodo.com/which-tech-companies-protect-your-data-from-the-governm-486127045>
 
 *电子前沿基金会* [*刚刚发布了年度“谁支持你”成绩单*](https://www.eff.org/who-has-your-back-2013) *，详细介绍了科技公司的隐私政策。以下是面对政府索取你的数据时，谁会为你的隐私而战，谁甚至不会为此费心。*
 

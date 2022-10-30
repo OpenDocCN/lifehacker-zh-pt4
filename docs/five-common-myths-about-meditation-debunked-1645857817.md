@@ -1,6 +1,6 @@
 # 关于冥想的五个常见神话被揭穿
 
-> 原文:[https://life hacker . com/five-common-myths-abouted-1645857817](https://lifehacker.com/five-common-myths-about-meditation-debunked-1645857817)
+> 原文：<https://lifehacker.com/five-common-myths-about-meditation-debunked-1645857817>
 
 你可能听说过 [冥想可以有益于](https://lifehacker.com/is-meditation-really-beneficial-or-is-it-just-ridiculo-5989429) ，但你实际了解多少呢？冥想的许多方面经常被误解或曲解。让我们揭穿这些神话，这样你就可以开始收获回报了。
 

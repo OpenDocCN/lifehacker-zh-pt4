@@ -1,6 +1,6 @@
 # 有人有我想要的域名我该怎么办？
 
-> 原文:[https://life hacker . com/what-do-I-do-when-someone-a-domain-name-I-want-1550716320](https://lifehacker.com/what-do-i-do-when-someone-has-a-domain-name-i-want-1550716320)
+> 原文：<https://lifehacker.com/what-do-i-do-when-someone-has-a-domain-name-i-want-1550716320>
 
 亲爱的 Lifehacker，
 我真的很想为我的姓注册域名，但是已经有人用了。令人沮丧的是，拥有该域名的人似乎没有做任何事情。我能做些什么吗？

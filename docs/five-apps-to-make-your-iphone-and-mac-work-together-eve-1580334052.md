@@ -1,6 +1,6 @@
 # 让你的 iPhone 和 Mac 更好地协同工作的五个应用程序
 
-> 原文:[https://life hacker . com/five-apps-to-make-your-iphone-and-MAC-work-with-eve-1580334052](https://lifehacker.com/five-apps-to-make-your-iphone-and-mac-work-together-eve-1580334052)
+> 原文：<https://lifehacker.com/five-apps-to-make-your-iphone-and-mac-work-together-eve-1580334052>
 
 苹果总是强调你的 Mac 和 iPhone 如何完美配合，但这远远超出了 iCloud 同步或隔空投送等无聊的旧用途。一些应用程序想出了巧妙的方法，让你的 iPhone 和 Mac 协同工作，完成共享剪贴板、输入密码等任务。这里有一些我们最喜欢的。
 

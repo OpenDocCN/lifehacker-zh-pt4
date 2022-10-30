@@ -1,6 +1,6 @@
 # 根据你的储蓄目标，投资的最佳地点
 
-> 原文:[https://life hacker . com/the-best-place to-park your-money-on-your-saving-1543781226](https://lifehacker.com/the-best-place-to-park-your-money-based-on-your-saving-1543781226)
+> 原文：<https://lifehacker.com/the-best-place-to-park-your-money-based-on-your-saving-1543781226>
 
 所以你在为一些大的东西存钱，但是你不知道把钱存到哪里。也许你想投资它，让它成长，或者你想保持它的无风险和可及性。根据你存钱的目的，以下是存钱的最佳地点。
 

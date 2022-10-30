@@ -1,6 +1,6 @@
 # 年轻人，不要在汽车付款上浪费你的薪水
 
-> 原文:[https://jalopnik . com/young-people-stop-blow-your-check-on-car-payment-1657810900](https://jalopnik.com/young-people-stop-blowing-your-paycheck-on-car-payment-1657810900)
+> 原文：<https://jalopnik.com/young-people-stop-blowing-your-paycheck-on-car-payment-1657810900>
 
 你刚刚大学毕业，得到了你的第一份真正的工作，你以前从未见过这么高的薪水。你认为现在是得到你梦寐以求的“有趣的车”的时候了。但是也许把你薪水的很大一部分花在汽车上并不是一个好主意。
 

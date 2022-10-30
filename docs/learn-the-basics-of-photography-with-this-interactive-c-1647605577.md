@@ -1,6 +1,6 @@
 # 通过这个互动图表学习摄影的基础知识
 
-> 原文:[https://life hacker . com/learn-the-basics-of-photography-with this-interactive-c-1647605577](https://lifehacker.com/learn-the-basics-of-photography-with-this-interactive-c-1647605577)
+> 原文：<https://lifehacker.com/learn-the-basics-of-photography-with-this-interactive-c-1647605577>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-TcNGXkGFPFk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-TcNGXkGFPFk&start=0) 
 

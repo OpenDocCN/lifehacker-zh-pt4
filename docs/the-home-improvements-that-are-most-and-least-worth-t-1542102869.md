@@ -1,6 +1,6 @@
 # 这个工具绘制了哪些房屋翻新增加了最多(和最少)的价值
 
-> 原文:[https://life hacker . com/the-home-improvements-the-most-and-worth-t-1542102869](https://lifehacker.com/the-home-improvements-that-are-most-and-least-worth-t-1542102869)
+> 原文：<https://lifehacker.com/the-home-improvements-that-are-most-and-least-worth-t-1542102869>
 
 当谈到增加你的房子或进行一些翻新时，很容易认为你在改造上的投资会从你房子的价值中得到补偿。不一定是这样的。《重塑》杂志有一些关于哪些最值得投资的数据。
 

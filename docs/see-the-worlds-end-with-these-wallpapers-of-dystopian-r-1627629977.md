@@ -1,6 +1,6 @@
 # 用这些后世界末日废墟的壁纸看世界末日
 
-> 原文:[https://life hacker . com/see-the-world-end-with-these-wallpapers-of-distopian-r-1627629977](https://lifehacker.com/see-the-worlds-end-with-these-wallpapers-of-dystopian-r-1627629977)
+> 原文：<https://lifehacker.com/see-the-worlds-end-with-these-wallpapers-of-dystopian-r-1627629977>
 
 一些最好的科幻小说不是简洁的线条和未来的技术——有时是世界末日的破败、虚幻的废墟。用它们来装饰你的桌面。
 

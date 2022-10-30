@@ -1,6 +1,6 @@
 # 最好的手机网络电话 App 是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-mobile-VoIP-app-1579791681](https://lifehacker.com/whats-the-best-mobile-voip-app-1579791681)
+> 原文：<https://lifehacker.com/whats-the-best-mobile-voip-app-1579791681>
 
 在你的智能手机上打免费电话并不太难。在许多情况下，你需要的只是一个合适的应用程序，通过 Wi-Fi 而不是运营商的网络来路由你的电话。本周，我们想知道你认为哪些应用最适合这项工作。
 

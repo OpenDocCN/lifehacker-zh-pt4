@@ -1,6 +1,6 @@
 # 大学生活中偷偷摸摸的隐性成本(以及如何节省)
 
-> 原文:[https://life hacker . com/the-sneaky-hidden-costs-of-college-life-and-how-to-sa-1723503587](https://lifehacker.com/the-sneaky-hidden-costs-of-college-life-and-how-to-sa-1723503587)
+> 原文：<https://lifehacker.com/the-sneaky-hidden-costs-of-college-life-and-how-to-sa-1723503587>
 
 大学一年比一年贵。撇开疯狂的学费不谈，当你回到学校的时候，还有很多不为人知的隐性成本会耗尽你的钱包。这些成本会很快增加，但有一些简单的方法可以削减它们并节省很多。至少，了解它们可以帮助你更好地做预算。
 

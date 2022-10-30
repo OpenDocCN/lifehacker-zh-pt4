@@ -1,6 +1,6 @@
 # 请教 Nerdlove 博士:如何正确地进行网上约会
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-online-dating-right-1501480037](https://kotaku.com/ask-dr-nerdlove-how-to-do-online-dating-right-1501480037)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-to-do-online-dating-right-1501480037>
 
 怎么回事， *Kotaku* ？大家好，欢迎来到第一期 [向 NerdLove 博士](http://kotaku.com/askdrnerdlove) 提问，这是一个专门针对你的极客关系问题的建议专栏。首先，本周我们将谈谈如何从网上约会中获得你想要的结果。
 

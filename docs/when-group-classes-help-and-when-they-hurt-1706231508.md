@@ -1,6 +1,6 @@
 # 集体健身班的好处(和坏处)
 
-> 原文:[https://life hacker . com/when-group-classes-help-and-when-they-hurt-1706231508](https://lifehacker.com/when-group-classes-help-and-when-they-hurt-1706231508)
+> 原文：<https://lifehacker.com/when-group-classes-help-and-when-they-hurt-1706231508>
 
 SoulCycle、Barre、Zumba、body pump……似乎每个月都有一个新的团体健身班，随之而来的是一群狂热的追随者，他们对其有效性深信不疑。但是也有可能你对健身课的沉迷掩盖了一个更深层次的问题。
 

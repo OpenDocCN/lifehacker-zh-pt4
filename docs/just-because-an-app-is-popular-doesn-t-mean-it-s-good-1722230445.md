@@ -1,6 +1,6 @@
 # 一个应用受欢迎并不意味着它就是好的
 
-> 原文:[https://life hacker . com/just-as-an-app-is-popular-not-mean-it-s-good-1722230445](https://lifehacker.com/just-because-an-app-is-popular-doesn-t-mean-it-s-good-1722230445)
+> 原文：<https://lifehacker.com/just-because-an-app-is-popular-doesn-t-mean-it-s-good-1722230445>
 
 有些应用程序很受欢迎，因为它们很有用或能解决问题。其他人受欢迎是因为他们是应用程序的卡戴珊:他们因出名而出名。其他人都在使用他们，或者因为他们有大量的预算和负责为公司建立思想共享的“增长黑客”。在你注册、付款或放弃你的数据之前，让我们确保你这样做的理由是正确的。
 

@@ -1,6 +1,6 @@
 # 你可以(或不可以)信任的健身追踪器数据
 
-> 原文:[https://life hacker . com/the-data-you-can-cant-trust-from-your-fitness-tra-1636270779](https://lifehacker.com/the-data-you-can-and-cant-trust-from-your-fitness-tra-1636270779)
+> 原文：<https://lifehacker.com/the-data-you-can-and-cant-trust-from-your-fitness-tra-1636270779>
 
 每个人都在追踪健康的趋势。Apple Watch 会跟踪你的心跳、步数和活动。Fitbit 和 Fuelband 多年来一直在做类似的事情。但是它们并不完美。往好里说，数据是很好的鼓励，往坏里说，是不可靠的，误导的。这就是为什么所有的数据并不等于更好的健康，以及你实际上可以使用的。
 

@@ -1,6 +1,6 @@
 # 如何优雅地从呕吐中恢复过来
 
-> 原文:[https://life hacker . com/how-to-recover-with-grace and elegance-1551532045](https://lifehacker.com/how-to-recover-from-vomiting-with-grace-and-elegance-1551532045)
+> 原文：<https://lifehacker.com/how-to-recover-from-vomiting-with-grace-and-elegance-1551532045>
 
 不管是流感还是饮酒过量，我们都会不时呕吐。展现个性和保持尊严的是我们如何处理善后事宜。以下是你如何优雅地从呕吐中恢复过来。
 

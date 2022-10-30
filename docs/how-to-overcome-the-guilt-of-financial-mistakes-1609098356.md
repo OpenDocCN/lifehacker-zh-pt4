@@ -1,6 +1,6 @@
 # 如何克服财务错误的负罪感
 
-> 原文:[https://life hacker . com/how-to-克服财务错误的罪恶感-1609098356](https://lifehacker.com/how-to-overcome-the-guilt-of-financial-mistakes-1609098356)
+> 原文：<https://lifehacker.com/how-to-overcome-the-guilt-of-financial-mistakes-1609098356>
 
 我们都犯过财务错误，仅仅是拒付一张支票就能让你感到难以置信的内疚和尴尬。但是只要你诚实和乐于助人，你就能克服错误并找到前进的方法。
 

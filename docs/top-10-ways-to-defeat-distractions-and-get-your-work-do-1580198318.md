@@ -1,6 +1,6 @@
 # 战胜分心并完成工作的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-failure-and-get-your-work-do-1580198318](https://lifehacker.com/top-10-ways-to-defeat-distractions-and-get-your-work-do-1580198318)
+> 原文：<https://lifehacker.com/top-10-ways-to-defeat-distractions-and-get-your-work-do-1580198318>
 
 无论你有多禅，都很难专注于你面前的工作——尤其是当它是你不想做的事情时。不幸的是， [即使是短暂的分心](https://lifehacker.com/research-shows-how-much-a-three-second-distraction-can-5974976) 也会影响你的工作效率，所以这里有 10 条建议可以帮助你在最重要的时候开始工作。
 

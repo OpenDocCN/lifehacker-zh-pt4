@@ -1,6 +1,6 @@
 # 三星 Galaxy S5 评测:少即是多
 
-> 原文:[https://gizmodo . com/Samsung-galaxy-S5-review-less-is-so-more-more-1563306790](https://gizmodo.com/samsung-galaxy-s5-review-less-is-so-much-more-1563306790)
+> 原文：<https://gizmodo.com/samsung-galaxy-s5-review-less-is-so-much-more-1563306790>
 
 如果你能对三星的 Galaxy S 系列智能手机说一件事，那就是它们一贯将一些最好的硬件与令人费解的软件配对。S5 缩减了三星的花哨功能，这有助于它轻松成为迄今为止最好的 Galaxy 手机。要是他们走得更远就好了。
 

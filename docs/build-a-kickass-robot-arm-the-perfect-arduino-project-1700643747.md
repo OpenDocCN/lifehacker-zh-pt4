@@ -1,6 +1,6 @@
 # 构建一个超级机器人手臂:初学者的完美 Arduino 项目
 
-> 原文:[https://life hacker . com/build-a-kickass-robot-arm-the-perfect-arduino-project-1700643747](https://lifehacker.com/build-a-kickass-robot-arm-the-perfect-arduino-project-1700643747)
+> 原文：<https://lifehacker.com/build-a-kickass-robot-arm-the-perfect-arduino-project-1700643747>
 
 Arduino 是一种廉价、有趣的方式来建造自己的电子产品 。开始也可能令人望而生畏。在这里，我们将向您展示如何用一个杀手级项目获得一个从头到尾的 Arduino 入门:构建 [一个甜美的机械臂](http://store.hackaday.com/products/mearm-pocket-sized-robot-arm) 。
 

@@ -1,6 +1,6 @@
 # 如何找到一个不会敲你竹杠的投资经纪人
 
-> 原文:[https://life hacker . com/how-to-find-a-investment-broker-that-won-rip-you-off-1696090152](https://lifehacker.com/how-to-find-an-investment-broker-that-wont-rip-you-off-1696090152)
+> 原文：<https://lifehacker.com/how-to-find-an-investment-broker-that-wont-rip-you-off-1696090152>
 
 尽管 Etrade 和 TD Ameritrade 等更便宜的在线经纪公司很受欢迎，但许多投资者仍然使用传统经纪公司，你仍然可以通过向真人下单来进行买卖。坏消息是许多经纪人在老板的压力下向你出售可能不符合你最佳利益的东西。以下是保护自己的方法。
 

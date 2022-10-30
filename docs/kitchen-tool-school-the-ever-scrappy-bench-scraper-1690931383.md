@@ -1,6 +1,6 @@
 # 厨房工具学校:永远好斗的台式刮刀
 
-> 原文:[https://life hacker . com/kitchen-tool-school-the-ever-scrappy-bench-scraper-1690931383](https://lifehacker.com/kitchen-tool-school-the-ever-scrappy-bench-scraper-1690931383)
+> 原文：<https://lifehacker.com/kitchen-tool-school-the-ever-scrappy-bench-scraper-1690931383>
 
 你可能没有铲运机。事实上，有可能你甚至不知道它是什么。但是希望，当你听完我们的话时，你会确信你需要一个。
 

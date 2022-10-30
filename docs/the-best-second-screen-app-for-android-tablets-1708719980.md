@@ -1,6 +1,6 @@
 # 安卓平板电脑的最佳“第二屏”应用
 
-> 原文:[https://life hacker . com/the-best-second-screen-app-for-Android-tablets-1708719980](https://lifehacker.com/the-best-second-screen-app-for-android-tablets-1708719980)
+> 原文：<https://lifehacker.com/the-best-second-screen-app-for-android-tablets-1708719980>
 
 你的平板电脑本身可以成为一个伟大的生产力工具 ，但是把它作为电脑的第二个屏幕会让它变得更好。对于 Android 平板电脑，Splashtop 是我们最喜欢的方式。它很便宜，触摸友好，使用 Wi-Fi，所以你可以拿起它就走。
 

@@ -1,6 +1,6 @@
 # 开设个人退休帐户的初学者指南
 
-> 原文:[https://life hacker . com/a-beginner-s-guide-to-opening-an-IRA-1607498930](https://lifehacker.com/a-beginner-s-guide-to-opening-an-ira-1607498930)
+> 原文：<https://lifehacker.com/a-beginner-s-guide-to-opening-an-ira-1607498930>
 
 如果你正在考虑为退休储蓄，你可能知道个人退休账户(IRA)是你的选择之一。但是到底什么是个人退休帐户，它适合你吗？跟随我们的爱尔兰共和军初学者指南找到答案。
 

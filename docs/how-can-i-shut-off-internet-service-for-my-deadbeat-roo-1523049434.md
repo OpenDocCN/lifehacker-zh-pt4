@@ -1,6 +1,6 @@
 # 我该如何为我游手好闲的室友关闭网络服务？
 
-> 原文:[https://life hacker . com/how-can-I-shut-off-internet-service-for-my-dead beat-roo-1523049434](https://lifehacker.com/how-can-i-shut-off-internet-service-for-my-deadbeat-roo-1523049434)
+> 原文：<https://lifehacker.com/how-can-i-shut-off-internet-service-for-my-deadbeat-roo-1523049434>
 
 *赖账的室友？你不必忍受他们拖欠的支票。自动关闭他们的互联网。只要有一点编码技巧，你就能做到。* [*栈交换*](http://cooking.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=superuser-105) *的专家告诉你怎么做。*
 

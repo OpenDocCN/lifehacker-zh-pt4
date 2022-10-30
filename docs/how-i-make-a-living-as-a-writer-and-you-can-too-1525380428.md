@@ -1,6 +1,6 @@
 # 作为一名作家，我是如何谋生的(你也可以)
 
-> 原文:[https://life hacker . com/how-I-make-a-living-a-a-writer-and-you-can-too-1525380428](https://lifehacker.com/how-i-make-a-living-as-a-writer-and-you-can-too-1525380428)
+> 原文：<https://lifehacker.com/how-i-make-a-living-as-a-writer-and-you-can-too-1525380428>
 
 当我在 1991 年第一次写小说时，我记得走在路上，看到一个漂亮的女孩，心想:“她现在可能喜欢我了。”
 

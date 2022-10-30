@@ -1,6 +1,6 @@
 # 待办事项清单的历史(以及如何让你的清单更有效)
 
-> 原文:[https://life hacker . com/the-history-of-do-list-and-how-make-yours-mo-1480040981](https://lifehacker.com/the-history-of-the-to-do-list-and-how-to-make-yours-mo-1480040981)
+> 原文：<https://lifehacker.com/the-history-of-the-to-do-list-and-how-to-make-yours-mo-1480040981>
 
 当我还是个孩子的时候，我读过一本名为《列表制作人》的书。这是关于一个年轻女孩用列表来组织和理解她的生活。当时，除了对一个十几岁的女孩来说，花这么多时间在这上面是一个奇怪的爱好之外，我没有再去想它。现在，虽然我不记得那本书了，但我确实在谦逊清单中看到了更多的意义——特别是在研究了它们来自哪里以及我们为什么要列清单之后。
 

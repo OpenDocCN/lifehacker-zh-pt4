@@ -1,6 +1,6 @@
 # 如何提高视频聊天的质量
 
-> 原文:[https://life hacker . com/how-to-get-better-quality-out-of-your-video-chats-5836186](https://lifehacker.com/how-to-get-better-quality-out-of-your-video-chats-5836186)
+> 原文：<https://lifehacker.com/how-to-get-better-quality-out-of-your-video-chats-5836186>
 
 所以你很兴奋能和奶奶视频聊天，但是质量不尽如人意。视频时断时续，音频时断时续，你几乎看不到电话那头的人。在你翻桌子之前，这里有一些东西你可以调整，以确保你得到最好的质量。
 

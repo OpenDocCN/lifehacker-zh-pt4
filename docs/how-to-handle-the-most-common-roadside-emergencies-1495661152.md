@@ -1,6 +1,6 @@
 # 如何处理最常见的路边紧急情况
 
-> 原文:[https://life hacker . com/how-to-hand-the-most-common-road-emergencies-1495661152](https://lifehacker.com/how-to-handle-the-most-common-roadside-emergencies-1495661152)
+> 原文：<https://lifehacker.com/how-to-handle-the-most-common-roadside-emergencies-1495661152>
 
 使用这个手套箱紧急维护指南，为故障和路边汽车问题做好准备，如漏气、电池没电和机械故障。
 

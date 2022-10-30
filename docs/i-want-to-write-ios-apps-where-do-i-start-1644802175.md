@@ -1,6 +1,6 @@
 # 我想写 iOS 应用。我从哪里开始？
 
-> 原文:[https://life hacker . com/I-want-to-write-IOs-apps-where-do-I-start-1644802175](https://lifehacker.com/i-want-to-write-ios-apps-where-do-i-start-1644802175)
+> 原文：<https://lifehacker.com/i-want-to-write-ios-apps-where-do-i-start-1644802175>
 
 亲爱的 Lifehacker，
 我有一点编码的背景，但是我想做一个 iOS 的 app。我只是不确定从哪里开始或者我需要什么工具。我从哪里开始？

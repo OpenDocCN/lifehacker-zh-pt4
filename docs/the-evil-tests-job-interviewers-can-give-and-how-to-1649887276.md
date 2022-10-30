@@ -1,6 +1,6 @@
 # 工作面试官可能会给出的邪恶“测试”(以及如何避免它们)
 
-> 原文:[https://life hacker . com/the-evil-tests-job-visitors-can-give-and-how-to-1649887276](https://lifehacker.com/the-evil-tests-job-interviewers-can-give-and-how-to-1649887276)
+> 原文：<https://lifehacker.com/the-evil-tests-job-interviewers-can-give-and-how-to-1649887276>
 
 经历了面试的种种麻烦后，没有得到工作机会真是糟糕透了。你的第一个假设是你没有资格，但这并不总是正确的。你也可能没有通过任何数量的隐藏测试，其中一些非常邪恶。
 

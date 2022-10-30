@@ -1,6 +1,6 @@
 # 我们的 WWDC 2014 直播博客就在此时此地开始
 
-> 原文:[https://gizmodo . com/our-wwdc-live blog-starts-周一-6 月 2 日下午 12 点-et-1-1582090802](https://gizmodo.com/our-wwdc-liveblog-starts-monday-june-2nd-at-12pm-et-1-1582090802)
+> 原文：<https://gizmodo.com/our-wwdc-liveblog-starts-monday-june-2nd-at-12pm-et-1-1582090802>
 
 又到了一年的这个时候了！今天晚些时候，在 2014 年 WWDC 上，苹果将向全世界展示其最新最棒的产品开发。[iOS 8](http://gizmodo.com/ios-8-wish-list-what-we-want-and-what-well-get-1583734164)T3】！T5】OS X 10.10T7！并且很有可能有一个 [接管你家](http://gizmodo.com/report-apples-home-automation-system-will-be-simpler-t-1583413379) 的计划，以一种完全不会让你抓狂的方式。我们会在这里报道一切。加入我们吧！
 

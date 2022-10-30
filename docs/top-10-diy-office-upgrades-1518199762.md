@@ -1,6 +1,6 @@
 # 十大 DIY 办公升级
 
-> 原文:[https://life hacker . com/top-10-DIY-office-upgrades-1518199762](https://lifehacker.com/top-10-diy-office-upgrades-1518199762)
+> 原文：<https://lifehacker.com/top-10-diy-office-upgrades-1518199762>
 
 所以，也许你的工作空间 [并不杂乱](https://lifehacker.com/top-10-office-decluttering-tricks-5641578) ，但也许它并不是你所希望的生产力天堂。如果你想从你桌上的普通笔记本电脑升级到更令人印象深刻的东西，这里有 10 个 [便宜的](http://lifehacker.com/where-to-get-cheap-materials-for-all-your-diy-projects-514486682) DIY 升级，让它成为一个值得你花时间的战斗站。
 

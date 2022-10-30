@@ -1,6 +1,6 @@
 # 如何马上升级到 iOS 8
 
-> 原文:[https://life hacker . com/how-to-upgrade-to-IOs-8-right-now-1632595909](https://lifehacker.com/how-to-upgrade-to-ios-8-right-now-1632595909)
+> 原文：<https://lifehacker.com/how-to-upgrade-to-ios-8-right-now-1632595909>
 
 iOS 8 的正式发布是在 9 月 17 日 ，但是即使你不是开发者，你也可以马上安装最终版本。以下是方法。
 

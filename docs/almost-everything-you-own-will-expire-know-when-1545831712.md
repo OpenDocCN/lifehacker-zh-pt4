@@ -1,6 +1,6 @@
 # 几乎你所有的东西都会过期:知道什么时候
 
-> 原文:[https://life hacker . com/almost-everything-you-own-when-expire-know-1545831712](https://lifehacker.com/almost-everything-you-own-will-expire-know-when-1545831712)
+> 原文：<https://lifehacker.com/almost-everything-you-own-will-expire-know-when-1545831712>
 
 食物不是唯一会过期的东西。从 Windex 到口红再到避孕套，所有东西都有保质期。买的东西用起来很好，但也要知道什么时候该扔了。
 

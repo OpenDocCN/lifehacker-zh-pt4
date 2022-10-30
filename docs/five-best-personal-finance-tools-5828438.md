@@ -1,6 +1,6 @@
 # 五个最好的个人理财工具
 
-> 原文:[https://life hacker . com/five-best-personal-finance-tools-5828438](https://lifehacker.com/five-best-personal-finance-tools-5828438)
+> 原文：<https://lifehacker.com/five-best-personal-finance-tools-5828438>
 
 管理你的钱和预算可能是一项艰巨的任务，即使你是一个电子表格忍者。整理账户、观察你的资金流动、记录一切可能很难，但是有一些个人理财工具可以让这项工作变得容易得多。这里有一些最好的个人理财工具，非常适合跟踪你的财务状况。
 

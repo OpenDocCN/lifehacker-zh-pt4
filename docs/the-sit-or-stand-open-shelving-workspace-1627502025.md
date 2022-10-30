@@ -1,6 +1,6 @@
 # 坐式或站立式开放式搁架工作空间
 
-> 原文:[https://life hacker . com/the-sit-or-stand-open-shelving-workspace-1627502025](https://lifehacker.com/the-sit-or-stand-open-shelving-workspace-1627502025)
+> 原文：<https://lifehacker.com/the-sit-or-stand-open-shelving-workspace-1627502025>
 
 今天的特色工作区不仅有许多内置的组织和一个愉快的自然氛围，它也是一个灵活的设置，可以在坐着或站着工作之间转换。
 

@@ -1,6 +1,6 @@
 # 火星双显示器桌面
 
-> 原文:[https://life hacker . com/the-Martian-dual-monitor-desktop-1720857246](https://lifehacker.com/the-martian-dual-monitor-desktop-1720857246)
+> 原文：<https://lifehacker.com/the-martian-dual-monitor-desktop-1720857246>
 
 利用 [MSL 好奇号](https://www.nasa.gov/mission_pages/msl/index.html) 拍摄的好看壁纸，一些对虚拟桌面的巧妙使用，以及一些桌面小工具，在 Windows 中组装了这个双显示器桌面。
 

@@ -1,6 +1,6 @@
 # 像玩电子游戏一样健身，并开始升级
 
-> 原文:[https://life hacker . com/approach-fitness-like-a-video-game-and-start-leveling-u-1665753779](https://lifehacker.com/approach-fitness-like-a-video-game-and-start-leveling-u-1665753779)
+> 原文：<https://lifehacker.com/approach-fitness-like-a-video-game-and-start-leveling-u-1665753779>
 
 像我这样的游戏玩家花费数小时升级我们的角色，让他们变得更强更快，更容易打败敌人。为什么不在现实生活中试试呢？我意识到我可以将这种心态用于我的健康，并惊讶地发现游戏已经为我达到健身目标做好了准备。
 

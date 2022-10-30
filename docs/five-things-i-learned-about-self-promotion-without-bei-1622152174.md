@@ -1,6 +1,6 @@
 # 我学到的关于自我推销的五件事(不是一个垃圾)
 
-> 原文:[https://life hacker . com/five-things-I-learn-on-self-promotion-without-Bei-1622152174](https://lifehacker.com/five-things-i-learned-about-self-promotion-without-bei-1622152174)
+> 原文：<https://lifehacker.com/five-things-i-learned-about-self-promotion-without-bei-1622152174>
 
 “不要脸”和“自我推销”往往相伴而生，这是有原因的:很少有人喜欢推销自己或自己的工作。它 [感觉见不得人，可耻的](https://lifehacker.com/how-to-promote-yourself-without-being-sleazy-5883298) 。自我推销也让我紧张，但我一直在学习更好地处理它。
 

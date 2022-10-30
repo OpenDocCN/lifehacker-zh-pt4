@@ -1,6 +1,6 @@
 # 成为更好的跑步者的十大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-be-a-better-runner-1658899075](https://lifehacker.com/top-10-ways-to-be-a-better-runner-1658899075)
+> 原文：<https://lifehacker.com/top-10-ways-to-be-a-better-runner-1658899075>
 
 跑步是获得良好有氧运动的最简单方法之一(当僵尸启示录袭击 时，这是一项重要的 [技能)。无论你是刚刚开始跑步还是已经跑完了马拉松，这里有一些技巧和窍门可以让你充分利用跑步时间。](https://lifehacker.com/top-10-survival-tricks-for-when-the-zombie-apocalypse-h-5828336)
 

@@ -1,6 +1,6 @@
 # 最好的 Windows 重复文件查找工具
 
-> 原文:[https://life hacker . com/the-best-duplicate-file-finder-for-windows-1696492476](https://lifehacker.com/the-best-duplicate-file-finder-for-windows-1696492476)
+> 原文：<https://lifehacker.com/the-best-duplicate-file-finder-for-windows-1696492476>
 
 你下载的垃圾太多了。有时候你会多次下载*相同的*垃圾。即使你需要保留那些文件，你也不需要两份。为了摆脱骗子，我们推荐 dupeGuru。
 

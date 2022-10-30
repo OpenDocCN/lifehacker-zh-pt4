@@ -1,6 +1,6 @@
 # 背景燃烧器可以快速去除照片的背景
 
-> 原文:[https://life hacker . com/background-burner-does-quick-background-remove-on-your-1571950248](https://lifehacker.com/background-burner-does-quick-background-removal-on-your-1571950248)
+> 原文：<https://lifehacker.com/background-burner-does-quick-background-removal-on-your-1571950248>
 
 当你需要图片的对象，而不是背景时，将它们分开可能会很痛苦，尤其是如果你没有 Photoshop 的话。只要你不需要像素完美的控制，背景燃烧器可以在瞬间为你做繁重的工作。
 

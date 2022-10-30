@@ -1,6 +1,6 @@
 # 角色扮演游戏的惊人好处(以及如何开始)
 
-> 原文:[https://life hacker . com/the-surprise-benefits-playing-games-and-how-1684582789](https://lifehacker.com/the-surprising-benefits-of-role-playing-games-and-how-1684582789)
+> 原文：<https://lifehacker.com/the-surprising-benefits-of-role-playing-games-and-how-1684582789>
 
 当你听说像*地下城&龙*这样的角色扮演游戏时，你可能会想到一个灯光昏暗的地下室，里面挤满了穿着傻傻的长袍在掷骰子的人，但事情远不止如此。角色扮演游戏不仅非常有趣，而且还能教会你在现实世界中使用的技能。
 

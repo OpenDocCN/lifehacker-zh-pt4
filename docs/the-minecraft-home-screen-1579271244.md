@@ -1,6 +1,6 @@
 # 《我的世界》主屏幕
 
-> 原文:[https://lifehacker.com/the-minecraft-home-screen-1579271244](https://lifehacker.com/the-minecraft-home-screen-1579271244)
+> 原文：<https://lifehacker.com/the-minecraft-home-screen-1579271244>
 
 安卓:《我的世界》是一款游戏/创意工具，在释放你的想象力方面几乎可以与乐高 相媲美。自然，它非常适合您的主屏幕。
 

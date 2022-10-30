@@ -1,6 +1,6 @@
 # 分享播放列表的五种最佳方式
 
-> 原文:[https://life hacker . com/five-best-ways-to-share-playlists-1720065800](https://lifehacker.com/five-best-ways-to-share-playlists-1720065800)
+> 原文：<https://lifehacker.com/five-best-ways-to-share-playlists-1720065800>
 
 与朋友分享音乐是一种历史悠久的方式，可以发现新的乐队，与朋友讨论你的音乐品味，并了解更多关于你喜欢的乐队的信息。本周，我们将根据您的提名，探讨在聚会上或朋友之间发送和共享播放列表的五种不同方式。
 

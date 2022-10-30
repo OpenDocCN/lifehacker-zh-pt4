@@ -1,6 +1,6 @@
 # 超速真的能让你更快到达目的地吗？
 
-> 原文:[https://life hacker . com/does-speeding-really-get-you-there-any-faster-1556767685](https://lifehacker.com/does-speeding-really-get-you-there-any-faster-1556767685)
+> 原文：<https://lifehacker.com/does-speeding-really-get-you-there-any-faster-1556767685>
 
 亲爱的生活黑客，我有一个简单的问题:超速真的能让你更快到达目的地吗？我倾向于做一个更保守的司机，这让我的男朋友抓狂(他总是超速 10 英里/小时。我很确定，在红灯和交通堵塞之间，没有足够的时间来解决这个问题。我们谁是对的？
 

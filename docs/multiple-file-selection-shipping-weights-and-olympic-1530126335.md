@@ -1,6 +1,6 @@
 # 多文件选择、运输重量和奥运奖牌
 
-> 原文:[https://life hacker . com/multiple-file-selection-shipping-weights-and-Olympic-1530126335](https://lifehacker.com/multiple-file-selection-shipping-weights-and-olympic-1530126335)
+> 原文：<https://lifehacker.com/multiple-file-selection-shipping-weights-and-olympic-1530126335>
 
 读者提供了在 Windows 中选择多个文件、在发送包裹时计算运输重量以及查看谁获得了什么奥运奖牌的最佳技巧。
 

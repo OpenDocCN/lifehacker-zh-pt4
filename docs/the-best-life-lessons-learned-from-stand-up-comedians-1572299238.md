@@ -1,6 +1,6 @@
 # 从单口喜剧演员身上学到的最好的生活经验
 
-> 原文:[https://life hacker . com/the-best-life-lesson-learned-from-stand-up-comeds-1572299238](https://lifehacker.com/the-best-life-lessons-learned-from-stand-up-comedians-1572299238)
+> 原文：<https://lifehacker.com/the-best-life-lessons-learned-from-stand-up-comedians-1572299238>
 
 单口喜剧是一种特殊的艺术。尽管浮华的电影和经过加工的音乐出现了，一个好的喜剧演员仍然可以仅靠文字来表演娱乐节目。有时候，在笑声中，一些真正的智慧会闪现出来。
 

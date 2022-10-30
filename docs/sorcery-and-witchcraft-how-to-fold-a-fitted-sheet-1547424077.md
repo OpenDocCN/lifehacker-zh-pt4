@@ -1,6 +1,6 @@
 # 魔法和巫术:如何折叠合适的床单
 
-> 原文:[https://deadspin . com/mercy-and-巫术-如何折叠一张合身的床单-1547424077](https://deadspin.com/sorcery-and-witchcraft-how-to-fold-a-fitted-sheet-1547424077)
+> 原文：<https://deadspin.com/sorcery-and-witchcraft-how-to-fold-a-fitted-sheet-1547424077>
 
 [*朱莉可儿*](https://twitter.com/joliekerr) *是一位清洁专家和建议专栏作家。她每隔一周就会来这里帮助回答你最肮脏的问题。你脏吗？查看*[](https://joliekerr.kinja.com/preview/the-squalor-archive-1477136378)**的相关档案以寻求帮助。你还脏吗？* [*邮件她*](mailto:joliekerr@gmail.com) *。**
 

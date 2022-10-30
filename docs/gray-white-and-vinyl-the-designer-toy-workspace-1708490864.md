@@ -1,6 +1,6 @@
 # 灰色、白色和乙烯基:设计师玩具工作区
 
-> 原文:[https://life hacker . com/gray-white-and-vinyl-the-designer-toy-workspace-1708490864](https://lifehacker.com/gray-white-and-vinyl-the-designer-toy-workspace-1708490864)
+> 原文：<https://lifehacker.com/gray-white-and-vinyl-the-designer-toy-workspace-1708490864>
 
 我们收集的物品，如果陈列得当，会为我们的房间增添更多个性。今天的特色工作空间以一种书呆子的方式迷人。
 

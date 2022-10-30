@@ -1,6 +1,6 @@
 # 音乐如何影响和有益于你的大脑
 
-> 原文:[https://life hacker . com/how-music-affects-the-brain-how-it-benefits-you-1469597259](https://lifehacker.com/how-music-affects-the-brain-and-how-it-benefits-you-1469597259)
+> 原文：<https://lifehacker.com/how-music-affects-the-brain-and-how-it-benefits-you-1469597259>
 
 我是一个音乐迷，工作时经常使用音乐，但我不知道音乐是如何影响我们的大脑和身体的。音乐是我们生活中如此重要的一部分，我们对它有很多反应，甚至没有意识到。
 

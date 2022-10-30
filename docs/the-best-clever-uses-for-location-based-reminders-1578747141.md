@@ -1,6 +1,6 @@
 # 基于位置的提醒的最佳巧妙应用
 
-> 原文:[https://life hacker . com/the-best-clever-uses-for-location-based-reminders-1578747141](https://lifehacker.com/the-best-clever-uses-for-location-based-reminders-1578747141)
+> 原文：<https://lifehacker.com/the-best-clever-uses-for-location-based-reminders-1578747141>
 
 基于位置的提醒是提高您工作效率的强大工具。它们可以为你提供显而易见的帮助，比如当你到商店时弹出的购物清单，当你到家时弹出的家务清单——但是它们还可以做更多的事情。
 

@@ -1,6 +1,6 @@
 # 如果我弄断我的指关节或其他关节会很糟糕吗？
 
-> 原文:[https://life hacker . com/is-it-bad-if-I-crack-my-knuckle-or-head-popping-from-1493135334](https://lifehacker.com/is-it-bad-if-i-crack-my-knuckles-or-hear-popping-from-1493135334)
+> 原文：<https://lifehacker.com/is-it-bad-if-i-crack-my-knuckles-or-hear-popping-from-1493135334>
 
 亲爱的 Lifehacker，我时不时会折断我的指关节，有时我的其他关节也会嘎吱作响。我还没那么老，真的！我应该担心吗？我嘈杂的关节不好吗？
 签约，

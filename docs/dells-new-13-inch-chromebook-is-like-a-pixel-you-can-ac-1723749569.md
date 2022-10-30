@@ -1,6 +1,6 @@
 # 戴尔新推出的 13 英寸 Chromebook 就像一个你实际上买得起的像素
 
-> 原文:[https://gizmodo . com/dells-new-13 英寸 chrome book-is-like-a-pixel-you-can-AC-1723749569](https://gizmodo.com/dells-new-13-inch-chromebook-is-like-a-pixel-you-can-ac-1723749569)
+> 原文：<https://gizmodo.com/dells-new-13-inch-chromebook-is-like-a-pixel-you-can-ac-1723749569>
 
 当谷歌在 2011 年推出 Chromebooks 时，其“永远在云中”的理念让这些机器看起来像是 lite 笔记本电脑用户的入门套件。但是 [谷歌令人难以置信的像素线](http://gizmodo.com/googles-new-chromebook-pixel-dangerously-close-to-buya-1690797754#_ga=1.117106246.1523925811.1419643295) 升级了游戏。现在，戴尔遵循这一顶级思维，制造了一款你实际上负担得起的强大的 Chromebook。
 

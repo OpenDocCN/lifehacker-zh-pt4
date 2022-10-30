@@ -1,6 +1,6 @@
 # 银河桌面
 
-> 原文:[https://lifehacker.com/the-galactic-desktop-1579547444](https://lifehacker.com/the-galactic-desktop-1579547444)
+> 原文：<https://lifehacker.com/the-galactic-desktop-1579547444>
 
 读者[ninjachharlie](http://ninjacharlie.kinja.com/)使用 GeekTool 在工作时将他的 Twitter 信息和他正在听的歌曲嵌入到他的壁纸中，因此他不需要另一个应用程序来跟踪它们。以下是你也可以做到的方法。
 

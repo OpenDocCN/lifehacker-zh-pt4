@@ -1,6 +1,6 @@
 # 我们的身体如何适应极端温度？
 
-> 原文:[https://gizmodo . com/how-do-our-bodies-adjust-to-extreme-temperatures-1503474690](https://gizmodo.com/how-do-our-bodies-adjust-to-extreme-temperatures-1503474690)
+> 原文：<https://gizmodo.com/how-do-our-bodies-adjust-to-extreme-temperatures-1503474690>
 
 这个人显然对寒冷毫无顾忌。几周前，这位土生土长的挪威人因几乎全裸在挪威的 Goksjo 湖滑冰和游泳而走红网络，除了一条泳裤和一个挂在脖子上的冰花环。我们知道你在想什么:我怎样才能像这个人一样？让我们给你指路。
 

@@ -1,6 +1,6 @@
 # 五个最好的销售网站
 
-> 原文:[https://life hacker . com/five-best-sites-to-sell-your-stuff-1667433140](https://lifehacker.com/five-best-sites-to-sell-your-stuff-1667433140)
+> 原文：<https://lifehacker.com/five-best-sites-to-sell-your-stuff-1667433140>
 
 我们之前已经向你展示了如何处理掉你不需要的东西来换取现金，但是当你准备出售时，你必须选择你想要列出你的旧货的网站。有些让销售变得容易，有些从利润中分走一大块，还有一些拥有渴望购买的庞大社区。本周我们将根据你们的提名选出五位最佳选手。
 

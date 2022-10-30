@@ -1,6 +1,6 @@
 # 促进大脑发展的最佳在线讲座和谈话
 
-> 原文:[https://life hacker . com/the-best-online-presentations-and-talks-boost-your-brain-1542578351](https://lifehacker.com/the-best-online-lectures-and-talks-to-boost-your-brain-1542578351)
+> 原文：<https://lifehacker.com/the-best-online-lectures-and-talks-to-boost-your-brain-1542578351>
 
 如果你有一点空闲时间，网上有很多有趣的、信息丰富的、实际上有用的谈话和讲座，你可以免费享用。最好的能教会你一项新技能，启发你去做一些新的事情，或者只是拓展你的视野。让我们为午休或回家列一个最好的清单。
 

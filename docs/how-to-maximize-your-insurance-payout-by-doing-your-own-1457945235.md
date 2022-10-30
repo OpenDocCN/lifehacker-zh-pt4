@@ -1,6 +1,6 @@
 # 如何通过自己修理来最大化你的保险支出
 
-> 原文:[https://life hacker . com/how-to-maximized-your-insurance-payment-by-do-your-own-1457945235](https://lifehacker.com/how-to-maximize-your-insurance-payout-by-doing-your-own-1457945235)
+> 原文：<https://lifehacker.com/how-to-maximize-your-insurance-payout-by-doing-your-own-1457945235>
 
 在一个好日子里，你可能不会和你的保险公司说话。然而，如果你不得不修理你的房子或汽车，你通常可以让他们支付你自己修理的费用(或者选择你自己的商店)。
 

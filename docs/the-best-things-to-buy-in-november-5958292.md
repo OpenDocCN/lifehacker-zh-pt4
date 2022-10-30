@@ -1,6 +1,6 @@
 # 11 月最好买的东西
 
-> 原文:[https://life hacker . com/the-best-things-to-buy-in-11-5958292](https://lifehacker.com/the-best-things-to-buy-in-november-5958292)
+> 原文：<https://lifehacker.com/the-best-things-to-buy-in-november-5958292>
 
 气温在下降，假期很快就要到了。如果你想在假期购物时抢先一步，这里有 11 月份最好买的东西。
 

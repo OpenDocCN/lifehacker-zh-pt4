@@ -1,6 +1,6 @@
 # 这些自己动手做的厕所药片能冲破堵塞的下水道
 
-> 原文:[https://life hacker . com/these-DIY-toilet-tablets-bust-through-blocked-drains-1490607953](https://lifehacker.com/these-diy-toilet-tablets-bust-through-clogged-drains-1490607953)
+> 原文：<https://lifehacker.com/these-diy-toilet-tablets-bust-through-clogged-drains-1490607953>
 
 我们之前已经讨论过疏通下水道的最好方法，但是这些方便的马桶清洁药片有助于在你的马桶停止冲水的时候使用。另外，它们很容易制作。
 

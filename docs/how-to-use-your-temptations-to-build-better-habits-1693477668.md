@@ -1,6 +1,6 @@
 # 如何利用你的诱惑来培养更好的习惯
 
-> 原文:[https://life hacker . com/how-to-use-your-temperatures-to-build-better-habits-1693477668](https://lifehacker.com/how-to-use-your-temptations-to-build-better-habits-1693477668)
+> 原文：<https://lifehacker.com/how-to-use-your-temptations-to-build-better-habits-1693477668>
 
 养成习惯就像训练一只狗——你想因为出色的工作而奖励自己。但是没有说你必须在你的“良好行为”之后享受那种奖励。另一个技巧叫做“ [”诱惑捆绑](http://knowledge.wharton.upenn.edu/article/researchers-used-hunger-games-encourage-healthier-choices/) ，“让你享受你的奖励*，同时*你建立习惯，它可以是一个非常强大的工具。
 

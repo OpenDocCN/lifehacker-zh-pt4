@@ -1,6 +1,6 @@
 # 为什么你的伴侣忽视你的性要求
 
-> 原文:[https://life hacker . com/why-your-partner-ignores-your-sexual-requests-1699808871](https://lifehacker.com/why-your-partner-ignores-your-sexual-requests-1699808871)
+> 原文：<https://lifehacker.com/why-your-partner-ignores-your-sexual-requests-1699808871>
 
 交流你的性需求是恋爱关系中的一个重要部分，但对我们大多数人来说也是非常困难的。我的许多客户勇敢地提出了他们在床上想要的东西，结果却觉得他们的欲望被忽视了。如果你是这种情况，下面是可能出错的地方。
 

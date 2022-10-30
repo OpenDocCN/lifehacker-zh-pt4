@@ -1,6 +1,6 @@
 # 成年后可以开始的有趣运动
 
-> 原文:[https://life hacker . com/fun-sports-you-can-start-as a-adult-1697785955](https://lifehacker.com/fun-sports-you-can-start-as-an-adult-1697785955)
+> 原文：<https://lifehacker.com/fun-sports-you-can-start-as-an-adult-1697785955>
 
 还记得当你还是个孩子的时候，你可以和你的朋友一起玩篮球游戏，或者(在向你的父母乞讨之后)报名参加几十种运动中的任何一种吗？那些日子不一定要成为过去。实际上有很多运动和活动对我们成年人开放。这里有几个。
 

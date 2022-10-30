@@ -1,6 +1,6 @@
 # 针对老年人的五种常见骗局(以及如何避免)
 
-> 原文:[https://life hacker . com/five-common-scams-directed-for-seniors-and-how-to-avoid-1709825135](https://lifehacker.com/five-common-scams-directed-at-seniors-and-how-to-avoid-1709825135)
+> 原文：<https://lifehacker.com/five-common-scams-directed-at-seniors-and-how-to-avoid-1709825135>
 
 骗子和身份窃贼会对各种类型的人下手，但最容易受到这些罪犯攻击的人(通常也是他们的目标)是老年人。从令人信服的“反向抵押贷款”广告到声称来自政府的咄咄逼人的电话，这里有一些针对老年人的最常见的骗局，以及如何避免它们或帮助你的亲属避免它们。
 

@@ -1,6 +1,6 @@
 # 生活方式的改变可以逆转衰老的第一个证据
 
-> 原文:[https://gizmodo . com/the-first-evidence-that-life-changes-can-reverse-a-1333609434](https://gizmodo.com/the-first-evidence-that-lifestyle-changes-can-reverse-a-1333609434)
+> 原文：<https://gizmodo.com/the-first-evidence-that-lifestyle-changes-can-reverse-a-1333609434>
 
 一项新的五年试点研究表明，生活方式的改变，如改善饮食、锻炼和压力管理，可能有助于在细胞水平上逆转衰老过程。尽管这一发现令人兴奋，但我们离众所周知的青春之泉还很远。
 

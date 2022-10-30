@@ -1,6 +1,6 @@
 # 最好的文件加密工具是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-file-encryption-tool-1683834660](https://lifehacker.com/whats-the-best-file-encryption-tool-1683834660)
+> 原文：<https://lifehacker.com/whats-the-best-file-encryption-tool-1683834660>
 
 时代已经变了，很多工具来来去去都是为了加密你的数据，使其免受窥探或数据窃贼的攻击。是时候焕然一新了。您使用哪些应用程序来保护您的敏感数据安全，并以只有您拥有密钥的方式进行锁定？
 

@@ -1,6 +1,6 @@
 # 使用不可信的 USB 驱动器有什么危险？
 
-> 原文:[https://life hacker . com/what-is-the-dangers-of-use-an-trusted-USB-drive-1533523741](https://lifehacker.com/what-are-the-dangers-of-using-an-untrusted-usb-drive-1533523741)
+> 原文：<https://lifehacker.com/what-are-the-dangers-of-using-an-untrusted-usb-drive-1533523741>
 
 u 盘、笔驱动、记忆棒——它们不一定像你想象的那样无害。在你插入一个你不是 100%信任的之前，想想可能会出什么问题(提示:很多)。超级用户在 [*栈交换*](http://superuser.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=superuser-107) *列举了几个非常现实的 USB 噩梦场景。*
 

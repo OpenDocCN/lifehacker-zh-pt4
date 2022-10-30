@@ -1,6 +1,6 @@
 # 在你的电饭锅里做一个巨大的煎饼
 
-> 原文:[https://life hacker . com/make-a giant-pancake-in-your-饭锅-1592047844](https://lifehacker.com/make-a-giant-pancake-in-your-rice-cooker-1592047844)
+> 原文：<https://lifehacker.com/make-a-giant-pancake-in-your-rice-cooker-1592047844>
 
 电饭煲不仅仅是为了米饭。让 [这款超级多功能设备](https://lifehacker.com/repurpose-your-rice-cooker-to-make-tasty-one-pot-meals-5462822) 投入工作，制作一个史诗般的煎饼。
 

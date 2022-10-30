@@ -1,6 +1,6 @@
 # 如何开始使用黑胶唱片
 
-> 原文:[https://gizmodo . com/how-to-get-started-with-vinyl-records-1708515307](https://gizmodo.com/how-to-get-started-with-vinyl-records-1708515307)
+> 原文：<https://gizmodo.com/how-to-get-started-with-vinyl-records-1708515307>
 
 所以你想在你的客厅里开始旋转唱片。这是我在过去几年里给像你一样的 00b 们的一些建议。开始可能会令人生畏，但也不尽然。也不一定要贵。以下是开始的方法。
 

@@ -1,6 +1,6 @@
 # 为什么你的大脑会做出虚伪的决定(以及如何应对)
 
-> 原文:[https://life hacker . com/why-your-brain-make-伪善的决定和什么-t-1575615447](https://lifehacker.com/why-your-brain-makes-hypocritical-decisions-and-what-t-1575615447)
+> 原文：<https://lifehacker.com/why-your-brain-makes-hypocritical-decisions-and-what-t-1575615447>
 
 我有一些坏消息要告诉你。你可能一生中做过不少虚伪的决定。我们都这样做。好消息是:你可以学会避免妥协你的信仰。
 

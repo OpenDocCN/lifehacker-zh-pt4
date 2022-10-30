@@ -1,6 +1,6 @@
 # 我是金特里·安德伍德，这是邮箱背后的故事
 
-> 原文:[https://life hacker . com/im-gentry-Underwood-and-this-is-the-story-behind-mail-1463827517](https://lifehacker.com/im-gentry-underwood-and-this-is-the-story-behind-mail-1463827517)
+> 原文：<https://lifehacker.com/im-gentry-underwood-and-this-is-the-story-behind-mail-1463827517>
 
 邮箱是我们见过的 iOS 版 [最好的 Gmail 应用](https://lifehacker.com/mailbox-is-the-best-gmail-client-weve-seen-for-ios-5982592) 之一。Mailbox 最近被 Dropbox 收购，它的超级干净设计和基于手势的界面使它可以轻松地整理杂乱的信息，并掌握你的收件箱。你可以快速存档电子邮件，“暂停”邮件以备后用，并将电子邮件变成待办事项。我们与联合创始人兼首席执行官 Gentry Underwood 聊天，了解 Mailbox 是如何诞生的。
 

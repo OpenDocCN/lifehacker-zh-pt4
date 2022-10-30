@@ -1,6 +1,6 @@
 # 如何应对电子游戏引发的愤怒
 
-> 原文:[https://life hacker . com/how-to-deal-your-video-game-induced-anger-1701348056](https://lifehacker.com/how-to-deal-with-your-video-game-induced-anger-1701348056)
+> 原文：<https://lifehacker.com/how-to-deal-with-your-video-game-induced-anger-1701348056>
 
 你把那个老板弄得只剩下一点健康了。再来一次就完事了。然后，不知从哪里，他的斧头横扫而来，砍倒了你最后一点生命...又来了。你的控制器在房间里飞来飞去，嘴里发出咒骂声。听起来熟悉吗？游戏引发的愤怒糟透了。以下是保持控制的方法。
 

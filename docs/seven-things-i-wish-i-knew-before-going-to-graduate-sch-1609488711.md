@@ -1,6 +1,6 @@
 # 读研前我希望知道的七件事
 
-> 原文:[https://life hacker . com/seven-things-I-wish-I-know-before-to-graduate-sch-1609488711](https://lifehacker.com/seven-things-i-wish-i-knew-before-going-to-graduate-sch-1609488711)
+> 原文：<https://lifehacker.com/seven-things-i-wish-i-knew-before-going-to-graduate-sch-1609488711>
 
 我们已经讨论了一些重要的事情，如果你要去上大学 ，但是如果你要去读研究生，游戏就变了。在许多领域，这几乎是必须的，即使不是，也有必要让你在竞争中脱颖而出。如果这听起来很熟悉，这里有一些我们希望在追求更高学位时就知道的事情。
 

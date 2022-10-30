@@ -1,6 +1,6 @@
 # 薪酬最高的编程技能、工作和公司类型
 
-> 原文:[https://life hacker . com/the-programming-skills-jobs-and-company-types-that-pa-1692152608](https://lifehacker.com/the-programming-skills-jobs-and-company-types-that-pa-1692152608)
+> 原文：<https://lifehacker.com/the-programming-skills-jobs-and-company-types-that-pa-1692152608>
 
 随着高工作需求和高薪，编程是目前最有吸引力的职业之一。不过，在这个领域内，薪酬差异很大。
 

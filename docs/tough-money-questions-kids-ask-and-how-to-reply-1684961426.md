@@ -1,6 +1,6 @@
 # 孩子们问的棘手的金钱问题，以及如何回答
 
-> 原文:[https://life hacker . com/tough-money-questions-kids-ask-and-how-to-reply-1684961426](https://lifehacker.com/tough-money-questions-kids-ask-and-how-to-reply-1684961426)
+> 原文：<https://lifehacker.com/tough-money-questions-kids-ask-and-how-to-reply-1684961426>
 
 孩子们会问一些关于钱的尴尬问题。为了教他们健康的财务行为，你想给他们最好的答案，但这些答案并不总是显而易见的。以下是孩子们问的一些常见的金钱问题，以及你如何最好地回答这些问题。
 

@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名考古学家我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-a-an-考古学家-1693342183](https://lifehacker.com/career-spotlight-what-i-do-as-an-archaeologist-1693342183)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-an-archaeologist-1693342183>
 
 随着考古成为老式冒险故事的背景，你可能会对成为一名考古学家有一些不同的想法。不出所料，真相与其说是寻宝，不如说是对历史遗迹的系统分析。
 

@@ -1,6 +1,6 @@
 # 如何在购买之前尝试难找的产品
 
-> 原文:[https://life hacker . com/how-to-try-hard-to-find-products-before-you-buy-them-1656868874](https://lifehacker.com/how-to-try-hard-to-find-products-before-you-buy-them-1656868874)
+> 原文：<https://lifehacker.com/how-to-try-hard-to-find-products-before-you-buy-them-1656868874>
 
 当你去买耳机、高清电视和其他昂贵的设备时，调查是有帮助的，但是没有什么比买之前先试一试更好的了。这似乎很难，尤其是在电子设备方面，但并非不可能。这里有一些技巧，可以让你在花一大笔钱之前，就能得到你想要的东西。
 

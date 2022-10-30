@@ -1,6 +1,6 @@
 # 今年春天的时令是什么:最新鲜的农产品及其使用方法
 
-> 原文:[https://life hacker . com/whats-in-season-this-spring-the-fresh-product-and-h-1701122289](https://lifehacker.com/whats-in-season-this-spring-the-freshest-produce-and-h-1701122289)
+> 原文：<https://lifehacker.com/whats-in-season-this-spring-the-freshest-produce-and-h-1701122289>
 
 点击下个月的农贸市场，你将会遇到今年最好的农产品。此时此刻，一些水果和蔬菜要么正处于最嫩最绿的状态，要么正在短暂展示，直到第二年春天才会消失。如果你想在有机会的时候享受它，这里有一些要寻找的东西和如何准备它。
 

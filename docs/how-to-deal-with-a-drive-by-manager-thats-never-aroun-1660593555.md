@@ -1,6 +1,6 @@
 # 如何应对一个从来不在身边的“冷漠”经理
 
-> 原文:[https://life hacker . com/how-to-deal-a-drive-by-manager-than-never-around-1660593555](https://lifehacker.com/how-to-deal-with-a-drive-by-manager-thats-never-aroun-1660593555)
+> 原文：<https://lifehacker.com/how-to-deal-with-a-drive-by-manager-thats-never-aroun-1660593555>
 
 想象一下:你的老板停在你的办公桌旁，漫不经心地列出了六件他们希望你做的事情。然后，在你有时间问他们澄清问题之前，他们就消失了。那是可怕的驾车经理。他们可能是好意(也可能不是)，但你需要适应、调整和“管理”。这里有几种方法可以做到这一点。
 

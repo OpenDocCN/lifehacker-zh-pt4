@@ -1,6 +1,6 @@
 # 如何在这个夏天为海滩准备好你所有的小玩意
 
-> 原文:[https://life hacker . com/how-to-get-all-your-gadgets-ready-to-the-beach-this-su-5916747](https://lifehacker.com/how-to-get-all-your-gadgets-ready-for-the-beach-this-su-5916747)
+> 原文：<https://lifehacker.com/how-to-get-all-your-gadgets-ready-for-the-beach-this-su-5916747>
 
 夏天的天气即将来临，这意味着是时候去海滩了——但是如果你已经开始在平板电脑或电子书阅读器等小工具上阅读，那么在你带着它们去冲浪之前，你可能需要做一些调整。以下是你需要知道的。
 

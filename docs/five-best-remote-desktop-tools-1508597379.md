@@ -1,6 +1,6 @@
 # 五个最好的远程桌面工具
 
-> 原文:[https://life hacker . com/five-best-remote-desktop-tools-1508597379](https://lifehacker.com/five-best-remote-desktop-tools-1508597379)
+> 原文：<https://lifehacker.com/five-best-remote-desktop-tools-1508597379>
 
 当您有一个好的远程桌面实用程序可以依赖时，远程管理您自己的计算机或在不在计算机前的情况下对家庭成员的计算机进行故障诊断会容易得多。本周，我们将根据您的提名，来看看五款最佳远程桌面和管理工具。
 

@@ -1,6 +1,6 @@
 # 作为一名自由职业者，如何确保获得报酬
 
-> 原文:[https://life hacker . com/how-to-assure-you-get-payed as-a-freelancer-1665344682](https://lifehacker.com/how-to-ensure-you-get-paid-as-a-freelancer-1665344682)
+> 原文：<https://lifehacker.com/how-to-ensure-you-get-paid-as-a-freelancer-1665344682>
 
 自由职业者最有压力的方面之一是确保你的客户确实为你的辛勤工作支付报酬。没有什么比在你还没有拿到支票的情况下，客户不断要求更多的工作更令人沮丧的了。以下是你可以做的，以确保你得到报酬。
 

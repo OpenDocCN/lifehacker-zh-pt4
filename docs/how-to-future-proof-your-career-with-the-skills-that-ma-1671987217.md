@@ -1,6 +1,6 @@
 # 如何用重要的技能来证明你的职业生涯
 
-> 原文:[https://life hacker . com/how-to-future-proof-your-the-skills-that-ma-1671987217](https://lifehacker.com/how-to-future-proof-your-career-with-the-skills-that-ma-1671987217)
+> 原文：<https://lifehacker.com/how-to-future-proof-your-career-with-the-skills-that-ma-1671987217>
 
 就业市场可能会很可怕，但有了经得起时间考验的技能，你就能增加保住工作的几率。以下是如何发现和发展面向未来的技能，这样无论发生什么，你都可以保持稳定的收入。
 

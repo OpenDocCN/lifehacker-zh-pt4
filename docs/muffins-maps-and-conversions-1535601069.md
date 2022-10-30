@@ -1,6 +1,6 @@
 # 松饼、地图和皈依
 
-> 原文:[https://life hacker . com/muffins-maps-and-conversions-1535601069](https://lifehacker.com/muffins-maps-and-conversions-1535601069)
+> 原文：<https://lifehacker.com/muffins-maps-and-conversions-1535601069>
 
 读者提供了制作松饼时减少混乱的最佳建议，使用谷歌地图画廊，烹饪时将体积转换为重量。
 

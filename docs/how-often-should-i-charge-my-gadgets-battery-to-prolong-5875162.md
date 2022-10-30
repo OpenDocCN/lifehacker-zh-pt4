@@ -1,6 +1,6 @@
 # 为了延长电池寿命，我应该多久给它充电一次？
 
-> 原文:[https://life hacker . com/how-frequency-I-should-I-charge-my-gadgets-battery-to-prolong-5875162](https://lifehacker.com/how-often-should-i-charge-my-gadgets-battery-to-prolong-5875162)
+> 原文：<https://lifehacker.com/how-often-should-i-charge-my-gadgets-battery-to-prolong-5875162>
 
 亲爱的 Lifehacker，
 锂离子电池(智能手机和笔记本电脑中的那种)是怎么回事？我听说过很多关于如何照顾它们的不同事情，比如它们需要保持 40%到 80%的电量，或者它们应该完全耗尽并充电到 100%。保持良好的电池寿命与电池健康比率的理想方法是什么？

@@ -1,6 +1,6 @@
 # 通过这些简单的练习，消除整天站着的痛苦
 
-> 原文:[https://life hacker . com/take-the-pain-out-of-standing-all-day with this-simple-1482600741](https://lifehacker.com/take-the-pain-out-of-standing-all-day-with-these-simple-1482600741)
+> 原文：<https://lifehacker.com/take-the-pain-out-of-standing-all-day-with-these-simple-1482600741>
 
 整天坐着对你的健康不利，但是一直站着也可以。无论你是否已经 [采用了站立式办公桌](http://lifehacker.com/tag/standing-desk) 或者你的工作需要你经常站立，这里有一些你可以做的运动来抵消站立的压力。
 

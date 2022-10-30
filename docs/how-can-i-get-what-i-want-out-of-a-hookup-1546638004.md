@@ -1,6 +1,6 @@
 # 我怎样才能从约会中得到我想要的？
 
-> 原文:[https://life hacker . com/how-can-I-get-what-I-want-out-a-hook up-1546638004](https://lifehacker.com/how-can-i-get-what-i-want-out-of-a-hookup-1546638004)
+> 原文：<https://lifehacker.com/how-can-i-get-what-i-want-out-of-a-hookup-1546638004>
 
 亲爱的生活黑客(下班后)，
 我年轻，有事业心。我现在不想要一段感情，甚至不想要有利益的朋友。我确实希望我的性需求得到满足，我可以通过随意的性行为来达到这个目的。也就是说，勾搭就这样发生了，你没有机会谈论你喜欢什么和不喜欢什么。有没有好的方法可以做到这一点，并确保我的随意性行为不会很糟糕？

@@ -1,6 +1,6 @@
 # 2014 年最受欢迎的妙用和妙招
 
-> 原文:[https://life hacker . com/most-popular-clever-uses-and-macgyver-tips-of-2014-1671871559](https://lifehacker.com/most-popular-clever-uses-and-macgyver-tips-of-2014-1671871559)
+> 原文：<https://lifehacker.com/most-popular-clever-uses-and-macgyver-tips-of-2014-1671871559>
 
 今年是聪明的一年，你可以想出不同的方法来处理家里的东西。正确的工具应该用在正确的工作上，但是有时候创新比任何工具都好。
 

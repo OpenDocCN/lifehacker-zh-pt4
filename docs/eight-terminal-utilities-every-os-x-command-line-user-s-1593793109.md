@@ -1,6 +1,6 @@
 # 每个 OS X 命令行用户都应该知道的八个终端实用程序
 
-> 原文:[https://life hacker . com/eight-terminal-utilities-every-OS-x-command-line-user-s-1593793109](https://lifehacker.com/eight-terminal-utilities-every-os-x-command-line-user-s-1593793109)
+> 原文：<https://lifehacker.com/eight-terminal-utilities-every-os-x-command-line-user-s-1593793109>
 
 OS X 终端打开了一个强大的 UNIX 实用程序和脚本的世界。如果您正在从 Linux 迁移，您会发现许多熟悉的命令以您期望的方式工作。但是高级用户通常不知道 OS X 自带了一些在其他操作系统上找不到的基于文本的工具。
 

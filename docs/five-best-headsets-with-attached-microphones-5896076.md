@@ -1,6 +1,6 @@
 # 五款附带麦克风的最佳耳机
 
-> 原文:[https://life hacker . com/five-best-耳机附麦克风-5896076](https://lifehacker.com/five-best-headsets-with-attached-microphones-5896076)
+> 原文：<https://lifehacker.com/five-best-headsets-with-attached-microphones-5896076>
 
 无论您是在玩游戏、打视频电话、听音乐，还是三者兼而有之，一款好的耳机都会带来巨大的不同。市场上有成吨的选择，其中很多都很好，但本周我们将根据您的提名，选出五个最好的。
 

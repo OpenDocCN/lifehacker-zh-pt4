@@ -1,6 +1,6 @@
 # 最好的电视调谐卡是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-TV-tuner-card-1599369128](https://lifehacker.com/whats-the-best-tv-tuner-card-1599369128)
+> 原文：<https://lifehacker.com/whats-the-best-tv-tuner-card-1599369128>
 
 在讨论了如何将广播电视流传输到您的电脑上之后在 Aereo 的决定之后，你们中的许多人建议使用电视调谐器在您的电脑上接收电视信号。本周，我们想知道你认为哪些是最好的。
 

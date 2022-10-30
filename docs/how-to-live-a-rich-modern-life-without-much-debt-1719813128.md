@@ -1,6 +1,6 @@
 # 如何在没有太多债务的情况下过上富裕的现代生活
 
-> 原文:[https://life hacker . com/how-to-live-a rich-modern-life-not more-debt-1719813128](https://lifehacker.com/how-to-live-a-rich-modern-life-without-much-debt-1719813128)
+> 原文：<https://lifehacker.com/how-to-live-a-rich-modern-life-without-much-debt-1719813128>
 
 我成年后最大的遗憾是，大学毕业后，我用债务来为自己的人生选择融资。这是我能做的最简单的事了。债务是 T2 的一个巨大错误。
 

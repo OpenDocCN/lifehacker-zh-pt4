@@ -1,6 +1,6 @@
 # 如何防止手机破坏你们的关系
 
-> 原文:[https://life hacker . com/how-to-prevent-your-cell-phone-ruiti-1702870249](https://lifehacker.com/how-to-prevent-your-cell-phone-from-ruining-your-relati-1702870249)
+> 原文：<https://lifehacker.com/how-to-prevent-your-cell-phone-from-ruining-your-relati-1702870249>
 
 不言而喻，我们大多数人都过度依赖手机。而且，虽然我们中的许多人都意识到我们有不好的手机习惯，但许多人并没有积极努力去改变，即使他们的使用影响了他们的关系。这里有一些简单的策略，你可以用来确保你的手机不会破坏你们的关系。
 

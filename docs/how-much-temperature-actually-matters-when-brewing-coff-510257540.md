@@ -1,6 +1,6 @@
 # 冲咖啡时温度到底有多重要
 
-> 原文:[https://life hacker . com/how-more-temperature-actually-matters-when-brewing-coff-510257540](https://lifehacker.com/how-much-temperature-actually-matters-when-brewing-coff-510257540)
+> 原文：<https://lifehacker.com/how-much-temperature-actually-matters-when-brewing-coff-510257540>
 
  [https://lifehacker.com/embed/inset/iframe?id=vimeo-65761825](https://lifehacker.com/embed/inset/iframe?id=vimeo-65761825) 
 

@@ -1,6 +1,6 @@
 # 自我意识的重要性，以及如何变得更加自我意识
 
-> 原文:[https://life hacker . com/the-importance of-self-awareness-and-how-to-be-mor-1624744518](https://lifehacker.com/the-importance-of-self-awareness-and-how-to-become-mor-1624744518)
+> 原文：<https://lifehacker.com/the-importance-of-self-awareness-and-how-to-become-mor-1624744518>
 
 他们说第一步是承认你有问题，这在生活的每个方面都是正确的。自我意识和自省听起来像自助大师的空洞承诺，但它们是导致每一次进步的起点。
 

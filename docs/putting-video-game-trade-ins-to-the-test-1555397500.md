@@ -1,6 +1,6 @@
 # 测试电子游戏折价物
 
-> 原文:[https://kotaku . com/puting-video-game-trade-ins-to-the-test-1555397500](https://kotaku.com/putting-video-game-trade-ins-to-the-test-1555397500)
+> 原文：<https://kotaku.com/putting-video-game-trade-ins-to-the-test-1555397500>
 
 还记得那次你带着一个装满游戏的购物袋走进一家大型连锁店，以为你要大捞一笔，结果却带着一张购物卡离开，里面的钱几乎不够买一个新游戏。你当然知道；我们都经历过。
 

@@ -1,6 +1,6 @@
 # 如何开始管理你的钱，对于那些从来没有学会长大的人
 
-> 原文:[https://life hacker . com/how-to-manage-your money-that ' s never-learned-g-1703892260](https://lifehacker.com/how-to-manage-your-money-for-those-who-never-learned-g-1703892260)
+> 原文：<https://lifehacker.com/how-to-manage-your-money-for-those-who-never-learned-g-1703892260>
 
 你如何管理、花费和投资你的钱会对你的生活产生深远的影响，然而很少有学校教授这些重要的技能。学习财务知识可能需要一段时间，但基础知识相当简单，永远不要改变 T2 和 T3。这里是开始的地方。
 

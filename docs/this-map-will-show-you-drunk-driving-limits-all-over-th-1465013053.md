@@ -1,6 +1,6 @@
 # 这张地图将显示世界各地的酒后驾驶限制
 
-> 原文:[https://jalopnik . com/this-map-will-show-you-due-driving-limits-all-over-th-1465013053](https://jalopnik.com/this-map-will-show-you-drunk-driving-limits-all-over-th-1465013053)
+> 原文：<https://jalopnik.com/this-map-will-show-you-drunk-driving-limits-all-over-th-1465013053>
 
 你生活在地球上，开着车，偶尔喝酒吗？那么这张地图对你来说可能会很方便。它显示了每个国家用来决定你是否开车的血液酒精含量，尽管你真的不应该开车。另外，郑重声明，永远不要酒后驾车，好吗？太好了。问题解决了。
 

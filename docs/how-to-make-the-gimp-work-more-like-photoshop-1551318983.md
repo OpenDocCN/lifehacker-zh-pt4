@@ -1,6 +1,6 @@
 # 如何让 GIMP 工作起来更像 Photoshop
 
-> 原文:[https://life hacker . com/how-to-make-the-gimp-work-more-like-Photoshop-1551318983](https://lifehacker.com/how-to-make-the-gimp-work-more-like-photoshop-1551318983)
+> 原文：<https://lifehacker.com/how-to-make-the-gimp-work-more-like-photoshop-1551318983>
 
 六个月前，我停止使用 Adobe Photoshop，转而使用开源软件 GIMP 来完成我所有的个人摄影项目。这并不是大多数人认为的不可能完成的任务。
 

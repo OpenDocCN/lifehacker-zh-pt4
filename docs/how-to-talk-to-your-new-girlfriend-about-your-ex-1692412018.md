@@ -1,6 +1,6 @@
 # 如何和新女友聊前任
 
-> 原文:[https://deadspin . com/how-to-talk to-your ' s new-friend 关于你的前女友 1692412018](https://deadspin.com/how-to-talk-to-your-new-girlfriend-about-your-ex-1692412018)
+> 原文：<https://deadspin.com/how-to-talk-to-your-new-girlfriend-about-your-ex-1692412018>
 
 首先也是最重要的，祝贺你决定把你的性交部位和另一个人的性交部位放在一起，这比你在分手后在火绒上苦苦挣扎时把性交部位和别人放在一起更有意义。事情可能很好:你们两个已经停止使用避孕套，你已经在你的无缝账户中保存了她的地址，你们甚至可能已经在做屁屁的事情了。
 

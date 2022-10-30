@@ -1,6 +1,6 @@
 # 你最糟糕的工作面试恐怖故事
 
-> 原文:[https://life hacker . com/the-worst-job-interview-terror-stories-1703736956](https://lifehacker.com/the-worst-job-interview-horror-stories-1703736956)
+> 原文：<https://lifehacker.com/the-worst-job-interview-horror-stories-1703736956>
 
 没有什么比一场糟糕的面试更能消磨一份可能的新工作的兴奋感了。上周 [我们问你](https://lifehacker.com/tell-us-your-worst-job-interview-experiences-1702967168) 你最糟糕的工作面试是什么样的，你回答了。以下是你讲述的最噩梦般的经历。
 

@@ -1,6 +1,6 @@
 # 工具学校:用多功能角向磨光机切割、研磨和抛光
 
-> 原文:[https://life hacker . com/tool-school-cut-grin-and-polish-with-the-versatile-1704087196](https://lifehacker.com/tool-school-cut-grind-and-polish-with-the-versatile-1704087196)
+> 原文：<https://lifehacker.com/tool-school-cut-grind-and-polish-with-the-versatile-1704087196>
 
 你不会找到比角磨机更通用或更无情的工具。它们很吵，也很危险，但对于无法用其他方式完成的工作来说却是不可或缺的。
 

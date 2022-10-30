@@ -1,6 +1,6 @@
 # 如何掌握工作与生活的融合，并在你的时间表中找到和谐
 
-> 原文:[https://life hacker . com/how-to-master-work-life-integration-and-find-harmony-in-1676665786](https://lifehacker.com/how-to-master-work-life-integration-and-find-harmony-in-1676665786)
+> 原文：<https://lifehacker.com/how-to-master-work-life-integration-and-find-harmony-in-1676665786>
 
 据报道，美国成年人平均每周工作 47 个小时，所以找到时间来区分生活需求是如此困难也就不足为奇了。然而，整合你的工作和生活可能比试图强行划定不可能遵守的界限要好。下面是怎么做的。
 

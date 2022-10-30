@@ -1,6 +1,6 @@
 # 我们希望看到永远退休的 10 个伪科学理论
 
-> 原文:[https://gizmodo . com/10-伪科学-理论-wed-like-to-see-retired-fore-1592128908](https://gizmodo.com/10-pseudo-science-theories-wed-like-to-see-retired-fore-1592128908)
+> 原文：<https://gizmodo.com/10-pseudo-science-theories-wed-like-to-see-retired-fore-1592128908>
 
 伪科学理论有点像小狗。它们是有趣的、可以谈论的轻松话题，而且大多数时候它们是无害的。然而，有时它们变得又大又凶，咄咄逼人，不得不被消灭。这里有几个伪科学理论，需要老黄历处理。
 

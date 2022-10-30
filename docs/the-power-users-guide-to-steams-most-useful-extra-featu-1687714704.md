@@ -1,6 +1,6 @@
 # Steam 最有用的额外特性的超级用户指南
 
-> 原文:[https://life hacker . com/the-power-users-guide-to-steams-most-useful-extra-featu-1687714704](https://lifehacker.com/the-power-users-guide-to-steams-most-useful-extra-featu-1687714704)
+> 原文：<https://lifehacker.com/the-power-users-guide-to-steams-most-useful-extra-featu-1687714704>
 
 Steam 是 PC 上的游戏巨头。虽然每个人都知道 [管理你的游戏库](https://lifehacker.com/how-to-keep-your-overflowing-steam-library-neatly-organ-1352077149) 和 [得到甜蜜的交易](http://lifehacker.com/how-to-make-the-most-of-the-steam-summer-sale-735529736) 很棒，但在表面之下隐藏着大量强大的工具。这里有一些最好的。
 

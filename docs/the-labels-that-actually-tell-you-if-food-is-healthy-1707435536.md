@@ -1,6 +1,6 @@
 # 这些标签实际上告诉你食物是否健康
 
-> 原文:[https://life hacker . com/the-labels-that-actually-tell-you-if-food-is-healthy-1707435536](https://lifehacker.com/the-labels-that-actually-tell-you-if-food-is-healthy-1707435536)
+> 原文：<https://lifehacker.com/the-labels-that-actually-tell-you-if-food-is-healthy-1707435536>
 
 忘记“无脂肪”、“天然”或“用真正的水果制成”食品包装上满是声称 [让你认为你买的东西是健康的](https://lifehacker.com/how-food-marketers-make-you-think-youre-choosing-healt-1694818979) ，但是这些标签对你这个消费者来说是没有用的。以下是如何从令人困惑的标签中辨别出几个有用的标签。
 

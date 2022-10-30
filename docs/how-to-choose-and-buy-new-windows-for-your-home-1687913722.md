@@ -1,6 +1,6 @@
 # 如何为你的家选择和购买新窗户
 
-> 原文:[https://life hacker . com/how-to-choose-and-buy-new-windows-for-your home-1687913722](https://lifehacker.com/how-to-choose-and-buy-new-windows-for-your-home-1687913722)
+> 原文：<https://lifehacker.com/how-to-choose-and-buy-new-windows-for-your-home-1687913722>
 
 新的窗户技术已经有了很大的进步，一套新的窗户可以让你的家更加节能。以下是您在购买新窗户时应该考虑的主要功能和样式。
 

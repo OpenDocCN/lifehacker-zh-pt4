@@ -1,6 +1,6 @@
 # 使用谷歌新的“我的地图”工具的最佳方式
 
-> 原文:[https://life hacker . com/the-best-ways-to-use-Google-new-ish-my-maps-tool-1635833998](https://lifehacker.com/the-best-ways-to-use-googles-new-ish-my-maps-tool-1635833998)
+> 原文：<https://lifehacker.com/the-best-ways-to-use-googles-new-ish-my-maps-tool-1635833998>
 
 昨天，谷歌更新了它的 [早已被遗忘的我的地图工具](https://lifehacker.com/google-revives-my-maps-so-you-can-create-and-share-cust-1635360249) 。这项服务一直伪装成地图引擎精简版，但随着新版本的发布，一款 [闪亮的新 Android 应用](https://play.google.com/store/apps/details?id=com.google.android.apps.m4b) ，以及与谷歌地图的集成，值得知道你可以用它做什么。
 

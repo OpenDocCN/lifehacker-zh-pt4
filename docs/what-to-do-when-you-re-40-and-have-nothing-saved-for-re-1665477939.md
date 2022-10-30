@@ -1,6 +1,6 @@
 # 当你 40 岁的时候，没有任何退休储蓄，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-when-you-re-40 and-have-not-saved-for-re 1665477939](https://lifehacker.com/what-to-do-when-you-re-40-and-have-nothing-saved-for-re-1665477939)
+> 原文：<https://lifehacker.com/what-to-do-when-you-re-40-and-have-nothing-saved-for-re-1665477939>
 
 无论你是靠薪水过活，还是被意外支出搞得措手不及，退休时在银行里一无所有并不理想。
 

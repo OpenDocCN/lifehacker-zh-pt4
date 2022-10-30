@@ -1,6 +1,6 @@
 # 最好的私人 Roku 频道，以及如何安装
 
-> 原文:[https://life hacker . com/the-best-private-Roku-channels-and-how-to-install-them-1700519600](https://lifehacker.com/the-best-private-roku-channels-and-how-to-install-them-1700519600)
+> 原文：<https://lifehacker.com/the-best-private-roku-channels-and-how-to-install-them-1700519600>
 
 就好像 Roku 已经没有足够的频道一样，有一个你在频道商店里找不到的体面的“私人”频道选择。这里有一些最好的私人频道值得一看。
 

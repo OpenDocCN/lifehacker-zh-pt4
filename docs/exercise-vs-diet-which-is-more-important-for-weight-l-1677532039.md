@@ -1,6 +1,6 @@
 # 运动与饮食:减肥哪个更重要？
 
-> 原文:[https://life hacker . com/运动与饮食哪个对体重更重要-l-1677532039](https://lifehacker.com/exercise-vs-diet-which-is-more-important-for-weight-l-1677532039)
+> 原文：<https://lifehacker.com/exercise-vs-diet-which-is-more-important-for-weight-l-1677532039>
 
 保持健康很简单，对吗？“少吃点，多动动。”这说起来容易，但在健康和健身方面，实用性是最重要的事情之一。诸如此类的建议都是泛泛而谈，没有提到实用性——那么，当涉及到实用性时，哪个更重要呢？节食，还是运动？
 

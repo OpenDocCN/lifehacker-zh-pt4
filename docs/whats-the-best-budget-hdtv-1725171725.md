@@ -1,6 +1,6 @@
 # 高清电视预算最好是多少？
 
-> 原文:[https://life hacker . com/whats-the-best-budget-HDTV-1725171725](https://lifehacker.com/whats-the-best-budget-hdtv-1725171725)
+> 原文：<https://lifehacker.com/whats-the-best-budget-hdtv-1725171725>
 
 一台好的高清电视不一定会超出你的家庭影院预算。当然，你可以花成千上万的钱买一套杀手级的电视，但更普通的手段并不等于蹩脚的高清。本周，我们正在寻找价格低于 500 美元的高清电视。
 

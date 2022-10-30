@@ -1,6 +1,6 @@
 # 欢迎来到侏罗纪壁纸周三
 
-> 原文:[https://life hacker . com/welcome-to-Jurassic-wallpaper-wedned say-1576502563](https://lifehacker.com/welcome-to-jurassic-wallpaper-wednedsay-1576502563)
+> 原文：<https://lifehacker.com/welcome-to-jurassic-wallpaper-wednedsay-1576502563>
 
 在每个电脑用户的生活中，都会有这样一个时刻，他或她需要用他们的壁纸给哺乳动物带来恐惧。今天，我们用这些可怕而雄伟的恐龙桌面装饰品来满足这种需求。
 

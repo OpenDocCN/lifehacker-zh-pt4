@@ -1,6 +1,6 @@
 # 将你变成电子表格忍者的四项技能
 
-> 原文:[https://life hacker . com/four-skills-that-will-turn-you-a-spread sheet-ninj-1525058930](https://lifehacker.com/four-skills-that-will-turn-you-into-a-spreadsheet-ninj-1525058930)
+> 原文：<https://lifehacker.com/four-skills-that-will-turn-you-into-a-spreadsheet-ninj-1525058930>
 
 电子表格是你在成年生活中遇到的最神秘的软件之一。尽管它们可能很可怕，但是你可以用四个简单的技巧做很多事情。
 

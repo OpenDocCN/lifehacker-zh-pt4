@@ -1,6 +1,6 @@
 # 债务的诉讼时效是什么？
 
-> 原文:[https://life hacker . com/what ' s-the-status-of-instruction-on-debt-1614654013](https://lifehacker.com/what-is-the-statute-of-limitations-on-debt-1614654013)
+> 原文：<https://lifehacker.com/what-is-the-statute-of-limitations-on-debt-1614654013>
 
 债务有到期日吗？不完全是——但是有一个诉讼时效。诉讼时效规定了债权人何时可以起诉你偿还未付债务，这取决于多种因素。了解它是如何决定的，你可能会避免一些财务上的愚蠢行为。
 

@@ -1,6 +1,6 @@
 # Linus Torvalds 的家庭办公室(配有移动办公桌和 3D 打印机)
 
-> 原文:[https://life hacker . com/Linus-Torvalds-home-office-with-walking-desk-and-3d-pr-1617261060](https://lifehacker.com/linus-torvalds-home-office-with-walking-desk-and-3d-pr-1617261060)
+> 原文：<https://lifehacker.com/linus-torvalds-home-office-with-walking-desk-and-3d-pr-1617261060>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-HSgUPqygAww&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-HSgUPqygAww&start=0) 
 

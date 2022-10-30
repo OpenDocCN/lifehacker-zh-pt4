@@ -1,6 +1,6 @@
 # 线框均衡器桌面
 
-> 原文:[https://life hacker . com/the-wire frame-equalizer-desktop-1707357871](https://lifehacker.com/the-wireframe-equalizer-desktop-1707357871)
+> 原文：<https://lifehacker.com/the-wireframe-equalizer-desktop-1707357871>
 
 这个漂亮的桌面来自于 Flickr 用户 [ImminentFate](https://www.flickr.com/photos/116237792@N02/) ，他显然想要一些动态和有趣的东西，但设置起来仍然很简单。他是这样设计的。
 

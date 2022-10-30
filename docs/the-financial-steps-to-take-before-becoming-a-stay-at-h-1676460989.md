@@ -1,6 +1,6 @@
 # 成为全职父母前需要采取的财务措施
 
-> 原文:[https://life hacker . com/the-financial-steps-to-take before-a-stay-at-h-1676460989](https://lifehacker.com/the-financial-steps-to-take-before-becoming-a-stay-at-h-1676460989)
+> 原文：<https://lifehacker.com/the-financial-steps-to-take-before-becoming-a-stay-at-h-1676460989>
 
 做全职妈妈有很多好处，但如果你不小心的话，它会让你的财务状况付出很大代价。你对自己的储蓄、支出和债务越了解，就越容易实现转变。如果你正在考虑成为全职妈妈，这里有一些你需要做的事情，在经济上。
 

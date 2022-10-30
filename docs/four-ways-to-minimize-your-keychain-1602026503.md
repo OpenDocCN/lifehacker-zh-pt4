@@ -1,6 +1,6 @@
 # 最小化钥匙串的四种方法
 
-> 原文:[https://life hacker . com/four-ways-to-minimize-your-keychain-1602026503](https://lifehacker.com/four-ways-to-minimize-your-keychain-1602026503)
+> 原文：<https://lifehacker.com/four-ways-to-minimize-your-keychain-1602026503>
 
 如果你不小心，你的钥匙圈会很快失去控制。在你意识到之前，你会有五把钥匙，用来存放你不再拥有的东西，一大堆奖励卡，以及一些你并不真正需要的工具。你可以用很多方法处理这种情况。让我们来看几个最好的。
 

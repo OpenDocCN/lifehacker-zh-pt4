@@ -1,6 +1,6 @@
 # 介绍 Wayfarer:一个关于更好旅行的 Lifehacker 博客
 
-> 原文:[https://life hacker . com/introducing-way farer-a-life hacker-blog-about-better-tr-1613406108](https://lifehacker.com/introducing-wayfarer-a-lifehacker-blog-about-better-tr-1613406108)
+> 原文：<https://lifehacker.com/introducing-wayfarer-a-lifehacker-blog-about-better-tr-1613406108>
 
 你是个旅行迷吗？你觉得在一个地方呆太久很难吗？那么 Lifehacker 的新子博客 Wayfarer 就是适合你的网站。
 

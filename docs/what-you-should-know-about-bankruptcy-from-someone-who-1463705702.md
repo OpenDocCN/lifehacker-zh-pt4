@@ -1,6 +1,6 @@
 # 关于破产你应该知道什么(从经历过的人那里)
 
-> 原文:[https://life hacker . com/what-you-should-know-on-someone-who-1463705702](https://lifehacker.com/what-you-should-know-about-bankruptcy-from-someone-who-1463705702)
+> 原文：<https://lifehacker.com/what-you-should-know-about-bankruptcy-from-someone-who-1463705702>
 
 24 岁的时候，我在财务和个人方面都处于一个很好的位置。我有一份全职工作，我梦想中的公寓，还有足够的可支配收入来娱乐自己。当然，我有一点信用卡债务——谁没有呢？—我的车贷有点高，但我并不担心。我赚了足够的钱让事情顺利进行。
 

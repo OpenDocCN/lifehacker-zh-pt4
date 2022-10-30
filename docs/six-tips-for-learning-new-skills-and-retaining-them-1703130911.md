@@ -1,6 +1,6 @@
 # 学习新技能(并保持它们)的六个技巧
 
-> 原文:[https://life hacker . com/six-tips-for-learning-new-skills-and-retaining-them-1703130911](https://lifehacker.com/six-tips-for-learning-new-skills-and-retaining-them-1703130911)
+> 原文：<https://lifehacker.com/six-tips-for-learning-new-skills-and-retaining-them-1703130911>
 
 实现职业目标的很大一部分是学习新技能、新技术、新信息。所有这些都是你可以应用到你的整体成长中的知识。我想和你们分享我学到的关于学习的东西。
 

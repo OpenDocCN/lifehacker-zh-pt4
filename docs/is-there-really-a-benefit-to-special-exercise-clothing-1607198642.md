@@ -1,6 +1,6 @@
 # 特殊运动服装真的有好处吗？
 
-> 原文:[https://life hacker . com/is-there-a benefit-to-special-exercise-clothing-1607198642](https://lifehacker.com/is-there-really-a-benefit-to-special-exercise-clothing-1607198642)
+> 原文：<https://lifehacker.com/is-there-really-a-benefit-to-special-exercise-clothing-1607198642>
 
 我一周锻炼几次，有时当我在健身房时，我看到人们都穿着看起来很疯狂的衣服。穿短裤和棉 t 恤以外的衣服真的有好处吗？
 

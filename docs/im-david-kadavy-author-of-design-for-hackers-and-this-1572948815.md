@@ -1,6 +1,6 @@
 # 我是《黑客设计》的作者大卫·卡达维，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-David-kadavy-author-of-design-for-hacker-and-this-1572948815](https://lifehacker.com/im-david-kadavy-author-of-design-for-hackers-and-this-1572948815)
+> 原文：<https://lifehacker.com/im-david-kadavy-author-of-design-for-hackers-and-this-1572948815>
 
 David Kadavy 是一名设计师出身的作家，他写关于生产力、旅行和设计的文章。他的书 [Design for Hackers](http://www.amazon.com/Design-Hackers-Reverse-Engineering-Beauty/dp/1119998956?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-david-kadavy-author-of-design-for-hackers-and-this-1572948815&asc_source=&tag=kinjalifehackerlink-20) 教导开发者和制造者将好的设计与好的工程相结合的必要性和原则，他当然也设计了自己富有成效的生活——我们可能已经引用过他十几次了。我们采访了大卫，了解他最喜欢的应用程序、设备以及他的工作方式。
 

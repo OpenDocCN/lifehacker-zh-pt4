@@ -1,6 +1,6 @@
 # 你可以用 Adblock Plus 做的一切(不仅仅是阻止广告)
 
-> 原文:[https://life hacker . com/everything-you-can-do-with-adblock-plus-than-is-t-jus-1469861264](https://lifehacker.com/everything-you-can-do-with-adblock-plus-that-isn-t-jus-1469861264)
+> 原文：<https://lifehacker.com/everything-you-can-do-with-adblock-plus-that-isn-t-jus-1469861264>
 
 [【Adblock Plus】](https://adblockplus.org/)是最强大的浏览器扩展之一，虽然与其同名是其最常用的功能，但它不仅仅是阻止广告。事实上，你可以用它做各种事情，包括清理脸书的界面，确保网站不会跟踪你。
 

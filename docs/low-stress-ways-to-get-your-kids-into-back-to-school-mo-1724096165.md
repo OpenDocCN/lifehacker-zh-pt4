@@ -1,6 +1,6 @@
 # 如何让你的孩子在夏天结束前回到学校
 
-> 原文:[https://life hacker . com/low-stress-ways-to-get-your-children-back-school-mo-1724096165](https://lifehacker.com/low-stress-ways-to-get-your-kids-into-back-to-school-mo-1724096165)
+> 原文：<https://lifehacker.com/low-stress-ways-to-get-your-kids-into-back-to-school-mo-1724096165>
 
 夏日的慵懒时光即将结束，这意味着是时候开始为你的孩子准备一个更有学者气质的心态了。这里有一些小贴士可以让他们摆脱懒惰模式，让你们两个都轻松过渡。
 

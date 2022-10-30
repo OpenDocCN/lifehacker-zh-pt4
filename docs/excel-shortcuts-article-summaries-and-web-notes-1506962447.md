@@ -1,6 +1,6 @@
 # Excel 快捷方式、文章摘要和 Web 笔记
 
-> 原文:[https://life hacker . com/excel-shortcut s-article-summaries-and-we B- notes-1506962447](https://lifehacker.com/excel-shortcuts-article-summaries-and-web-notes-1506962447)
+> 原文：<https://lifehacker.com/excel-shortcuts-article-summaries-and-web-notes-1506962447>
 
 读者提供了在 Excel 中删除文本、快速浏览期刊文章以及快速做基于 web 的笔记的最佳技巧。
 

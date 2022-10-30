@@ -1,6 +1,6 @@
 # 如何跟进又不惹人厌
 
-> 原文:[https://life hacker . com/how-to-follow-up-without-be-angry-1568683963](https://lifehacker.com/how-to-follow-up-without-being-annoying-1568683963)
+> 原文：<https://lifehacker.com/how-to-follow-up-without-being-annoying-1568683963>
 
 没有人想成为一个专业联系人的讨厌或麻烦，特别是当你想从那个人那里得到一份工作、会议、销售收入或其他非常重要的东西的时候。但是普通人一天能收到几百封电子邮件，你的一些信息可能得不到回复。你怎么知道什么时候可以发送后续消息而不惹人讨厌呢？
 

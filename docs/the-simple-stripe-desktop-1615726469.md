@@ -1,6 +1,6 @@
 # 简单的条纹桌面
 
-> 原文:[https://lifehacker.com/the-simple-stripe-desktop-1615726469](https://lifehacker.com/the-simple-stripe-desktop-1615726469)
+> 原文：<https://lifehacker.com/the-simple-stripe-desktop-1615726469>
 
 有时窗口小部件和工具栏就在那里，而其他时候简单和开放更有利于完成工作。读者 [乔希](http://joshuata.kinja.com/) 向我们的 [桌面展示](http://kinja.com/desktop-showcase) 提交了这个桌面，我们很喜欢它。简单，开放，但仍然是个人的。他是这样设置的。
 

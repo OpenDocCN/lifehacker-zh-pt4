@@ -1,6 +1,6 @@
 # 国际空间站工作区
 
-> 原文:[https://life hacker . com/the-international-space-station-workspace-1683510058](https://lifehacker.com/the-international-space-station-workspace-1683510058)
+> 原文：<https://lifehacker.com/the-international-space-station-workspace-1683510058>
 
 这个独特的工作空间怎么样？这是国际空间站宇航员做事的地方。
 

@@ -1,6 +1,6 @@
 # 如何烹饪牛腩，这完全值得努力，我发誓
 
-> 原文:[https://deadspin . com/how-to-cook-a-Bristol-that-worth-the-effor-1715645554](https://deadspin.com/how-to-cook-a-brisket-which-is-totally-worth-the-effor-1715645554)
+> 原文：<https://deadspin.com/how-to-cook-a-brisket-which-is-totally-worth-the-effor-1715645554>
 
 在你的一生中，只有一次，在烤架上用烟熏火燎烤牛腩。这样做是为了这样做的庄严的骄傲，也是为了这将有助于你将来傲慢地评论别人的精力。这么做是因为胸肉——从牛的胸部切下的一大块坚韧的工作肌肉——是烧烤的支柱之一，也是你自己接受的一个很好的挑战。这样做是因为它会让你认识的每个人都有足够的美味烟熏肉来享用。做吧，因为我叫你做。而且，只做一次，因为这将花费你余生的大部分时间来完成。我的上帝，这他妈的要花很长时间。
 

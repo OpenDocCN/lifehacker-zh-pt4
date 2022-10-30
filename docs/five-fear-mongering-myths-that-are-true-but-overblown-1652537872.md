@@ -1,6 +1,6 @@
 # 五个散播恐惧的真实故事(但被夸大了)
 
-> 原文:[https://life hacker . com/five-fear-mongering-myths-that-true-but-over-blowered-1652537872](https://lifehacker.com/five-fear-mongering-myths-that-are-true-but-overblown-1652537872)
+> 原文：<https://lifehacker.com/five-fear-mongering-myths-that-are-true-but-overblown-1652537872>
 
 媒体喜欢把小事放大成大新闻。不管是你冰箱里要杀你的东西，还是极可意浴缸的污秽，大多数这些东西都是为了抓住你的注意力足够长的时间来吓唬你，而实际上没有解释任何事情。但是有些东西还是值得关注的。以下是其中的几个。
 

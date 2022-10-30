@@ -1,6 +1,6 @@
 # 如何利用 Kali Linux 入侵您自己的网络并增强其安全性
 
-> 原文:[https://life hacker . com/how-to-hack-your-own-network-and-beef-up-its-security-w-1649785071](https://lifehacker.com/how-to-hack-your-own-network-and-beef-up-its-security-w-1649785071)
+> 原文：<https://lifehacker.com/how-to-hack-your-own-network-and-beef-up-its-security-w-1649785071>
 
 [Kali Linux](http://www.kali.org/) 是一个安全的操作系统，你可以在任何地方从 CD 或 USB 驱动器上运行。通过它的安全工具包，你可以破解 Wi-Fi 密码，创建假网络，并测试其他漏洞。以下是如何使用它给你自己的网络进行安全检查。
 

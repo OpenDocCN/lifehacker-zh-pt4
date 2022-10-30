@@ -1,6 +1,6 @@
 # 用这些壁纸把城市放到你的桌面上
 
-> 原文:[https://life hacker . com/put-the-city-on-your desktop with these-wallpapers-1486092505](https://lifehacker.com/put-the-city-on-your-desktop-with-these-wallpapers-1486092505)
+> 原文：<https://lifehacker.com/put-the-city-on-your-desktop-with-these-wallpapers-1486092505>
 
 对某些人来说，宁静的风景是完美的壁纸。其他人喜欢城市的活力。为了给我们倾向于提供的许多自然照片提供一点平衡，这里为你的桌面提供一些明亮的灯光和高大的建筑。
 

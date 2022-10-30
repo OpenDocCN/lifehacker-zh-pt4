@@ -1,6 +1,6 @@
 # 通过从您的 ISP 的“秘密”菜单订购，以最少的电缆获得 HBO
 
-> 原文:[https://life hacker . com/get-HBO-without cable-by-ordering-from-your-ISPs-secre-1606028407](https://lifehacker.com/get-hbo-without-cable-by-ordering-from-your-isps-secre-1606028407)
+> 原文：<https://lifehacker.com/get-hbo-without-cable-by-ordering-from-your-isps-secre-1606028407>
 
 HBO 的节目非常受欢迎。有线电视，不太好。很长一段时间以来，不订阅有线电视就能拥有 HBO 一直是一个梦想。虽然这一现实尚未完全实现，但你仍然可以在几乎没有捆绑电视套餐的情况下获得 HBO GO。如果你知道要什么，那就是。
 

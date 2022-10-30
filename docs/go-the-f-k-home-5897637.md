@@ -1,6 +1,6 @@
 # 回家去吧
 
-> 原文:[https://lifehacker.com/go-the-f-k-home-5897637](https://lifehacker.com/go-the-f-k-home-5897637)
+> 原文：<https://lifehacker.com/go-the-f-k-home-5897637>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-YBoS-svKdgs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-YBoS-svKdgs&start=0) 
 

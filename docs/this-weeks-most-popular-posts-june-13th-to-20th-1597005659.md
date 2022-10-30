@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:6 月 20 日至 27 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-June-13-to-20-1597005659](https://lifehacker.com/this-weeks-most-popular-posts-june-13th-to-20th-1597005659)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-june-13th-to-20th-1597005659>
 
 这一周我们 [看了一些傻乎乎但很有用的产品](https://lifehacker.com/top-10-silly-but-awesome-products-that-make-life-easier-1592546403)[烤得更好的饼干](http://lifehacker.com/bake-the-best-chocolate-chip-cookies-by-knowing-what-to-1593805654)[了解了如何坐着是要命的](http://lifehacker.com/this-graphic-explains-all-the-health-hazards-of-sitting-1595834900)[得到了一些生日赠品](http://lifehacker.com/the-best-retail-and-restaurant-birthday-freebies-5781049) 。这里回顾一下。
 

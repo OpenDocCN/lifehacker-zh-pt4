@@ -1,6 +1,6 @@
 # 失业后悲伤的五个阶段
 
-> 原文:[https://life hacker . com/the-five-stages-after-lose-a job-1725201444](https://lifehacker.com/the-five-stages-of-grief-after-losing-a-job-1725201444)
+> 原文：<https://lifehacker.com/the-five-stages-of-grief-after-losing-a-job-1725201444>
 
 那是一个星期六，我的飞机着陆了，我正准备在一个短暂的周末假期放松一下，这时我的手机收到了一封电子邮件。我失业了。我给旁边座位的男朋友看了。“这种事情经常发生，”我笑着说，然后把手机收了起来。“这可能是最好的。让我们享受旅行吧。”我表扬自己坚强，接受现状。事实上，我完全否认我刚刚失去了一份我热爱的工作。
 

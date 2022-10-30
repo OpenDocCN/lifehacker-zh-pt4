@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:我如何重新开始？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-start-over-1678318618](https://kotaku.com/ask-dr-nerdlove-how-do-i-start-over-1678318618)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-start-over-1678318618>
 
 你好，互联网！欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一的约会建议专栏，致力于帮助你用一种新的游戏+开始你的约会生活。这是新的一年的黎明，这是一个重新开始的绝佳时机。本周，我们收到一封来自某人的信，他想这么做。当你感觉到你的约会历史压在肩膀上的时候，你是如何重新开始的？
 

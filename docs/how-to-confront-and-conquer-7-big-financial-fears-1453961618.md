@@ -1,6 +1,6 @@
 # 如何面对和克服 7 大金融恐惧
 
-> 原文:[https://life hacker . com/how-to-conflict-and-conquer-7-big-financial-fears-1453961618](https://lifehacker.com/how-to-confront-and-conquer-7-big-financial-fears-1453961618)
+> 原文：<https://lifehacker.com/how-to-confront-and-conquer-7-big-financial-fears-1453961618>
 
 你太老了，不能玩不给糖就捣蛋的游戏了。妖精和女巫再也吓不到你了。如今，晚上发生的事情是现实世界的担忧——从你害怕在瑜伽课上倒立到你害怕在特别无忧无虑的周末后的周一早上查看你的银行账户余额。
 

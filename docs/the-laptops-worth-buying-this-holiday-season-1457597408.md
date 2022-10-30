@@ -1,6 +1,6 @@
 # 笔记本电脑值你的钱吗
 
-> 原文:[https://gizmodo . com/the-laptops-value-buy-this-holiday-season-1457597408](https://gizmodo.com/the-laptops-worth-buying-this-holiday-season-1457597408)
+> 原文：<https://gizmodo.com/the-laptops-worth-buying-this-holiday-season-1457597408>
 
 *本内容由* [*商业团队*](http://bit.ly/19x6duf) *为您带来，同一组作家和产品爱好者将您的日常交易汇总在一起:*[*Gizmodo Deals*](http://dealzmodo.kinja.com)*，*[*Kotaku Deals*](http://moneysaver.kinja.com)*和*[*life 我们独立于 Gizmodo 的编辑人员，为您带来最优惠的价格，并告诉您我们最喜欢的产品。——谢恩·罗伯茨，高级商务编辑*](http://dealhacker.kinja.com)
 

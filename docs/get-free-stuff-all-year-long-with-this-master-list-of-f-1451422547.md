@@ -1,6 +1,6 @@
 # 获得免费的东西，全年都有这个免费假期的主列表
 
-> 原文:[https://life hacker . com/get-free-stuff-all-year-with this-master-list-of-f-1451422547](https://lifehacker.com/get-free-stuff-all-year-long-with-this-master-list-of-f-1451422547)
+> 原文：<https://lifehacker.com/get-free-stuff-all-year-long-with-this-master-list-of-f-1451422547>
 
 实际上日历上的每一天都有一个你可以庆祝的“节日”，从元旦的“北极熊跳水日”到一年最后一天的“下定决心日”。尽管这些特殊的日子有些愚蠢(许多是由组织和营销人员想象出来的)，但有些是获得免费东西的好时机，比如免费食物、免费娱乐等等。以下是你全年都可以用免费赠品来庆祝的方法。
 

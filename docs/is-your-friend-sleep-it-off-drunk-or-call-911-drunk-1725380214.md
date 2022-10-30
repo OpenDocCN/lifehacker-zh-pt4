@@ -1,6 +1,6 @@
 # 你的朋友是“睡一觉就没事了”还是“打 911”喝醉了？
 
-> 原文:[https://life hacker . com/is-your-friend-sleep-it-off-druged-or-call-911-druged-1725380214](https://lifehacker.com/is-your-friend-sleep-it-off-drunk-or-call-911-drunk-1725380214)
+> 原文：<https://lifehacker.com/is-your-friend-sleep-it-off-drunk-or-call-911-drunk-1725380214>
 
 夜幕即将降临。你的朋友，以前的派对生活，在沙发上昏过去了。但是他们到底有多醉呢？他们只是需要有人搀扶着才能摇摇晃晃地上床睡觉，还是这种程度的醉酒需要打电话去医院？
 

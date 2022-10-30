@@ -1,6 +1,6 @@
 # iPhone 版 Reeder 增加了对 Feedly 的支持，目前是免费的
 
-> 原文:[https://life hacker . com/re eder-for-iphone-adds-support-for-feedly-is-currently-645282397](https://lifehacker.com/reeder-for-iphone-adds-support-for-feedly-is-currently-645282397)
+> 原文：<https://lifehacker.com/reeder-for-iphone-adds-support-for-feedly-is-currently-645282397>
 
 iOS: Reeder 是我们最喜欢的用于 iPhone 的 [新闻阅读器，从今天起，它增加了对 Feedly 和 Feedwrangler 的支持，因为谷歌阅读器现已关闭。这款应用目前也是免费的。](https://lifehacker.com/the-best-news-reader-application-for-iphone-5807274)
 

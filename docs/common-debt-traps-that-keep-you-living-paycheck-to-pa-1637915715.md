@@ -1,6 +1,6 @@
 # 常见的“债务陷阱”让你过着入不敷出的生活
 
-> 原文:[https://life hacker . com/common-debt-traps-the-keep-you-living-pay-to-pa-1637915715](https://lifehacker.com/common-debt-traps-that-keep-you-living-paycheck-to-pa-1637915715)
+> 原文：<https://lifehacker.com/common-debt-traps-that-keep-you-living-paycheck-to-pa-1637915715>
 
 很多时候，身无分文就意味着绝望。你的思想压力很大，你的财务捉襟见肘，你没有太多的选择。不幸的是，有很多“债务陷阱”会让你陷入一个的周而复始的循环中。让我们来看看这些陷阱，并找出更好的解决方案。
 

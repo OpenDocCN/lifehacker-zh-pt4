@@ -1,6 +1,6 @@
 # 最常见的智能手机维修你可以自己做
 
-> 原文:[https://life hacker . com/the-most-common-smart phone-repairs-you-can-do-you-DIY-1515709328](https://lifehacker.com/the-most-common-smartphone-repairs-you-can-do-yourself-1515709328)
+> 原文：<https://lifehacker.com/the-most-common-smartphone-repairs-you-can-do-yourself-1515709328>
 
 摔手机摔碎屏幕会彻底毁了你的一天。虽然大多数手机不是用来修理的，但只要有合适的工具和一点专业知识，你就能以比保险索赔更低的成本修理手机的许多问题。
 

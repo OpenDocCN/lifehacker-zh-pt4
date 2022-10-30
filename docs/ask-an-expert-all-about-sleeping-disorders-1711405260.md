@@ -1,6 +1,6 @@
 # 请教专家:关于睡眠障碍的一切
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-sleeping-disorders-1711405260](https://lifehacker.com/ask-an-expert-all-about-sleeping-disorders-1711405260)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-sleeping-disorders-1711405260>
 
 我们都有睡眠困难的时候，但对一些人来说，获得一个像样的睡眠是一个晚上的挑战。幸运的是，有些医生专门研究梦的领域，并试图帮助人们获得一些睡眠。
 

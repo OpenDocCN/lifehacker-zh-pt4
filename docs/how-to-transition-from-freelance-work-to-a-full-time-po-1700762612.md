@@ -1,6 +1,6 @@
 # 如何从自由职业过渡到全职工作
 
-> 原文:[https://life hacker . com/how-to-transition-from-freelance-work to-a-full-time-po-1700762612](https://lifehacker.com/how-to-transition-from-freelance-work-to-a-full-time-po-1700762612)
+> 原文：<https://lifehacker.com/how-to-transition-from-freelance-work-to-a-full-time-po-1700762612>
 
 尽管自由职业者的很吸引人，但 [也是一个挑战](http://lifehacker.com/how-to-to-better-manage-your-freelance-income-1530335057) ，有时你会发现自己想要永远和你的自由职业客户呆在一起。公司文化、专注于一个客户的能力、同事间的友情——从自由职业者转变为雇员有很多原因。但你如何说服他们你应该成为员工呢？
 

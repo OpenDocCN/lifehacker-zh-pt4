@@ -1,6 +1,6 @@
 # 如何放弃旅游景点，建立自己的度假计划
 
-> 原文:[https://life hacker . com/how-to-水沟-旅游景点-和-建造你自己的-kickass-v-1566817968](https://lifehacker.com/how-to-ditch-tourist-spots-and-build-your-own-kickass-v-1566817968)
+> 原文：<https://lifehacker.com/how-to-ditch-tourist-spots-and-build-your-own-kickass-v-1566817968>
 
 有时候，度假计划是显而易见的:去酒店，放松，四处逛逛。但其他时候，你想把事情推向下一个层次。考虑到这一点，这里有你需要的一切来制定一个可靠的旅程，找到偏僻的地方，并在你的下一个假期找到有趣的事情做。
 

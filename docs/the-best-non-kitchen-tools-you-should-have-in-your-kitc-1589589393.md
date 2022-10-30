@@ -1,6 +1,6 @@
 # 你厨房里应该有的最好的非厨房工具
 
-> 原文:[https://life hacker . com/the-best-non-kit-tools-you-has-in-your-kitc-1589589393](https://lifehacker.com/the-best-non-kitchen-tools-you-should-have-in-your-kitc-1589589393)
+> 原文：<https://lifehacker.com/the-best-non-kitchen-tools-you-should-have-in-your-kitc-1589589393>
 
 对我们大多数人来说，一件工具必须非常有用，才能在厨房里赢得一席之地。不过，这并不意味着厨房空间应该局限于烹饪用具和单一任务。让我们列出一份最佳非厨房工具的清单，当你做饭时，它们会产生奇迹。我们会让你开始。
 

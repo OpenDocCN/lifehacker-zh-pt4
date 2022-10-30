@@ -1,6 +1,6 @@
 # 让网飞更棒的 8 个技巧和下载
 
-> 原文:[https://life hacker . com/8-tricks-and-downloads-to-make-网飞-even-more-awe som-1526017078](https://lifehacker.com/8-tricks-and-downloads-to-make-netflix-even-more-awesom-1526017078)
+> 原文：<https://lifehacker.com/8-tricks-and-downloads-to-make-netflix-even-more-awesom-1526017078>
 
 网飞是为数不多的难以改进的互联网服务之一。只需支付很少的费用，你就可以在你拥有的任何设备上，在一个光滑的界面上尽情观看一个巨大的电影和电视节目库。不过，这不会阻止我们去尝试。这里有一些改善已经很棒的网飞体验的最好方法。
 

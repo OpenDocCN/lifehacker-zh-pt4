@@ -1,6 +1,6 @@
 # App 背后:僵尸的故事，快跑！
 
-> 原文:[https://life hacker . com/behind-the-app-the-story-of-zombies-run-1632445358](https://lifehacker.com/behind-the-app-the-story-of-zombies-run-1632445358)
+> 原文：<https://lifehacker.com/behind-the-app-the-story-of-zombies-run-1632445358>
 
 小心身后——僵尸末日即将来临！在今天的流行媒体中，你可以随时遇到僵尸，但僵尸比喻的最创新用法之一来自一个应用程序。 [丧尸，快跑！](https://www.zombiesrungame.com/) 用一个僵尸生存的故事作为锻炼的动力。
 

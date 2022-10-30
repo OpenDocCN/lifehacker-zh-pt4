@@ -1,6 +1,6 @@
 # 哪里可以买到比较好的茶叶？
 
-> 原文:[https://life hacker . com/where-can-I-buy-better-tea-1619090729](https://lifehacker.com/where-can-i-buy-better-tea-1619090729)
+> 原文：<https://lifehacker.com/where-can-i-buy-better-tea-1619090729>
 
 亲爱的生活黑客，
 我知道茶有各种各样的健康益处，我也一直很喜欢它，但我一直在喝我在纸袖子里得到的袋装东西。我去哪里买更好的茶叶？只是找到更好的包，还是我应该冒险离开？

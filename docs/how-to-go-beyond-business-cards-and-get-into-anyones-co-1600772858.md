@@ -1,6 +1,6 @@
 # 如何超越名片，进入任何人的联系人列表
 
-> 原文:[https://life hacker . com/how-to-go-beyond-business-cards-and-get-into-any ones-co-1600772858](https://lifehacker.com/how-to-go-beyond-business-cards-and-get-into-anyones-co-1600772858)
+> 原文：<https://lifehacker.com/how-to-go-beyond-business-cards-and-get-into-anyones-co-1600772858>
 
 给某人你的名片并不意味着你将被添加到他们的联系人中。毕竟，每个设备上都有数字联系人，这使得其他人很容易与您联系。以下是如何超越纸质名片，进入某人的真实联系人列表。
 

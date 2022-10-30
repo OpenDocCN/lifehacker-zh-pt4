@@ -1,6 +1,6 @@
 # 你的 2014 年愚人节恶作剧剧透
 
-> 原文:[https://life hacker . com/your-2014-愚人节-恶作剧-剧透-1555932434](https://lifehacker.com/your-2014-april-fools-day-prank-spoiler-1555932434)
+> 原文：<https://lifehacker.com/your-2014-april-fools-day-prank-spoiler-1555932434>
 
 今天是愚人节。有一天你不相信任何人，也不相信你读到的一切。除了这个帖子。我们在引导我们内心的扫兴，彻底破坏每个人的插科打诨，这样你就不会出丑了。除非你真的想相信一个充满神奇宝贝的世界，在这种情况下，我们只是混蛋。
 

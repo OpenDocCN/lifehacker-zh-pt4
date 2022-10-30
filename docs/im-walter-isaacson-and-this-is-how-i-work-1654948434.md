@@ -1,6 +1,6 @@
 # 我是沃尔特·伊萨克森，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Walter-isaacson-and-this-is-how-I-work-1654948434](https://lifehacker.com/im-walter-isaacson-and-this-is-how-i-work-1654948434)
+> 原文：<https://lifehacker.com/im-walter-isaacson-and-this-is-how-i-work-1654948434>
 
 沃尔特·伊萨克森已经成为杰出人物的传记作家，比如史蒂夫·乔布斯、阿尔伯特·爱因斯坦和本杰明·富兰克林。当然，沃尔特自己也很特别，因为写书甚至不是他的日常工作。
 

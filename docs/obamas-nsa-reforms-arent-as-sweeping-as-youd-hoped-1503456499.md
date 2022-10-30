@@ -1,6 +1,6 @@
 # 奥巴马的国家安全局改革功亏一篑
 
-> 原文:[https://gizmodo . com/Obamas-NSA-reforms-arent-as-sweeping-as-youd-hope-1503456499](https://gizmodo.com/obamas-nsa-reforms-arent-as-sweeping-as-youd-hoped-1503456499)
+> 原文：<https://gizmodo.com/obamas-nsa-reforms-arent-as-sweeping-as-youd-hoped-1503456499>
 
 在周五上午的一次重要讲话中，奥巴马总统缩减了美国国家安全局的监控行动，并重新定义了我们在海外收集情报的方式。简而言之，他 [命令](http://www.reuters.com/article/2014/01/17/us-usa-security-obama-idUSBREA0G0JI20140117) 结束批量电话元数据计划(以其目前的 from)和对外国领导人的间谍活动。然而，除此之外，未来仍不明朗。
 

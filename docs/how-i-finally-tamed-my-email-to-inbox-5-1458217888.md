@@ -1,6 +1,6 @@
 # 我如何最终将我的电子邮件驯服为“收件箱 5”
 
-> 原文:[https://life hacker . com/how-I-finally-tamed-my-email-to-inbox-5-1458217888](https://lifehacker.com/how-i-finally-tamed-my-email-to-inbox-5-1458217888)
+> 原文：<https://lifehacker.com/how-i-finally-tamed-my-email-to-inbox-5-1458217888>
 
 我的收件箱已经失控很久很久了。但是，最终，我的收件箱里只剩下五封邮件了。在过去一年左右的时间里，我采取了一系列措施，帮助我走到了这一步。
 

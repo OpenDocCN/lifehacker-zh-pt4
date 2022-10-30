@@ -1,6 +1,6 @@
 # 网恋时如何避免被“钓”
 
-> 原文:[https://life hacker . com/how-to-避免在网上约会时被人抓住-1705354497](https://lifehacker.com/how-to-avoid-being-catfished-while-online-dating-1705354497)
+> 原文：<https://lifehacker.com/how-to-avoid-being-catfished-while-online-dating-1705354497>
 
 网上约会可以是 [有趣又刺激的](https://lifehacker.com/is-online-dating-worth-it-an-faq-1633598636) ，但它也可能是身份窃贼、黑客和其他讨厌的人的游乐场。以下是鲶鱼(或在网上伪装成别人的人)的迹象，以及如何最好地接近你在网上遇到的看起来有点可疑的人。
 

@@ -1,6 +1,6 @@
 # 我从教学中学到的在日常生活中仍在使用的六件事
 
-> 原文:[https://life hacker . com/six-things-I-learned from-teaching-that-I-still-use-in-1625484915](https://lifehacker.com/six-things-i-learned-from-teaching-that-i-still-use-in-1625484915)
+> 原文：<https://lifehacker.com/six-things-i-learned-from-teaching-that-i-still-use-in-1625484915>
 
 教书是你能从事的最具挑战性、最被低估、但通常回报丰厚的职业之一。你可以从教一屋子(大部分)无兴趣的学生中学到很多东西。以下是我学到的一些最重要的经验，这些经验至今仍在应用。
 

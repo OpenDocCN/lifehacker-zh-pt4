@@ -1,6 +1,6 @@
 # 招聘经理不关心的五件事
 
-> 原文:[https://life hacker . com/five-things-job-candidates-obses-over-the-hiring-mana-1670410029](https://lifehacker.com/five-things-job-candidates-obsess-over-that-hiring-mana-1670410029)
+> 原文：<https://lifehacker.com/five-things-job-candidates-obsess-over-that-hiring-mana-1670410029>
 
 你有没有精心制作一份字体完美的简历？你可能关注了这个过程的错误方面，因为招聘经理只是在寻找合格的人。这里有五件人们过分强调但招聘经理实际上并不关心的事情。
 

@@ -1,6 +1,6 @@
 # 这个周末创造一些更好的习惯
 
-> 原文:[https://life hacker . com/create-some-better-habits-this-weekend-1493514849](https://lifehacker.com/create-some-better-habits-this-weekend-1493514849)
+> 原文：<https://lifehacker.com/create-some-better-habits-this-weekend-1493514849>
 
 不管你在新的一年决心做什么，如果没有一些好习惯，你不会走得很远。这个周末，花点时间去了解如何让更好的行为持续下去，并摆脱旧的行为。
 

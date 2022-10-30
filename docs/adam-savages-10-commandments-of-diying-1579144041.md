@@ -1,6 +1,6 @@
 # 亚当·沙维奇的狄莺十诫
 
-> 原文:[https://life hacker . com/Adam-savages-狄莺十诫-1579144041](https://lifehacker.com/adam-savages-10-commandments-of-diying-1579144041)
+> 原文：<https://lifehacker.com/adam-savages-10-commandments-of-diying-1579144041>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ER7rhQ7N69k&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ER7rhQ7N69k&start=0) 
 

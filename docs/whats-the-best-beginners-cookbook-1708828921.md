@@ -1,6 +1,6 @@
 # 最好的初学者食谱是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-初学者-食谱-1708828921](https://lifehacker.com/whats-the-best-beginners-cookbook-1708828921)
+> 原文：<https://lifehacker.com/whats-the-best-beginners-cookbook-1708828921>
 
 无论你是一个经验丰富的厨师，还是正在厨房里摸索，几本好的、扎实的烹饪书可以启发你做出美味的东西。本周，我们想知道哪些烹饪书是你认为最好的，是所有烹饪技能水平的人的必备书籍。
 

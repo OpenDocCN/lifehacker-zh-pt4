@@ -1,6 +1,6 @@
 # 拖延症会给你的钱包带来多大的损失
 
-> 原文:[https://life hacker . com/how-delayatory-can-wreak-on-your-wallet-1617673947](https://lifehacker.com/how-procrastination-can-wreak-havoc-on-your-wallet-1617673947)
+> 原文：<https://lifehacker.com/how-procrastination-can-wreak-havoc-on-your-wallet-1617673947>
 
 你知道拖延会以明显的方式影响你的生活:当你吃饭迟到时惹恼你的朋友，或者因为错过另一个截止日期而激怒你的老板。但是你可能没有意识到推迟任务也会影响你的钱包。
 

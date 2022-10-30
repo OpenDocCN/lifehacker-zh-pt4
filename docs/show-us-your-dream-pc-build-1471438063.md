@@ -1,6 +1,6 @@
 # 向我们展示您梦想中的 PC 版本
 
-> 原文:[https://life hacker . com/show-us-your-dream-PC-build-1471438063](https://lifehacker.com/show-us-your-dream-pc-build-1471438063)
+> 原文：<https://lifehacker.com/show-us-your-dream-pc-build-1471438063>
 
 建造你自己的计算机让你准确地选择你的装备需要哪些部件。在构建中端或高端计算机时，您可以用同样的成本甚至更低的成本构建更好的产品。我们希望看到你的梦想成真。
 

@@ -1,6 +1,6 @@
 # 哪种压榨方法能得到最多的柠檬汁？
 
-> 原文:[https://life hacker . com/which-squeezing-method-get-you-most-lemon-juice-1719747290](https://lifehacker.com/which-squeezing-method-gets-you-the-most-lemon-juice-1719747290)
+> 原文：<https://lifehacker.com/which-squeezing-method-gets-you-the-most-lemon-juice-1719747290>
 
 从 [调味水](http://lifehacker.com/why-you-should-pack-a-lemon-in-your-lunch-bag-1520996419) 到 [烤鱼](http://lifehacker.com/grill-fish-on-a-bed-of-sliced-lemons-to-keep-it-from-st-1696851525) 或 [制作清淡的绿色沙拉](http://skillet.lifehacker.com/how-to-make-a-vinaigrette-that-goes-with-everything-1701361047) ，厨房里有许多场合需要鲜榨柠檬汁。但是有没有从柠檬中提取果汁的“最佳”方法呢？
 

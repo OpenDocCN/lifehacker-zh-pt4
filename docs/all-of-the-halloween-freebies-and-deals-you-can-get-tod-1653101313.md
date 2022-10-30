@@ -1,6 +1,6 @@
 # 今天你能得到的所有万圣节赠品和交易
 
-> 原文:[https://life hacker . com/all-of-the-Halloween-freebies-and-deals-you-can-get-tod-1653101313](https://lifehacker.com/all-of-the-halloween-freebies-and-deals-you-can-get-tod-1653101313)
+> 原文：<https://lifehacker.com/all-of-the-halloween-freebies-and-deals-you-can-get-tod-1653101313>
 
 为了庆祝万圣节，一些公司推出了特别促销活动，以确保你和你的孩子在 2014 年的万圣节主要是享受而不是恶作剧。这里有一些最好的，包括免费的甜甜圈，便宜的墨西哥卷饼，和许多免费的儿童餐。
 

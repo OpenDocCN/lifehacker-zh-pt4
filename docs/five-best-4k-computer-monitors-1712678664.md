@@ -1,6 +1,6 @@
 # 五款最佳 4K 电脑显示器
 
-> 原文:[https://life hacker . com/five-best-4k-computer-monitors-1712678664](https://lifehacker.com/five-best-4k-computer-monitors-1712678664)
+> 原文：<https://lifehacker.com/five-best-4k-computer-monitors-1712678664>
 
 无论你是在打造 [一台超高端游戏电脑](https://lifehacker.com/how-to-build-your-own-do-anything-4k-capable-desktop-1585882555) 还是只是享受 [一台 4K 显示器](https://lifehacker.com/what-is-4k-and-should-i-buy-a-4k-display-right-now-1540920905) 提供的额外屏幕空间，市场上都有大量或大或小、价格适中或顶级的选择。本周我们将根据你们的提名选出五位最佳选手。
 

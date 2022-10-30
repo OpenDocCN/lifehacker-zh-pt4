@@ -1,6 +1,6 @@
 # iOS 7.1 让你的 iPhone 4 再次可用
 
-> 原文:[https://life hacker . com/IOs-7-1-makes-your-iphone-4-usable-again-1541410865](https://lifehacker.com/ios-7-1-makes-your-iphone-4-usable-again-1541410865)
+> 原文：<https://lifehacker.com/ios-7-1-makes-your-iphone-4-usable-again-1541410865>
 
 当 iOS 7 发布时，iPhone 4 用户经历了一次相当剧烈的减速，在很多情况下导致设备几乎无法使用。谢天谢地，据 Ars Technica 报道， [刚刚发布的 iOS 7.1](https://lifehacker.com/ios-7-1-is-out-with-siri-update-visual-tweaks-and-car-1540537421) 修复了一堆问题，让 iOS 7 实际上可以在 iPhone 4 上工作。
 

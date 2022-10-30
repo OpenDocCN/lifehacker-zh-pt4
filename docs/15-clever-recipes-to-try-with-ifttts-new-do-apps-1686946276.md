@@ -1,6 +1,6 @@
 # 用 IFTTT 的新 Do 应用程序尝试 15 个聪明的食谱
 
-> 原文:[https://gizmodo . com/15-clever-recipes-to-try-with-ifttts-new-do-apps-1686946276](https://gizmodo.com/15-clever-recipes-to-try-with-ifttts-new-do-apps-1686946276)
+> 原文：<https://gizmodo.com/15-clever-recipes-to-try-with-ifttts-new-do-apps-1686946276>
 
 好消息！我们最喜欢的网络服务之一——[IFTTT](https://ifttt.com/)——已经更新为 [一些额外的功能](http://lifehacker.com/ifttt-launches-camera-note-button-apps-to-quickly-tri-1686746256#_ga=1.54772777.38431152.1423767038) ，使其比以往任何时候都更有用。新的 Do 应用程序为您的手机(或智能手表)带来了一键式魔力，可用于快速推送照片、触发操作和创建笔记。这里有 15 个展示新工具潜力的配方。
 

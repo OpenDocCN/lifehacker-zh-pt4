@@ -1,6 +1,6 @@
 # 成年后如何度过家庭假期
 
-> 原文:[https://life hacker . com/how-to-survive-a-family-vacation-as-a-adult-1684194415](https://lifehacker.com/how-to-survive-a-family-vacation-as-an-adult-1684194415)
+> 原文：<https://lifehacker.com/how-to-survive-a-family-vacation-as-an-adult-1684194415>
 
 假期和家人在一起会有压力。如果你和那些在你小时候就认识你的人一起旅行，并且仍然希望这种动力是相同的，这一点尤其正确。这里有一些你可以采取的步骤，让你成为一个成年人，并在家庭旅行中幸存下来。
 

@@ -1,6 +1,6 @@
 # 如何将 Xbox 360 保存转移到 Xbox One
 
-> 原文:[https://kotaku . com/how-to-transfer-Xbox-360-saves-to-Xbox-one-1722241280](https://kotaku.com/how-to-transfer-xbox-360-saves-to-xbox-one-1722241280)
+> 原文：<https://kotaku.com/how-to-transfer-xbox-360-saves-to-xbox-one-1722241280>
 
 Xbox One 迟来的向后兼容功能不仅能让你在微软的新主机上玩 Xbox 360 游戏。它还允许您使用以前保存的文件。为了让这一功能发挥作用，你必须将你的 360 度保存转移到云端。这很容易，只要你仍然可以在 Xbox 360 上访问这些保存。
 

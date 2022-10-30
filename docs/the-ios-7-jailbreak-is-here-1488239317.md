@@ -1,6 +1,6 @@
 # iOS 7 越狱来了
 
-> 原文:[https://life hacker . com/the-IOs-7-jail break-is-here-1488239317](https://lifehacker.com/the-ios-7-jailbreak-is-here-1488239317)
+> 原文：<https://lifehacker.com/the-ios-7-jailbreak-is-here-1488239317>
 
 仅仅经过几个月的等待，Evasion 团队就发布了一款针对运行 iOS 7 的设备的越狱工具。该工具可以在 Windows、OS X 和 Linux 上运行。 [在这里下载](http://evasi0n.com/) ，或者查看我们下面的越狱指南。
 

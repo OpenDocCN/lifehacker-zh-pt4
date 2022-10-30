@@ -1,6 +1,6 @@
 # 科技 CEO 的日常包
 
-> 原文:[https://lifehacker.com/the-tech-ceos-daily-bag-1721759787](https://lifehacker.com/the-tech-ceos-daily-bag-1721759787)
+> 原文：<https://lifehacker.com/the-tech-ceos-daily-bag-1721759787>
 
 成为 Automattic 的首席执行官并非易事，但 Matt Mulenweg 分享了他随身携带的工具，以完成日常工作。
 

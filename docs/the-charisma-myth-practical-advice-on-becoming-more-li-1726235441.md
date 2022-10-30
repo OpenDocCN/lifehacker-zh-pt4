@@ -1,6 +1,6 @@
 # 魅力神话:变得更讨人喜欢的实用建议
 
-> 原文:[https://life hacker . com/the-charisma-myth-practical-advice-on-being-more-Li-1726235441](https://lifehacker.com/the-charisma-myth-practical-advice-on-becoming-more-li-1726235441)
+> 原文：<https://lifehacker.com/the-charisma-myth-practical-advice-on-becoming-more-li-1726235441>
 
 魅力，有些人拥有的不可抗拒的吸引力 ，通常被认为是你与生俱来的特质——你要么拥有，要么没有。然而，在《T4》的魅力神话中，作者奥利维亚·福克斯·卡班解释说，魅力是一种你可以学习的技能，她还通过例子、练习和实用技巧解释了你可以如何与任何人相处。
 

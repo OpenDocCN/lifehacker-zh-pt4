@@ -1,6 +1,6 @@
 # 我该如何应对一个令人沮丧的哑巴同事？
 
-> 原文:[https://life hacker . com/how-do-I-deal-with-a-dumb-cooker-1484980658](https://lifehacker.com/how-do-i-deal-with-a-frustratingly-dumb-coworker-1484980658)
+> 原文：<https://lifehacker.com/how-do-i-deal-with-a-frustratingly-dumb-coworker-1484980658>
 
 亲爱的生活黑客，我有一个同事，找不到更好的词来形容，他真的很蠢。他每天几次问我如何做同样的事情，经常发表无聊的评论，并给整个团队搞砸项目。我只在乎他这么笨，因为他经常影响我的工作，但显然有人认为他足够聪明，可以雇佣他。我能怎么做呢？
 

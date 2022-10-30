@@ -1,6 +1,6 @@
 # 在你的城市遭受核攻击后，如何躲避辐射尘
 
-> 原文:[https://gizmodo . com/how-to-shelted-from-a-on-y-1502362584](https://gizmodo.com/how-to-shelter-from-fallout-after-a-nuclear-attack-on-y-1502362584)
+> 原文：<https://gizmodo.com/how-to-shelter-from-fallout-after-a-nuclear-attack-on-y-1502362584>
 
 恐怖分子在你的城市引爆了一枚低当量核弹头。你应该藏多久，藏在哪里，以避免放射性坠尘的最坏影响？我们采访了劳伦斯·利弗莫尔国家实验室的大气科学家迈克尔·狄龙来寻找答案。
 

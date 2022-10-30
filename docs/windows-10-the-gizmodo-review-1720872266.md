@@ -1,6 +1,6 @@
 # windows 10:Gizmodo 回顾
 
-> 原文:[https://gizmodo . com/windows-10-the-gizmodo-review-1720872266](https://gizmodo.com/windows-10-the-gizmodo-review-1720872266)
+> 原文：<https://gizmodo.com/windows-10-the-gizmodo-review-1720872266>
 
 Windows 10 无法通过审查。
 

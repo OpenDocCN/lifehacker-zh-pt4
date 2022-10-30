@@ -1,6 +1,6 @@
 # Windows 10 的“隐私噩梦”设置实际上做了什么
 
-> 原文:[https://life hacker . com/what-windows-10s-隐私-噩梦-设置-实际-1722267229](https://lifehacker.com/what-windows-10s-privacy-nightmare-settings-actually-1722267229)
+> 原文：<https://lifehacker.com/what-windows-10s-privacy-nightmare-settings-actually-1722267229>
 
 Windows 10 有一些方便的新功能，但如果你相信互联网的其他功能，它也有一些功能，消除了任何隐私的表象。但这种观点有点言过其实。让我们仔细看看这些设置的实际作用，以及哪些设置实际上是隐私问题。
 

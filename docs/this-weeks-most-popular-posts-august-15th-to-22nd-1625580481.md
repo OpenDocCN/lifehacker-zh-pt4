@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:8 月 15 日至 22 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-August-15-to-22-1625580481](https://lifehacker.com/this-weeks-most-popular-posts-august-15th-to-22nd-1625580481)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-august-15th-to-22nd-1625580481>
 
 本周我们 [学习了一些每个人都应该具备的技能](https://lifehacker.com/top-10-skills-we-wish-were-taught-in-school-but-usuall-1622414148)[学习了 100 美元在每个状态下能走多远](http://lifehacker.com/how-much-100-is-really-worth-in-every-state-1624621738)[像老板一样工作了一个房间](http://lifehacker.com/overcome-social-anxiety-with-the-3-second-rule-1619636095)[发现了一些最佳奖励信用卡](http://lifehacker.com/five-best-rewards-credit-cards-1622819827) 。这里回顾一下。
 

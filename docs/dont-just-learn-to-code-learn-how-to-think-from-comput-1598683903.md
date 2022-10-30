@@ -1,6 +1,6 @@
 # 不要只是学习编码，要学习如何像计算机科学家一样思考
 
-> 原文:[https://life hacker . com/dont-just-learn-to-code-learn-how-to-think-from-comput-1598683903](https://lifehacker.com/dont-just-learn-to-code-learn-how-to-think-from-comput-1598683903)
+> 原文：<https://lifehacker.com/dont-just-learn-to-code-learn-how-to-think-from-comput-1598683903>
 
 最近，关于[是否每个人](http://gizmodo.com/please-dont-learn-to-code-5910497) 都应该学习编码有很多争论。软件工程师 Yevgeniy Brikman 说，这是一个错误的问题:学习编程和学习计算机科学之间存在巨大的差异，后者是更有价值的技能。
 

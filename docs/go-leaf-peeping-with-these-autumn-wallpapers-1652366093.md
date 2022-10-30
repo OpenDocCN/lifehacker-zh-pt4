@@ -1,6 +1,6 @@
 # 用这些秋天的壁纸去“偷窥树叶”
 
-> 原文:[https://life hacker . com/go-leaf-peeping-with this-autumn-wallpapers-1652366093](https://lifehacker.com/go-leaf-peeping-with-these-autumn-wallpapers-1652366093)
+> 原文：<https://lifehacker.com/go-leaf-peeping-with-these-autumn-wallpapers-1652366093>
 
 天气可能会越来越冷，但为了看风景，这完全值得。用这些壁纸让你的桌面充满秋天的气息。
 

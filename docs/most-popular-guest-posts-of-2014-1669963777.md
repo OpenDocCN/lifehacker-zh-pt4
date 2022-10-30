@@ -1,6 +1,6 @@
 # 2014 年最受欢迎的客座博文
 
-> 原文:[https://life hacker . com/most-popular-guest-posts-of-2014-1669963777](https://lifehacker.com/most-popular-guest-posts-of-2014-1669963777)
+> 原文：<https://lifehacker.com/most-popular-guest-posts-of-2014-1669963777>
 
 我们很幸运地在 Lifehacker 上展示了来自网络各地的各种各样的作家，提供了职业建议、操作指南、生活课程等等。以下是过去一年的一些最佳客座博文。
 

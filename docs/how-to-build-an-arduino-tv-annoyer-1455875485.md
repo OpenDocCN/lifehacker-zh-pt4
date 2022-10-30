@@ -1,6 +1,6 @@
 # 如何建立一个 Arduino 电视烦扰
 
-> 原文:[https://life hacker . com/how-to-build-an-arduino-TV-annoier-1455875485](https://lifehacker.com/how-to-build-an-arduino-tv-annoyer-1455875485)
+> 原文：<https://lifehacker.com/how-to-build-an-arduino-tv-annoyer-1455875485>
 
 Arduino 粉丝们，这个项目可以在你想关掉电视的时候打开电视。它是一个完美的愚人节玩笑或恶作剧礼物——或者，本着 [邪恶周](http://lifehacker.com/tag/evil-week) 的精神，在一年中的任何时候用它来让人疯狂。你可以把它藏在一个不显眼的地方，假设你已经有了一个 Arduino 和工具，它的制作成本不到 1.50 美元。
 

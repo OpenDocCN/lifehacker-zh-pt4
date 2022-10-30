@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:7 月 26 日至 8 月 1 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-July-26-to-8-1-1614675926](https://lifehacker.com/this-weeks-most-popular-posts-july-26th-to-august-1st-1614675926)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-july-26th-to-august-1st-1614675926>
 
 本周我们学习了 [如何在与人见面时变得更有趣](https://lifehacker.com/how-to-be-more-interesting-when-meeting-new-people-1612086910)[学习了如何在预算内吃好](http://lifehacker.com/learn-how-to-eat-well-on-just-35-a-week-1613310541)[清理了我们的壁橱](http://lifehacker.com/this-flowchart-helps-cleans-your-closet-with-quick-deci-1613207640) ，并发现了我们打印机的新用途。这里回顾一下。
 

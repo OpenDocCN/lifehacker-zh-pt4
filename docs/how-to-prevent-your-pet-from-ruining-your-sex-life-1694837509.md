@@ -1,6 +1,6 @@
 # 如何防止你的宠物破坏你的性生活
 
-> 原文:[https://life hacker . com/how-to-prevent-your-pet-breaking-your sexual life-1694837509](https://lifehacker.com/how-to-prevent-your-pet-from-ruining-your-sex-life-1694837509)
+> 原文：<https://lifehacker.com/how-to-prevent-your-pet-from-ruining-your-sex-life-1694837509>
 
 在扼杀自发性、偏爱和用清理房间的屁破坏气氛之间，宠物可能是一个真正的杀手。我们都知道收养一只宠物会带来很多责任 ，但是很少有人考虑一个毛茸茸的朋友会对一个人的性生活产生什么影响。以下是如何处理一些最常见的投诉。
 

@@ -1,6 +1,6 @@
 # 你能指望销售人员的“专家”建议吗？
 
-> 原文:[https://jalopnik . com/can-you-count-on-a-sales persons-expert-advice-1651188375](https://jalopnik.com/can-you-count-on-a-salespersons-expert-advice-1651188375)
+> 原文：<https://jalopnik.com/can-you-count-on-a-salespersons-expert-advice-1651188375>
 
 你买了一辆卡车来拉你的船拖车，并明确询问销售人员它是否能完成这项工作。他向你保证会的。后来，你发现它不能借助顺风把你的拖车拉下山。你能起诉取消那笔交易吗？可能不会——除非你采取了特定的措施来保护自己。
 

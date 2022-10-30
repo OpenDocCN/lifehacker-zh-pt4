@@ -1,6 +1,6 @@
 # 我们来谈谈 OS X Yosemite 的隐私问题
 
-> 原文:[https://life hacker . com/let-talk-about-apple-privacy-issues-1655944758](https://lifehacker.com/lets-talk-about-apples-privacy-issues-1655944758)
+> 原文：<https://lifehacker.com/lets-talk-about-apples-privacy-issues-1655944758>
 
 自从 Yosemite 发布以来，用户发现操作系统在你不知情的情况下将所有 [种数据发送给苹果](https://lifehacker.com/safari-and-spotlight-can-send-data-to-apple-heres-how-1648453540)[保存文档](http://arstechnica.com/security/2014/11/critics-chafe-as-macs-send-sensitive-docs-to-icloud-without-warning/) 。从表面上看，这是对隐私的严重侵犯。让我们来看看到底发生了什么。
 

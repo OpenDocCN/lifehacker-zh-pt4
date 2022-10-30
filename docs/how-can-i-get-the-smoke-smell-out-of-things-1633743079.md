@@ -1,6 +1,6 @@
 # 我怎样才能去掉东西上的烟味？
 
-> 原文:[https://life hacker . com/how-can-I-get-the-smoke-smooth-out-of-things-1633743079](https://lifehacker.com/how-can-i-get-the-smoke-smell-out-of-things-1633743079)
+> 原文：<https://lifehacker.com/how-can-i-get-the-smoke-smell-out-of-things-1633743079>
 
 亲爱的生活黑客，最近我们把我父亲转移到了一个长期护理机构。他想让我和妹妹拥有许多美好的东西，并与我们的孩子分享。问题是他是一个终生吸烟者，所有东西都散发着多年的烟味。我们想留着这些东西，但是味道太难闻了。我们能做什么？
 

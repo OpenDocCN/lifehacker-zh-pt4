@@ -1,6 +1,6 @@
 # 小贴士:腌制便宜牛排的最好方法是什么？
 
-> 原文:[https://life hacker . com/tip-tester-what-s-the-best-way-卤制-便宜-1710500510](https://lifehacker.com/tip-tester-what-s-the-best-way-to-marinate-inexpensive-1710500510)
+> 原文：<https://lifehacker.com/tip-tester-what-s-the-best-way-to-marinate-inexpensive-1710500510>
 
 里脊肉、里脊肉和菲力牛排虽然美味，但对我们大多数人来说并不是日常食物。如果你想在不花很多钱的情况下饱餐一顿牛肉，那么选择一些不太受欢迎但仍然美味的牛排 是值得的。我们看了一些不同的腌制技术，这样你就可以充分利用你的肉了。
 

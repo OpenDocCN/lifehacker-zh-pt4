@@ -1,6 +1,6 @@
 # Chromecast 与其他流媒体盒子相比有什么了不起的地方？
 
-> 原文:[https://life hacker . com/whats-so-great-about-the-chrome cast-vs-other-stream in-1516646444](https://lifehacker.com/whats-so-great-about-the-chromecast-vs-other-streamin-1516646444)
+> 原文：<https://lifehacker.com/whats-so-great-about-the-chromecast-vs-other-streamin-1516646444>
 
 亲爱的生活黑客，我一直在考虑买一台 Chromecast。我喜欢它便宜，但有什么理由让它比 Roku 或 Apple TV 更便宜呢？
 

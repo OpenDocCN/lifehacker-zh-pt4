@@ -1,6 +1,6 @@
 # 我如何说服某人寻求专业帮助？
 
-> 原文:[https://life hacker . com/how-do-I-would-someone-seek-professional-help-1590450689](https://lifehacker.com/how-do-i-persuade-someone-to-seek-professional-help-1590450689)
+> 原文：<https://lifehacker.com/how-do-i-persuade-someone-to-seek-professional-help-1590450689>
 
 亲爱的生活黑客，我有一个朋友，他似乎有一些问题，去看心理健康专家会有好处。我怎样才能不像个混蛋一样告诉他这件事？
 

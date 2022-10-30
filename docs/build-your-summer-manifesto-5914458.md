@@ -1,6 +1,6 @@
 # 建立你的夏季宣言
 
-> 原文:[https://lifehacker.com/build-your-summer-manifesto-5914458](https://lifehacker.com/build-your-summer-manifesto-5914458)
+> 原文：<https://lifehacker.com/build-your-summer-manifesto-5914458>
 
 天气温暖的月份提供了一个独特的机会来完成一些特别的事情，无论是在户外度过一段时间，生火烧烤，带孩子出去玩，还是去海滩旅行。当然，当你不工作的时候，坐在空调里玩电子游戏是很容易的，生活就像夏天一样短暂。在天气变冷之前，你想完成什么？
 

@@ -1,6 +1,6 @@
 # 忙碌者减压指南
 
-> 原文:[https://life hacker . com/the-busy-persons-guide-to-reducing-stress-1543718463](https://lifehacker.com/the-busy-persons-guide-to-reducing-stress-1543718463)
+> 原文：<https://lifehacker.com/the-busy-persons-guide-to-reducing-stress-1543718463>
 
 压力是许多人生活中健康问题的最大原因之一:它会导致心脏病、抑郁、焦虑发作、睡眠问题、自身免疫疾病、体重问题等等。但是我们很忙——我们如何在完成工作、照顾好自己和家人的同时，降低的压力水平？
 

@@ -1,6 +1,6 @@
 # 如何以最便宜的价格获得最好的 Roku 体验
 
-> 原文:[https://life hacker . com/how-to-get-the-best-possible-Roku-experience-on-the-ch-1646177801](https://lifehacker.com/how-to-get-the-best-possible-roku-experience-on-the-ch-1646177801)
+> 原文：<https://lifehacker.com/how-to-get-the-best-possible-roku-experience-on-the-ch-1646177801>
 
 Roku 是我们最喜欢的流媒体机顶盒，但对于如此简单的东西，它却拥有强大的功能。知道如何最大限度地利用 Roku 设备，可以开启一个廉价、广阔、便捷的流媒体世界。这里有一些小贴士可以帮助你。
 

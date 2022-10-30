@@ -1,6 +1,6 @@
 # 初创公司首席执行官的日常包
 
-> 原文:[https://life hacker . com/the-startup-CEOs-daily-bag-1637693478](https://lifehacker.com/the-startup-ceos-daily-bag-1637693478)
+> 原文：<https://lifehacker.com/the-startup-ceos-daily-bag-1637693478>
 
 如今，成为一家初创公司的首席执行官意味着任何事情，但你通常需要在保持流动性的同时，为许多不同的事情做好准备。《每日邮报》读者科林·瑞安分享了他的包。
 

@@ -1,6 +1,6 @@
 # 为什么 Roku 比以往更重要
 
-> 原文:[https://gizmodo . com/why-Roku-matters-more-that-ever-1558433873](https://gizmodo.com/why-roku-matters-more-than-ever-1558433873)
+> 原文：<https://gizmodo.com/why-roku-matters-more-than-ever-1558433873>
 
 你有比你想象中更多的流媒体电视选择，尤其是现在亚马逊已经加入了竞争 。虽然 Apple TV、Chromecast 和 Fire TV 都有自己的优势，但它们也有一个致命的弱点:自私。这就是 Roku 如此重要的原因。
 

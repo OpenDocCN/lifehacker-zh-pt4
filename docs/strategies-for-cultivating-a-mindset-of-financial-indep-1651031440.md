@@ -1,6 +1,6 @@
 # 培养财务独立心态的策略
 
-> 原文:[https://life hacker . com/strategies-for-culting-a-mind-of-financial-indep-1651031440](https://lifehacker.com/strategies-for-cultivating-a-mindset-of-financial-indep-1651031440)
+> 原文：<https://lifehacker.com/strategies-for-cultivating-a-mindset-of-financial-indep-1651031440>
 
 正如我多次说过的，我和莎拉的中心目标是尽早实现经济独立。对我们来说，财务独立意味着用工作换取金钱的要求变得完全可以选择，让我们完全根据自己的技能和个人快乐来选择工作。从财务角度考虑，我们 20 多岁的时候是灾难性的，我们的目标是在 45 岁左右实现这个目标——如果一切顺利的话，十年后。
 

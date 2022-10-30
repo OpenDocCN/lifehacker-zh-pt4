@@ -1,6 +1,6 @@
 # 如何像一个经验丰富的老手一样驾驭农贸市场
 
-> 原文:[https://life hacker . com/what-I-learn-from-years-shopping-at-farmers-marke-1696890959](https://lifehacker.com/what-i-learned-from-years-of-shopping-at-farmers-marke-1696890959)
+> 原文：<https://lifehacker.com/what-i-learned-from-years-of-shopping-at-farmers-marke-1696890959>
 
 吃当地最简单的方法就是去农贸市场购物。通过这样做，你可以 [支持当地农民](http://lifehacker.com/why-eating-seasonally-and-locally-is-better-for-you-an-1563025065) 并融入你的社区。如果你想买一个 ，这通常也是最划算的 [。](http://lifehacker.com/hit-up-farmers-markets-when-cooking-for-one-5402989)
 

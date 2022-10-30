@@ -1,6 +1,6 @@
 # 新款 iPad Mini:你需要知道的一切
 
-> 原文:[https://gizmodo . com/ipad-mini-2-一切你需要知道的事 1449855821](https://gizmodo.com/ipad-mini-2-everything-you-need-to-know-1449855821)
+> 原文：<https://gizmodo.com/ipad-mini-2-everything-you-need-to-know-1449855821>
 
 有了全新的 iPad mini，它终于有了一个值得注视的屏幕。真是(惊喜！)视网膜显示屏将使 7.9 英寸屏幕上的一切看起来惊人地清晰。除了新的梦幻般的屏幕，苹果还在原来轻薄的机身内配备了更快的芯片。但是要贵很多。
 

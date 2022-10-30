@@ -1,6 +1,6 @@
 # 最好的大学设施和服务，你可能不会使用
 
-> 原文:[https://life hacker . com/the-best-university-friendships-and-services-you-may-not-1631896259](https://lifehacker.com/the-best-university-amenities-and-services-you-may-not-1631896259)
+> 原文：<https://lifehacker.com/the-best-university-amenities-and-services-you-may-not-1631896259>
 
 你为上大学付出了高昂的代价，但许多学生没有利用他们实际上为之付费的便利设施和服务。以下是你在校园里可能忽略的一些最好的东西。
 

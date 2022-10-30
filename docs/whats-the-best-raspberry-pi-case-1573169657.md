@@ -1,6 +1,6 @@
 # 最好的树莓派案例是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-raspberry-pi-case-1573169657](https://lifehacker.com/whats-the-best-raspberry-pi-case-1573169657)
+> 原文：<https://lifehacker.com/whats-the-best-raspberry-pi-case-1573169657>
 
 你知道我们喜欢树莓派，但当你得到一个时，你应该做的第一件事就是为它找到一个像样的盒子。一个好的案例将保证它的安全，保护端口，很好地适应您的构建项目，同时增加一点风格。本周，我们想听听你最喜欢的 Pi 案例。
 

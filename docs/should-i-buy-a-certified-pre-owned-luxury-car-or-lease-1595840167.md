@@ -1,6 +1,6 @@
 # 我应该买一辆认证的二手车还是租一辆新车？
 
-> 原文:[https://jalopnik . com/should-I-buy-a-certified-pre-owned-luxury-car-or-lease-1595840167](https://jalopnik.com/should-i-buy-a-certified-pre-owned-luxury-car-or-lease-1595840167)
+> 原文：<https://jalopnik.com/should-i-buy-a-certified-pre-owned-luxury-car-or-lease-1595840167>
 
 我很喜欢新的宝马 228i，但是它超出了我的价格范围。CPO 128i 似乎是一个不错的选择。我有一个大约 25，000 美元的预算，并愿意使用 5000 美元的首期付款。然而，我不经常开车，我在想租赁可能是一个选择。我该怎么办？
 

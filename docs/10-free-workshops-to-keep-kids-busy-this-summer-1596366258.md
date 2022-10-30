@@ -1,6 +1,6 @@
 # 10+免费研讨会，让孩子们在这个夏天忙个不停
 
-> 原文:[https://life hacker . com/10-free-workshop-to-keep-kids-busy-this-summer-1596366258](https://lifehacker.com/10-free-workshops-to-keep-kids-busy-this-summer-1596366258)
+> 原文：<https://lifehacker.com/10-free-workshops-to-keep-kids-busy-this-summer-1596366258>
 
 学校放假了，但这并不意味着孩子们必须停止学习或停止创造。下面的免费研讨会和活动将让孩子不会感到无聊，家长也不会想知道每天或周末该做些什么。
 

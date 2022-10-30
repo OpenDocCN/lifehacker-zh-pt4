@@ -1,6 +1,6 @@
 # 最好的 CPU 冷却器是什么？
 
-> 原文:[https://lifehacker.com/whats-the-best-cpu-cooler-1676408475](https://lifehacker.com/whats-the-best-cpu-cooler-1676408475)
+> 原文：<https://lifehacker.com/whats-the-best-cpu-cooler-1676408475>
 
 如果您正在构建一台新的 PC 并计划超频，或者您只是希望您的新设备尽可能安静，您可能需要为您的处理器进行一些售后冷却。你有很多选择，但是这周我们想听听你认为哪个是最好的。
 

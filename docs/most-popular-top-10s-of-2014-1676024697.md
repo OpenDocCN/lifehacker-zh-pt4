@@ -1,6 +1,6 @@
 # 2014 年最受欢迎的前十名
 
-> 原文:[https://life hacker . com/most-popular-top-10s-of-of-2014-1676024697](https://lifehacker.com/most-popular-top-10s-of-2014-1676024697)
+> 原文：<https://lifehacker.com/most-popular-top-10s-of-2014-1676024697>
 
 在 Lifehacker，我们每天都在分享新的提示和技巧，帮助你更好地生活，但要跟上所有这些提示和技巧并不容易。这就是我们每周总结的最受欢迎的建议派上用场的地方。以下是 2014 年最受欢迎的十大榜单。
 

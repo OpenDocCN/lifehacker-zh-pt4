@@ -1,6 +1,6 @@
 # 如何使用 Pushbullet 在所有设备之间架起桥梁
 
-> 原文:[https://life hacker . com/how-to-use-push bullet-to-bridge-the-gap-of-all-you-1548595270](https://lifehacker.com/how-to-use-pushbullet-to-bridge-the-gap-between-all-you-1548595270)
+> 原文：<https://lifehacker.com/how-to-use-pushbullet-to-bridge-the-gap-between-all-you-1548595270>
 
 Pushbullet 是一项服务，它充当了移动操作系统和桌面操作系统之间的桥梁，为开发人员更新设置了黄金标准。如果你最近(或者曾经)没有使用过它，这是一个很好的机会来看看它能做的所有很酷的事情。
 

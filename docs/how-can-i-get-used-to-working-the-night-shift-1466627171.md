@@ -1,6 +1,6 @@
 # 怎么才能习惯上夜班？
 
-> 原文:[https://life hacker . com/how-can-I-get-use-to-work the-night-shift-1466627171](https://lifehacker.com/how-can-i-get-used-to-working-the-night-shift-1466627171)
+> 原文：<https://lifehacker.com/how-can-i-get-used-to-working-the-night-shift-1466627171>
 
 亲爱的 Lifehacker，
 我上班要上夜班，下午 5 点上班，凌晨 3 点下班，不知道该怎么准备。我该如何调整？考虑到当太阳落山时我会醒着，而世界上的其他人都在睡觉，有没有一个睡觉、起床或吃饭的好时机？我应该避免咖啡因还是在下午 4 点吃早餐？救命啊！

@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名食品科学家我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-food-scientist-1717569695](https://lifehacker.com/career-spotlight-what-i-do-as-a-food-scientist-1717569695)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-food-scientist-1717569695>
 
 把食物放到当地杂货店的货架上所需要的科学和工程是广泛而多样的。一个鲜为人知的领域被称为“感官科学”，在这个领域中，科学家进行测试，以确保正在生产的食品的质量和完整性。
 

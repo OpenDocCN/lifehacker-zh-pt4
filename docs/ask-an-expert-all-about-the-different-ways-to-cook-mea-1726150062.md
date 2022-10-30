@@ -1,6 +1,6 @@
 # 问专家:所有关于烹调肉类的不同方法
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-the-different-ways-cook-mea-1726150062](https://lifehacker.com/ask-an-expert-all-about-the-different-ways-to-cook-mea-1726150062)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-the-different-ways-to-cook-mea-1726150062>
 
 今天我们这里有一位专业的厨师来回答你关于烹饪肉类的各种不同方法的迫切问题！向主厨安吉·玛尔 问好——她是纽约比阿特丽斯酒店[的行政总厨，最近在美食网上赢得了](http://thebeatriceinn.com/) [切肉烧烤大师](http://blog.foodnetwork.com/fn-dish/2015/08/chopped-grill-masters-grand-champion-angie-mar/) 。
 

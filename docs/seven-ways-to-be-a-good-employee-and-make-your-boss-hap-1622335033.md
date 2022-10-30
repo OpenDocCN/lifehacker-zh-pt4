@@ -1,6 +1,6 @@
 # 成为好员工并让老板开心的七种方法
 
-> 原文:[https://life hacker . com/seven-ways-to-be-a-good-employee-and-make-your-boss-hap-1622335033](https://lifehacker.com/seven-ways-to-be-a-good-employee-and-make-your-boss-hap-1622335033)
+> 原文：<https://lifehacker.com/seven-ways-to-be-a-good-employee-and-make-your-boss-hap-1622335033>
 
 取悦你的老板并不是拍马屁。当你的目标是让你的经理更成功——而不仅仅是你自己——你将作为一名个人表演者、一名专业人士和团队的一员而成长，尤其是如果你刚刚开始你的职业生涯。
 

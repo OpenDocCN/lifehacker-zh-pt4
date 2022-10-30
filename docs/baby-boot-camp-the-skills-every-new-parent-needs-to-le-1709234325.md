@@ -1,6 +1,6 @@
 # 婴儿新兵训练营:每个新父母需要学习的技能
 
-> 原文:[https://life hacker . com/baby-boot-camp-the-skills-every-new-parent-needs-to-le-1709234325](https://lifehacker.com/baby-boot-camp-the-skills-every-new-parent-needs-to-le-1709234325)
+> 原文：<https://lifehacker.com/baby-boot-camp-the-skills-every-new-parent-needs-to-le-1709234325>
 
 对于这样一件小事，婴儿可能会非常吓人，尤其是当你第一次为人父母的时候。婴儿没有指导手册，所以这里有一个婴儿 101 生存指南，适用于那些与新生儿生活在一起的微妙而艰难的头几个月。
 

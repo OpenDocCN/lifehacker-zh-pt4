@@ -1,6 +1,6 @@
 # 全文 RSS 提要生成器让你永远摆脱被截断的 RSS 提要
 
-> 原文:[https://life hacker . com/full-text-RSS-feed-builder-rids-you-of-truncated-RSS-Fe-5774390](https://lifehacker.com/full-text-rss-feed-builder-rids-you-of-truncated-rss-fe-5774390)
+> 原文：<https://lifehacker.com/full-text-rss-feed-builder-rids-you-of-truncated-rss-fe-5774390>
 
 我们已经分享了 [一个工具](https://lifehacker.com/google-reader-full-feed-expands-truncated-feeds-with-a-5523024) 来扩展截断的 RSS 源，但是免费服务全文 RSS 源构建器做得更好:只需插入一个源，它就会给你一个包含每篇文章全文的新源。
 

@@ -1,6 +1,6 @@
 # 预订一次“重新定位的巡游”来为你的假期省钱
 
-> 原文:[https://life hacker . com/book-a-resposing-cruise-to-save-money-on-your-vac-1683708462](https://lifehacker.com/book-a-repositioning-cruise-to-save-money-on-your-vac-1683708462)
+> 原文：<https://lifehacker.com/book-a-repositioning-cruise-to-save-money-on-your-vac-1683708462>
 
 游轮是游览多个目的地的好方法，不必每隔几天就重新打包行李——而且它们也不必很贵 。省钱的一个方法是进行一次重新定位的航行(一次单程旅行，意味着将船从一个港口移动到另一个港口)，如果你想选择路线，现在是时候预订了。
 

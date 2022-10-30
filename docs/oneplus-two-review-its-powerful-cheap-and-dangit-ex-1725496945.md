@@ -1,6 +1,6 @@
 # OnePlus 2 评论:它功能强大，价格低廉，而且危险，令人兴奋
 
-> 原文:[https://gizmodo . com/oneplus-two-review-its-powerful-cheap-and-dangit-ex-1725496945](https://gizmodo.com/oneplus-two-review-its-powerful-cheap-and-dangit-ex-1725496945)
+> 原文：<https://gizmodo.com/oneplus-two-review-its-powerful-cheap-and-dangit-ex-1725496945>
 
 尽管苹果、三星和摩托罗拉正在推出他们最新的旗舰超级手机，但 OnePlus 2 无疑是目前市场上最有趣的手机。它与众不同:一部雄心勃勃、功能强大的手机，不会让你花太多钱。
 

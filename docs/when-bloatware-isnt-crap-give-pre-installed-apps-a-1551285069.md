@@ -1,6 +1,6 @@
 # 当“膨胀软件”不是垃圾时:给预装应用一个机会
 
-> 原文:[https://life hacker . com/when-bloatware-not-crap-give-pre-installed-apps-a-1551285069](https://lifehacker.com/when-bloatware-isnt-crap-give-pre-installed-apps-a-1551285069)
+> 原文：<https://lifehacker.com/when-bloatware-isnt-crap-give-pre-installed-apps-a-1551285069>
 
 无论你说的是 [预装 PC](https://lifehacker.com/can-i-reinstall-windows-on-my-computer-without-the-bloa-1512345361)[安卓手机](http://lifehacker.com/how-to-fix-androids-biggest-annoyances-2013-edition-1488535064) ，还是其他小玩意，预装软件往往 [恶名昭彰](http://lifehacker.com/the-pc-decrapifier-detects-more-bloatware-385741) 。但是仅仅因为它是预装的，并不意味着它是膨胀的——每隔一段时间，你就会得到一个你可能从未见过的宝石。
 

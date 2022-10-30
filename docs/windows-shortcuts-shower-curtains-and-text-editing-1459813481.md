@@ -1,6 +1,6 @@
 # 窗口快捷方式、浴帘和文本编辑
 
-> 原文:[https://life hacker . com/windows-快捷方式-淋浴-窗帘-和-文本-编辑-1459813481](https://lifehacker.com/windows-shortcuts-shower-curtains-and-text-editing-1459813481)
+> 原文：<https://lifehacker.com/windows-shortcuts-shower-curtains-and-text-editing-1459813481>
 
 读者提供了使用窗口、处理短浴帘和基于 Chrome 的文本编辑的最佳技巧。
 

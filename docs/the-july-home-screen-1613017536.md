@@ -1,6 +1,6 @@
 # 七月主屏幕
 
-> 原文:[https://lifehacker.com/the-july-home-screen-1613017536](https://lifehacker.com/the-july-home-screen-1613017536)
+> 原文：<https://lifehacker.com/the-july-home-screen-1613017536>
 
 为了简单，总有话要说。这种主屏幕设计当然也是如此。这一款的特点是在当前日期和时间旁边有一个你一天的活动的小概览，还有几个通知徽章，让你知道你需要处理多少封电子邮件或未接来电。
 

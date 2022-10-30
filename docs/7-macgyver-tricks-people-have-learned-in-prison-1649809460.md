@@ -1,6 +1,6 @@
 # 人们在监狱中学到的 7 个以上的恶作剧
 
-> 原文:[https://life hacker . com/7-macgyver-tricks-people-hacken-learned-in-inside-1649809460](https://lifehacker.com/7-macgyver-tricks-people-have-learned-in-prison-1649809460)
+> 原文：<https://lifehacker.com/7-macgyver-tricks-people-have-learned-in-prison-1649809460>
 
 当你被送进监狱时，你被剥夺了我们其他人认为理所当然的基本舒适——比如有许多食物选择或点燃走私香烟的方法。需要是发明之母，所以当资源有限时，那些蹲过监狱的人不得不想出一些创造性的生活窍门。以下是其中的几个。
 

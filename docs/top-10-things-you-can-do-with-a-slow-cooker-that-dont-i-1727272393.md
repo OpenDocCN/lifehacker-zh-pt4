@@ -1,6 +1,6 @@
 # 用慢炖锅可以做的不涉及食物的 10 件事
 
-> 原文:[https://life hacker . com/top-10-things-you-can-do-that-do-I-1727272393](https://lifehacker.com/top-10-things-you-can-do-with-a-slow-cooker-that-dont-i-1727272393)
+> 原文：<https://lifehacker.com/top-10-things-you-can-do-with-a-slow-cooker-that-dont-i-1727272393>
 
 慢炖锅(或称瓦罐锅)是一种不用手动烹饪的奇妙器具，但温和、缓慢的加热过程也可以用于其他与食物无关的事情。比如这十件事。
 

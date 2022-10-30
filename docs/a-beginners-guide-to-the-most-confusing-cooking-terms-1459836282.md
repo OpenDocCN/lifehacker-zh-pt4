@@ -1,6 +1,6 @@
 # 最令人困惑的烹饪术语初学者指南
 
-> 原文:[https://life hacker . com/a-初学者指南-最令人困惑的烹饪术语-1459836282](https://lifehacker.com/a-beginners-guide-to-the-most-confusing-cooking-terms-1459836282)
+> 原文：<https://lifehacker.com/a-beginners-guide-to-the-most-confusing-cooking-terms-1459836282>
 
 能够在家做饭并不难——你所要做的就是照着菜谱做。不幸的是，当食谱中充满了一堆对我们这些初学者来说陌生的令人困惑的术语时，事情就变得更加困难了。如果切碎、切块和剁碎之间的区别对你来说只不过是几个字母，那么让我们来揭开那些(和许多其他)术语的神秘面纱。
 

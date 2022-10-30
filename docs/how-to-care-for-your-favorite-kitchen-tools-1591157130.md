@@ -1,6 +1,6 @@
 # 如何保养你最喜欢的厨房工具
 
-> 原文:[https://life hacker . com/how-to-care-for-your favorite-kitchen-tools-1591157130](https://lifehacker.com/how-to-care-for-your-favorite-kitchen-tools-1591157130)
+> 原文：<https://lifehacker.com/how-to-care-for-your-favorite-kitchen-tools-1591157130>
 
 就像你的汽车或电脑一样，你的厨房工具需要保养和维护才能达到最佳状态。所有这一切只需要很少的努力，他们会为你服务多年。
 

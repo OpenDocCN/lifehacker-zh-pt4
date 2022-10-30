@@ -1,6 +1,6 @@
 # 问一问专家:如何为在职父母找到平衡
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-finding-balance-for-work-pa-1594736842](https://lifehacker.com/ask-an-expert-all-about-finding-balance-for-working-pa-1594736842)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-finding-balance-for-working-pa-1594736842>
 
 为人父母并不容易，当你专注于孩子的事业时，简单地管理你的时间和责任是一项巨大的任务。当你还有电子邮件要发的时候，你是如何找到时间和你的孩子在一起的？
 

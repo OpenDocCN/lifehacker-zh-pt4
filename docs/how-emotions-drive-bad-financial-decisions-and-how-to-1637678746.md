@@ -1,6 +1,6 @@
 # 情绪如何驱动糟糕的财务决策(以及如何掌控)
 
-> 原文:[https://life hacker . com/how-emotions-drive-bad-financial-decisions-and-how-to 1637678746](https://lifehacker.com/how-emotions-drive-bad-financial-decisions-and-how-to-1637678746)
+> 原文：<https://lifehacker.com/how-emotions-drive-bad-financial-decisions-and-how-to-1637678746>
 
 情绪化的情况会导致你做出糟糕的财务决策。如果你对自己的财务状况感到嫉妒或尴尬，最好在感情用事之前权衡一下你的逻辑选择。这里有八种情绪会导致你做出糟糕的财务决策，以及如何控制它们。
 

@@ -1,6 +1,6 @@
 # 减轻客户服务体验的最佳服务
 
-> 原文:[https://life hacker . com/the-best-services-the-ease-your-customer-service-exper-1574946654](https://lifehacker.com/the-best-services-that-ease-your-customer-service-exper-1574946654)
+> 原文：<https://lifehacker.com/the-best-services-that-ease-your-customer-service-exper-1574946654>
 
 客户服务应该是为了让我们做得更好，但有时恰恰相反。这里有一些服务可以让你重新掌握权力，让这些问题不那么紧张。
 

@@ -1,6 +1,6 @@
 # 工具学校:全能振荡工具
 
-> 原文:[https://life hacker . com/tool-school-the-do-it-all-oscillating-tool-1657735344](https://lifehacker.com/tool-school-the-do-it-all-oscillating-tool-1657735344)
+> 原文：<https://lifehacker.com/tool-school-the-do-it-all-oscillating-tool-1657735344>
 
 如果需要，振动工具可以在狭小的空间内打磨、研磨、切割、切入切割、平切、移除灌浆和刮削。这使得它成为你店里最通用的电动工具，也是任何 DIY 者的必备之物。
 

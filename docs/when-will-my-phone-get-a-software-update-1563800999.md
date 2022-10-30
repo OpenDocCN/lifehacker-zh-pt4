@@ -1,6 +1,6 @@
 # 我的手机什么时候能获得软件更新？
 
-> 原文:[https://life hacker . com/when-will-my-phone-get-a-software-update-1563800999](https://lifehacker.com/when-will-my-phone-get-a-software-update-1563800999)
+> 原文：<https://lifehacker.com/when-will-my-phone-get-a-software-update-1563800999>
 
 亲爱的 Lifehacker，
 我有一个[插入 Android 或 iPhone 的选择]，我仍然在运行[一些旧的操作系统版本]。我什么时候能获得[X 新操作系统版本]的更新？

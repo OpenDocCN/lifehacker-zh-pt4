@@ -1,6 +1,6 @@
 # 作为一名自由职业者，五个一小时的例行程序将改善你的生活
 
-> 原文:[https://life hacker . com/five-one-hour-routines-that-will-improve-the-a-a-1560495938](https://lifehacker.com/five-one-hour-routines-that-will-improve-your-life-as-a-1560495938)
+> 原文：<https://lifehacker.com/five-one-hour-routines-that-will-improve-your-life-as-a-1560495938>
 
 谁是你最有价值的客户？并不是给你带来最多钱的人。也不是最出名的那个。 ***你*** 是你最重要的客户，这意味着你需要每周花一点时间完善自己的流程。这里有五种方法可以做到这一点。
 

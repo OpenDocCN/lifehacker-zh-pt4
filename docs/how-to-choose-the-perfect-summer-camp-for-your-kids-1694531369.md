@@ -1,6 +1,6 @@
 # 如何为你的孩子选择完美的夏令营
 
-> 原文:[https://life hacker . com/how-to-choose the perfect-the-summer-camp for your-kids-1694531369](https://lifehacker.com/how-to-choose-the-perfect-summer-camp-for-your-kids-1694531369)
+> 原文：<https://lifehacker.com/how-to-choose-the-perfect-summer-camp-for-your-kids-1694531369>
 
 选择一个合适的夏令营可能会非常困难。无论是你自己去，还是你在为孩子们寻找今年夏天要做的事情，在一个有各种类型的夏令营、主题和费用的世界中穿行都是一件痛苦的事情。这里有一些小贴士可以让这个过程变得简单一些。
 

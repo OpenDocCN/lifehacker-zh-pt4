@@ -1,6 +1,6 @@
 # 如何解锁您喜爱的软件中的隐藏设置
 
-> 原文:[https://life hacker . com/how-to-unlock-hidden-settings-in-your favorite-software-1658886413](https://lifehacker.com/how-to-unlock-hidden-settings-in-your-favorite-software-1658886413)
+> 原文：<https://lifehacker.com/how-to-unlock-hidden-settings-in-your-favorite-software-1658886413>
 
 并非每个应用程序都有容易访问的设置菜单。有时，开发人员会隐藏调试菜单、秘密设置等等。有了它们，你可以解锁额外的功能或只是得到一些疯狂的统计数据。让我们来看看其中最有用的一些。
 

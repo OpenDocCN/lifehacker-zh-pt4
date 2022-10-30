@@ -1,6 +1,6 @@
 # 怀孕让我吃惊的三件事
 
-> 原文:[https://life hacker . com/three-things-that-shock-me-above-1545866742](https://lifehacker.com/three-things-that-surprised-me-about-pregnancy-1545866742)
+> 原文：<https://lifehacker.com/three-things-that-surprised-me-about-pregnancy-1545866742>
 
 当你期待 的时候，你可能已经知道 [会期待什么了也许你的女性朋友和亲戚不能停止给你建议。也许你已经不止一次怀孕了。不管怎样，当涉及到怀孕的时候，有些事情我们不会轻易讨论。是时候说漏嘴了。](https://www.amazon.com/dp/0761148574?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/three-things-that-surprised-me-about-pregnancy-1545866742&asc_source=&linkCode=ogi&psc=1&smid=A3RPXKKLQBGXG0&tag=kinjalifehackerlink-20&th=1)
 

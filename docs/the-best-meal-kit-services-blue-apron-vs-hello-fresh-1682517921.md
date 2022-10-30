@@ -1,6 +1,6 @@
 # 最佳餐包服务:蓝色围裙 vs. Hello Fresh vs. Plated
 
-> 原文:[https://life hacker . com/the-best-meal-kit-services-blue-围裙-vs-hello-fresh-1682517921](https://lifehacker.com/the-best-meal-kit-services-blue-apron-vs-hello-fresh-1682517921)
+> 原文：<https://lifehacker.com/the-best-meal-kit-services-blue-apron-vs-hello-fresh-1682517921>
 
 Blue 围裙、Hello Fresh 和 Plated 等膳食订阅服务每周将新鲜食材送到您的门口，节省您计划膳食和购物的时间和麻烦。但是它们值得吗？下面看一下这些服务是如何工作的，并相互比较。
 

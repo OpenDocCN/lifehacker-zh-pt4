@@ -1,6 +1,6 @@
 # 戴森干手器，网址文本扩展，和小刀
 
-> 原文:[https://life hacker . com/Dyson-hand-dryers-URL-text-expansion-and-pocket-knive-1458441198](https://lifehacker.com/dyson-hand-dryers-url-text-expansion-and-pocket-knive-1458441198)
+> 原文：<https://lifehacker.com/dyson-hand-dryers-url-text-expansion-and-pocket-knive-1458441198>
 
 读者们提供了让戴森干衣机运行更长时间的最佳技巧，文本扩展常用类型的网址，以及学习所有关于小刀的知识。
 

@@ -1,6 +1,6 @@
 # 如何通过脸书或推特获得更好的客户服务
 
-> 原文:[https://life hacker . com/how-to-get-better-customer-service-over-Facebook-or-twi-1589204317](https://lifehacker.com/how-to-get-better-customer-service-over-facebook-or-twi-1589204317)
+> 原文：<https://lifehacker.com/how-to-get-better-customer-service-over-facebook-or-twi-1589204317>
 
 在呼叫中心和无穷无尽的电话菜单之间，当我们需要客户服务时，更多的人转向社交媒体就不足为奇了。一些公司对此做出了回应...其他的，就没那么多了。通过社交媒体获得最好、最快的帮助既是艺术也是科学。以下是一些获得最佳效果的建议，来自一个通过社交媒体谋生的人。
 

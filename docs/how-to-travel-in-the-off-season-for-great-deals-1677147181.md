@@ -1,6 +1,6 @@
 # 如何在淡季旅行以获得优惠
 
-> 原文:[https://life hacker . com/how-to-trade-off-season-deals-1677147181](https://lifehacker.com/how-to-travel-in-the-off-season-for-great-deals-1677147181)
+> 原文：<https://lifehacker.com/how-to-travel-in-the-off-season-for-great-deals-1677147181>
 
 每个旅游目的地都有一年中理想的时间，但如果你在淡季去——当天气不太好的时候——你可以买到一些很棒的东西，而且仍然有很多乐趣。以下是方法。
 

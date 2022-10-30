@@ -1,6 +1,6 @@
 # 谷歌的真实智能手机游戏 Ingress 是如何让我走出自我的
 
-> 原文:[https://life hacker . com/how-ingress-Google-real-world-smart phone-game-got-me-1710320867](https://lifehacker.com/how-ingress-googles-real-world-smartphone-game-got-me-1710320867)
+> 原文：<https://lifehacker.com/how-ingress-googles-real-world-smartphone-game-got-me-1710320867>
 
 走出家门去认识新的人是很难的。很长一段时间，我让惯性将我限制在相同的街区和日常事务中——直到我开始玩谷歌的一款名为的移动增强现实游戏。在短短的几个月里，我探索了我以前从未见过的地方，结识了大量有趣的新朋友，累计行走了数百英里——这一切都是因为我手机上的一个简单的视频游戏。
 

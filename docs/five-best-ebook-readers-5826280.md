@@ -1,6 +1,6 @@
 # 五款最佳电子书阅读器
 
-> 原文:[https://lifehacker.com/five-best-ebook-readers-5826280](https://lifehacker.com/five-best-ebook-readers-5826280)
+> 原文：<https://lifehacker.com/five-best-ebook-readers-5826280>
 
 如果你喜欢在旅途中带着你的书，你从来没有更多的选择。最好的电子阅读器很薄，电池可以持续几周，有电子墨水和彩色品种，有多种屏幕尺寸适合你，价格也不同。根据您的提名，让我们来看看五个最佳企业。
 

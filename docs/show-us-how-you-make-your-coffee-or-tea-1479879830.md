@@ -1,6 +1,6 @@
 # 向我们展示你是如何制作咖啡或茶的
 
-> 原文:[https://life hacker . com/show-us-how-you-make-you-or-tea-1479879830](https://lifehacker.com/show-us-how-you-make-your-coffee-or-tea-1479879830)
+> 原文：<https://lifehacker.com/show-us-how-you-make-your-coffee-or-tea-1479879830>
 
 冲泡一杯好的咖啡或茶并不需要高端的设备，只需要一点知识和实践。这并不是说这种装备不能带来很多乐趣。我们想看看你是怎么做的。
 

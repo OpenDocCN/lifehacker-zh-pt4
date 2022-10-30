@@ -1,6 +1,6 @@
 # 怎样才能让我的廉价家具更耐用？
 
-> 原文:[https://life hacker . com/how-can-I-make-my-cheap-furniture-last-longer-1545496780](https://lifehacker.com/how-can-i-make-my-cheap-furniture-last-longer-1545496780)
+> 原文：<https://lifehacker.com/how-can-i-make-my-cheap-furniture-last-longer-1545496780>
 
 亲爱的 Lifehacker，
 我手头拮据，没有很多钱买家具。我有一些适合自己的衣服，但我倾向于去百货商店和宜家购物。有什么方法可以让家具更耐用，或者加固它，让它更有弹性？我不想下次搬家的时候它就散架了！

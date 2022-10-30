@@ -1,6 +1,6 @@
 # 假日播客特别节目:公寓出租、房屋购买和营养
 
-> 原文:[https://life hacker . com/holiday-podcast-special-apartment-rentals-home-buying-1490047712](https://lifehacker.com/holiday-podcast-special-apartment-rentals-home-buying-1490047712)
+> 原文：<https://lifehacker.com/holiday-podcast-special-apartment-rentals-home-buying-1490047712>
 
 在本周的播客中，我们将采访前房东兼业主布鲁斯·达奇斯和拉斯维加斯的注册营养师安迪·贝拉地和安迪·贝拉地，寻求专家对你的问题的解答。
 

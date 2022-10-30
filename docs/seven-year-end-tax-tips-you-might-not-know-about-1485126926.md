@@ -1,6 +1,6 @@
 # 你可能不知道的七个年终税务提示
 
-> 原文:[https://life hacker . com/seven-year-end-tax-tips-you-may-not-know-on-1485126926](https://lifehacker.com/seven-year-end-tax-tips-you-might-not-know-about-1485126926)
+> 原文：<https://lifehacker.com/seven-year-end-tax-tips-you-might-not-know-about-1485126926>
 
 一年中最美好的时光过后，就是大家最不喜欢的季节:纳税季。如果你通常试图在 1 月 1 日之前避免考虑税收，你可能会错过节省一点钱的机会。根据一些税务专家的说法，如果你想在 4 月份减少你的税单，现在是采取最后行动的时候了。
 

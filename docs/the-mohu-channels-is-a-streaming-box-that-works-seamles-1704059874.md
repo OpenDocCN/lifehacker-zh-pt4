@@ -1,6 +1,6 @@
 # Mohu Channels 是一个与天线无缝协作的流盒
 
-> 原文:[https://life hacker . com/the-mohu-channels-is-a-streaming-box-that-works-seamles-1704059874](https://lifehacker.com/the-mohu-channels-is-a-streaming-box-that-works-seamles-1704059874)
+> 原文：<https://lifehacker.com/the-mohu-channels-is-a-streaming-box-that-works-seamles-1704059874>
 
 说到切断有线电视，大多数人主要尝试两种方式:带天线的免费无线电视，以及网飞和 Hulu 等流媒体服务。两者本身都很伟大，但合在一起，他们更强大。Mohu Channels 是一个 Android 驱动的盒子，将两者无缝融合到一个电视设备中。
 

@@ -1,6 +1,6 @@
 # 当我还在上大学的时候，我希望知道的七件事
 
-> 原文:[https://life hacker . com/seven-things-I-wish-I-know-when-I-is-been-is-in-college-1538265078](https://lifehacker.com/seven-things-i-wish-i-knew-when-i-was-still-in-college-1538265078)
+> 原文：<https://lifehacker.com/seven-things-i-wish-i-knew-when-i-was-still-in-college-1538265078>
 
 大学不仅仅是工作培训。这是你探索、交朋友和成长的机会。不幸的是，大学费用也比以往任何时候都要高，所以你必须在你的探索和一些实际的实用性之间找到平衡。这里有一些我们希望在大学时代就知道的事情。
 

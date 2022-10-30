@@ -1,6 +1,6 @@
 # 障碍在于方式:寻找成功的正确心态
 
-> 原文:[https://life hacker . com/the-barrier-is-the-way-the-right-mind-for-finding-1665117695](https://lifehacker.com/the-obstacle-is-the-way-the-right-mindset-for-finding-1665117695)
+> 原文：<https://lifehacker.com/the-obstacle-is-the-way-the-right-mindset-for-finding-1665117695>
 
 有些人在遇到生活中的障碍时会原地踏步，而有些人却能够茁壮成长，因为有了他们。瑞安·哈乐迪的*障碍在于方式:将考验转化为胜利的永恒艺术*没有提供实现目标的一步一步的指导，但它确实提供了每个人都可以追求的咒语和心态。
 

@@ -1,6 +1,6 @@
 # Android 的最佳网络浏览器
 
-> 原文:[https://life hacker . com/the-best-web-browser-for-Android-5832026](https://lifehacker.com/the-best-web-browser-for-android-5832026)
+> 原文：<https://lifehacker.com/the-best-web-browser-for-android-5832026>
 
 安卓系统不缺乏优秀的网络浏览器，你使用哪一个很大程度上取决于个人喜好。然而，如果我们必须选择一个，我们认为 Chrome 在速度、跨设备支持和集成功能方面是你的最佳选择。
 

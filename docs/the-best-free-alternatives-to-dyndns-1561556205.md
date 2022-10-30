@@ -1,6 +1,6 @@
 # 动态域名的最佳免费替代品
 
-> 原文:[https://life hacker . com/the-best-free-alternatives-to-dyn DNS-1561556205](https://lifehacker.com/the-best-free-alternatives-to-dyndns-1561556205)
+> 原文：<https://lifehacker.com/the-best-free-alternatives-to-dyndns-1561556205>
 
 你可能听说过， [DynDNS 正在关闭其免费计划](http://lifehacker.com/dyndns-gets-rid-of-free-accounts-now-costs-25-per-yea-1560977109) ，这有点令人失望。尽管如此，如果你需要一个主机名来从任何地方访问你的家庭计算机，并且你不想为此花钱，它们并不是唯一的选择。以下是一些替代方案。
 

@@ -1,6 +1,6 @@
 # 如何在不宠坏孩子的情况下表扬他们
 
-> 原文:[https://life hacker . com/how-to-mass-your-kids-without-宠坏他们-1557096423](https://lifehacker.com/how-to-praise-your-kids-without-spoiling-them-1557096423)
+> 原文：<https://lifehacker.com/how-to-praise-your-kids-without-spoiling-them-1557096423>
 
 你是一个好父母，你想帮助你的孩子成长为快乐和成功的人。所以，当你注意到他们做得对的时候，你会给予表扬和鼓励。但是，所有这些赞扬传递了正确的信息吗？
 

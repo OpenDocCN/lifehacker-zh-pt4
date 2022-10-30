@@ -1,6 +1,6 @@
 # 购买独特礼物的最佳购物网站
 
-> 原文:[https://life hacker . com/the-best-shopping-sites-for-buying-unique-gifts-1669950683](https://lifehacker.com/the-best-shopping-sites-for-buying-unique-gifts-1669950683)
+> 原文：<https://lifehacker.com/the-best-shopping-sites-for-buying-unique-gifts-1669950683>
 
 年复一年，为你清单上的每个人找到最完美的礼物并不容易。然而，一些网站让你更容易找到不太典型的礼物，你的收件人一定会记得并感激。我们正在建立这些网站的列表，以便您可以在时间结束前完成购物！
 

@@ -1,6 +1,6 @@
 # 手机追踪，Beats by Dre 耳机，还有很多旅行小贴士
 
-> 原文:[https://life hacker . com/mobile-tracking-beats-by-dre-headphones-and-lots-o-1486761466](https://lifehacker.com/cellphone-tracking-beats-by-dre-headphones-and-lots-o-1486761466)
+> 原文：<https://lifehacker.com/cellphone-tracking-beats-by-dre-headphones-and-lots-o-1486761466>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-i1dPBlpu9pI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-i1dPBlpu9pI&start=0) 
 

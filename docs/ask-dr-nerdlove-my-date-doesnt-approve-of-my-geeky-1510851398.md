@@ -1,6 +1,6 @@
 # 去问 Nerdlove 博士:我的约会对象不赞成我的怪癖
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-date-dont-approve-of-my-geeky-1510851398](https://kotaku.com/ask-dr-nerdlove-my-date-doesnt-approve-of-my-geeky-1510851398)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-date-doesnt-approve-of-my-geeky-1510851398>
 
 怎么了，各位？欢迎收看最新一期的 [向书呆子爱博士](http://kotaku.com/tag/ask-dr-nerdlove) 提问，致力于解决你的约会问题，让书呆子每天都变得更性感一点。这次我有三个问题要问你，围绕着极客们在约会中面临的一些最常见的问题。
 

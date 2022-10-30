@@ -1,6 +1,6 @@
 # 如何从微薄的储蓄中积累应急基金
 
-> 原文:[https://life hacker . com/how-to-grow-a-emergency-fund-from-modest-savings-1638409351](https://lifehacker.com/how-to-grow-an-emergency-fund-from-modest-savings-1638409351)
+> 原文：<https://lifehacker.com/how-to-grow-an-emergency-fund-from-modest-savings-1638409351>
 
 应急基金是你为一个目的而储存的现金:帮助你应对生活中的紧急情况，而不打乱你的日常生活。这可能是一次事故或健康问题——有了你的基金，你就有了喘息的空间。然而，关键是不要动这笔基金，直到你需要它。把你的钱存起来，让它赚点利息，忽略余额，直到真正的紧急情况发生。
 

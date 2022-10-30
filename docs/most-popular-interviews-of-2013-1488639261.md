@@ -1,6 +1,6 @@
 # 2013 年最受欢迎的采访
 
-> 原文:[https://life hacker . com/2013 年最受欢迎的采访-1488639261](https://lifehacker.com/most-popular-interviews-of-2013-1488639261)
+> 原文：<https://lifehacker.com/most-popular-interviews-of-2013-1488639261>
 
 今年，我们已经找到了我们最喜爱的思想家、实干家、创造者和梦想家，来了解他们是如何实现超人的生产力的。他们提供了很好的建议，并让我们在展示专家智慧的同时，窥视他们的工作习惯。从作家到应用开发者和健身专家，以下是今年最受欢迎的采访。
 

@@ -1,6 +1,6 @@
 # 买便宜课本最好的网站是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-site-to-buy-cheap-textbooks-1630319222](https://lifehacker.com/whats-the-best-site-to-buy-cheap-textbooks-1630319222)
+> 原文：<https://lifehacker.com/whats-the-best-site-to-buy-cheap-textbooks-1630319222>
 
 学校又开学了，如果你回到校园看你的教学大纲，你可能需要一大笔教科书。本周，我们想知道你认为哪些网站最适合购买这些教科书，并节省你可以更好地花(或存)在其他地方的钱。
 

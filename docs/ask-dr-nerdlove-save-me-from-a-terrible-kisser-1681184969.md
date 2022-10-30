@@ -1,6 +1,6 @@
 # 问问 Nerdlove 博士:把我从一个可怕的接吻者手中拯救出来！
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-save-me-from-a-worry-kisser-1681184969](https://kotaku.com/ask-dr-nerdlove-save-me-from-a-terrible-kisser-1681184969)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-save-me-from-a-terrible-kisser-1681184969>
 
 你好，互联网！欢迎来到 [问博士 NerdLove](http://kotaku.com/askdrnerdlove) ，唯一可以证明千年隼比企业号 NCC-1701-D 更快的约会建议专栏
 

@@ -1,6 +1,6 @@
 # 不会让你的胃不舒服和影响睡眠的夜宵
 
-> 原文:[https://life hacker . com/the-late-night-sports-the-would-the-would-the-would-the-would-the-bottom-and-1717594825](https://lifehacker.com/the-late-night-snacks-that-wont-upset-your-stomach-and-1717594825)
+> 原文：<https://lifehacker.com/the-late-night-snacks-that-wont-upset-your-stomach-and-1717594825>
 
 深夜吃零食 [并不理想](https://lifehacker.com/how-to-kick-the-late-night-snacking-habit-1606668159) ，但有时候你就是要吃。如果你不得不工作到很晚，早起，或者只是在深夜吃零食，这些食物会让你的饥饿感消失，而不会因为消化不良而破坏你的睡眠。
 

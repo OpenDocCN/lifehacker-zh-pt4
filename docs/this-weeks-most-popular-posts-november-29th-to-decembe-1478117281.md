@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:11 月 29 日至 12 月 6 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-November-29-to-decembe-1478117281](https://lifehacker.com/this-weeks-most-popular-posts-november-29th-to-decembe-1478117281)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-november-29th-to-decembe-1478117281>
 
 本周我们 [感谢我们最喜欢的免费应用](https://lifehacker.com/the-50-free-apps-were-most-thankful-for-5962588)[想了太多我们撒尿的事](http://lifehacker.com/what-the-color-of-your-pee-says-about-your-health-1477171258)[学会了剥橘子的新方法](http://lifehacker.com/dont-peel-oranges-quickly-unroll-them-in-a-strip-inst-1475560174)[让我们的早晨更有效率](http://lifehacker.com/5-things-successful-people-do-before-8-am-1474846488) 。这里回顾一下。
 

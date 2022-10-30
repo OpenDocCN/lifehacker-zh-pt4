@@ -1,6 +1,6 @@
 # 使用这些 Windows 资源管理器提示和技巧，像专业人员一样浏览文件
 
-> 原文:[https://life hacker . com/navigate-files-like-a-pro-with-these-windows-explorer-t-1466669311](https://lifehacker.com/navigate-files-like-a-pro-with-these-windows-explorer-t-1466669311)
+> 原文：<https://lifehacker.com/navigate-files-like-a-pro-with-these-windows-explorer-t-1466669311>
 
 想到 Windows 资源管理器可能会让你打哈欠，但是你每天都要花很多时间在上面。它是你系统上所有东西的中枢，而且它有很多你可能没有注意到的很酷的内置东西。这里有一些技巧和窍门可以让你更好地利用它。
 

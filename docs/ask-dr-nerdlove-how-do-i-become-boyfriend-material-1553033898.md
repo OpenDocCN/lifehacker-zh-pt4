@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:我如何成为‘男朋友材料’？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-been-mony-material-1553033898](https://kotaku.com/ask-dr-nerdlove-how-do-i-become-boyfriend-material-1553033898)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-become-boyfriend-material-1553033898>
 
 怎么了， *Kotaku* ？欢迎来到最新一期的 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是唯一一个知道如何帮助你最大限度地利用你梦想中的主要秘密的约会建议专栏。
 

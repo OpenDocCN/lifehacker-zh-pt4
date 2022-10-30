@@ -1,6 +1,6 @@
 # 问一个专家:如何破解你的旅行体验
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-hacking-your-travel-experience-1608306252](https://lifehacker.com/ask-an-expert-all-about-hacking-your-travel-experience-1608306252)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-hacking-your-travel-experience-1608306252>
 
 向马修·凯普尼斯问好——你可能更熟悉他的名字 [、游牧民族马特](http://www.nomadicmatt.com/) 、旅行作家、《T4】 [如何以每天 50 美元环游世界](http://www.nomadicmatt.com/travel-tips/how-to-travel-the-world-on-50-usd/) 的作者，以及最大化你的旅行体验的全方位战略鉴赏家。
 

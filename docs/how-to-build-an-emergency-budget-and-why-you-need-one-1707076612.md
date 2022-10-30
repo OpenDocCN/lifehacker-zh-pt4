@@ -1,6 +1,6 @@
 # 如何建立应急预算(以及为什么你需要一个)
 
-> 原文:[https://life hacker . com/how-to-build-a-emergency-budget-and-why-you-need-one-1707076612](https://lifehacker.com/how-to-build-an-emergency-budget-and-why-you-need-one-1707076612)
+> 原文：<https://lifehacker.com/how-to-build-an-emergency-budget-and-why-you-need-one-1707076612>
 
 你可能听说过紧急基金。这是一笔小小的储蓄，可以帮助你在金融危机时保持运转。对于一些紧急情况，使用紧急*预算也是有帮助的——一个紧缩的支出计划，以确保你基金中的钱尽可能持续更长时间。* 
 

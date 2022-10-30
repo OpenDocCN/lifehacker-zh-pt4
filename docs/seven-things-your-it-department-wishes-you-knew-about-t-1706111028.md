@@ -1,6 +1,6 @@
 # 您的 IT 部门希望您了解的关于技术支持的七件事
 
-> 原文:[https://life hacker . com/seven-things-your-it-department-wishes-you-know-on-t-1706111028](https://lifehacker.com/seven-things-your-it-department-wishes-you-knew-about-t-1706111028)
+> 原文：<https://lifehacker.com/seven-things-your-it-department-wishes-you-knew-about-t-1706111028>
 
 在 IT 部门工作通常是一份吃力不讨好的工作。你就像一个看不见的幕后工作者，只有当事情发生时才会被注意到，然后你会因此受到指责。这里有七个关于技术支持代表和 IT 部门的误解，你应该知道，这样你才能更好地与 IT 人员合作。
 

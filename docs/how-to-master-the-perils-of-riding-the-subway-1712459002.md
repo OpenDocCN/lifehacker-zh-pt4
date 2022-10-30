@@ -1,6 +1,6 @@
 # 如何应对乘坐地铁的危险
 
-> 原文:[https://life hacker . com/how-to-master-the-dangers-riding-the-subway-1712459002](https://lifehacker.com/how-to-master-the-perils-of-riding-the-subway-1712459002)
+> 原文：<https://lifehacker.com/how-to-master-the-perils-of-riding-the-subway-1712459002>
 
 如果你不知道如何应对接二连三的噪音、气味和沮丧的通勤者挤着给你让座，每天乘坐地铁可能会让你精疲力尽。然而，我已经掌握了这一点，以至于我不介意每天被塞进一个锡罐里，在我们去上班的时候，旁边有人在剪指甲。
 

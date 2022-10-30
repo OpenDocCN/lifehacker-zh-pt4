@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:8 月 7 日至 14 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-August-7-to-14-1724098778](https://lifehacker.com/this-weeks-most-popular-posts-august-7th-to-14th-1724098778)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-august-7th-to-14th-1724098778>
 
 本周我们看了很酷的新 Windows 10 Xbox 应用程序，谈论了搬到新城市和出国旅行，思考了一些我们最喜欢的软件的隐私妥协，等等。这里回顾一下。
 

@@ -1,6 +1,6 @@
 # 旅行时如何洗衣服
 
-> 原文:[https://life hacker . com/how-do-dog-doing-while-traveling-1635633579](https://lifehacker.com/how-to-do-laundry-while-traveling-1635633579)
+> 原文：<https://lifehacker.com/how-to-do-laundry-while-traveling-1635633579>
 
 无论你是在爬山，在豪华游轮上喝饮料，还是在两者之间，有一件事是不变的:你要洗的衣服堆积如山。通过这些简单的步骤，让你的衣服保持清新。
 

@@ -1,6 +1,6 @@
 # DDoS 攻击是如何工作的，以及为什么它们如此难以阻止
 
-> 原文:[https://kotaku . com/how-DDOS-attacks-work-and-why-they-so-hard-to-stop-1676445620](https://kotaku.com/how-ddos-attacks-work-and-why-theyre-so-hard-to-stop-1676445620)
+> 原文：<https://kotaku.com/how-ddos-attacks-work-and-why-theyre-so-hard-to-stop-1676445620>
 
 上周，世界各地热切的圣诞庆祝者连接上他们全新的 Xboxes 和 PlayStations，却发现两个在线网络都瘫痪了，导致无数新游戏完全无法播放。
 

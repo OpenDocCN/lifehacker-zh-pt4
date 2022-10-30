@@ -1,6 +1,6 @@
 # 养成一个好习惯需要什么
 
-> 原文:[https://life hacker . com/what-it-take-to-form-a-good-habit-5724234](https://lifehacker.com/what-it-takes-to-form-a-good-habit-5724234)
+> 原文：<https://lifehacker.com/what-it-takes-to-form-a-good-habit-5724234>
 
 一年中的这个时候，我们都开始制定“新年计划”，这是一种奇特的方式，表明我们将努力养成更好的习惯。这里有一些小贴士，可以确保他们在一月 后*保持*习惯 [。](https://lifehacker.com/top-10-strategies-for-making-your-new-years-resolution-5971803)
 

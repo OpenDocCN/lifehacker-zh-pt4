@@ -1,6 +1,6 @@
 # 整洁的“鸟巢”工作区
 
-> 原文:[https://life hacker . com/the-neat-crows-nest-workspace-1522164195](https://lifehacker.com/the-neat-crows-nest-workspace-1522164195)
+> 原文：<https://lifehacker.com/the-neat-crows-nest-workspace-1522164195>
 
 今天的特色工作区是一个充满乐趣的空间。尽管很吸引眼球，但它组织得非常好，其他洁癖者可能会对它印象深刻。
 

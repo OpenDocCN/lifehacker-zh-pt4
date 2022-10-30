@@ -1,6 +1,6 @@
 # 你可能花了太多钱买的奢侈品
 
-> 原文:[https://life hacker . com/the-luxury-accessories-you-probably-pay-over-that-f-1638869502](https://lifehacker.com/the-luxury-accessories-youre-probably-paying-too-much-f-1638869502)
+> 原文：<https://lifehacker.com/the-luxury-accessories-youre-probably-paying-too-much-f-1638869502>
 
 有些东西 [你就是不能在](https://lifehacker.com/what-items-arent-worth-cheaping-out-on-1638105745) 上吝啬，但其他奢侈品就是不值这个价钱。从高脚杯到电视，有些奢侈品并不像宣传的那样好，或者可以通过购买普通的来降低价格。让我们来看看其中的一些。
 

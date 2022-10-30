@@ -1,6 +1,6 @@
 # 通过给名单上的公司发电子邮件获得免费优惠券
 
-> 原文:[https://life hacker . com/get-free-coupons-by-email-the-companies-on-this-list-1633157196](https://lifehacker.com/get-free-coupons-by-emailing-the-companies-on-this-list-1633157196)
+> 原文：<https://lifehacker.com/get-free-coupons-by-emailing-the-companies-on-this-list-1633157196>
 
 优惠券能帮你在食品杂货上省下一大笔钱，而且你能得到的越多越好。这份公司总清单会寄给你杂货的优惠券，你只需要开口就行了。
 

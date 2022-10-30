@@ -1,6 +1,6 @@
 # LinkedIn 浏览了历史、照片和奶酪火锅
 
-> 原文:[https://life hacker . com/LinkedIn-viewed-history-elevated-photos-and-cheese-fo-1491893553](https://lifehacker.com/linkedin-viewed-history-elevated-photos-and-cheese-fo-1491893553)
+> 原文：<https://lifehacker.com/linkedin-viewed-history-elevated-photos-and-cheese-fo-1491893553>
 
 读者为查看你的 LinkedIn 个人资料的浏览历史、用独脚架拍出好的高架照片以及用电饭锅做奶酪火锅提供了最佳建议。
 

@@ -1,6 +1,6 @@
 # 让你生活的方方面面都游戏化的最佳工具
 
-> 原文:[https://life hacker . com/the-best-tools-to-productive-gamify-every-aspect-of-of-1531404316](https://lifehacker.com/the-best-tools-to-productively-gamify-every-aspect-of-1531404316)
+> 原文：<https://lifehacker.com/the-best-tools-to-productively-gamify-every-aspect-of-1531404316>
 
 奖励自己建立更好的行为的想法并不新鲜，即使“游戏化”这个词是新的。有更多的工具可以把一切都变成一场游戏，但最好的能让你有动力。让我们来看看那些好的，它们在你的生活中什么时候最有效。
 

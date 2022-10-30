@@ -1,6 +1,6 @@
 # 提醒:这里是你可以在线观看超级碗 XLVIII 的地方
 
-> 原文:[https://life hacker . com/how-and-where-to-watch-super-bowl-XL VIII-online-1507421888](https://lifehacker.com/how-and-where-to-watch-super-bowl-xlviii-online-1507421888)
+> 原文：<https://lifehacker.com/how-and-where-to-watch-super-bowl-xlviii-online-1507421888>
 
 超级碗就在这个周末，谢天谢地，如果你不能在电视上看比赛，你可以免费观看。
 

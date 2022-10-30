@@ -1,6 +1,6 @@
 # 请教专家:关于 Windows 10 的一切
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-windows-10-1721005796](https://lifehacker.com/ask-an-expert-all-about-windows-10-1721005796)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-windows-10-1721005796>
 
 Windows 10 于本周发布，免费更新正在向数百万用户推出，其中包含了该操作系统的各种新功能和改进。但毫无疑问，你们中的许多人仍然有问题，我们有一位来自微软的代表在这里回答他们。
 

@@ -1,6 +1,6 @@
 # 你每天如何泄露你的隐私(以及如何停止)
 
-> 原文:[https://life hacker . com/how-you-leak-you-privacy-every-day-and-how-to-stop-1547653862](https://lifehacker.com/how-you-leak-your-privacy-every-day-and-how-to-stop-1547653862)
+> 原文：<https://lifehacker.com/how-you-leak-your-privacy-every-day-and-how-to-stop-1547653862>
 
 多亏了美国国家安全局，所有人突然比以前更关心自己的隐私了。但是我们大多数人都没有很好地锁定它。这里只是我们都倾向于做的一些事情，这些事情会把私人信息泄露给朋友、陌生人、企业和广告公司。
 

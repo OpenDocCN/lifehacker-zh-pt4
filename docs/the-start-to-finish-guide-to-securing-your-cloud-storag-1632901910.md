@@ -1,6 +1,6 @@
 # 保护您的云存储的全程指南
 
-> 原文:[https://life hacker . com/the-start-to-finish-guide-to-securing-your-cloud-storage-1632901910](https://lifehacker.com/the-start-to-finish-guide-to-securing-your-cloud-storag-1632901910)
+> 原文：<https://lifehacker.com/the-start-to-finish-guide-to-securing-your-cloud-storag-1632901910>
 
 无论你的文件是存储在 Dropbox、iCloud 还是 Mega 上，它们都可以更加安全。要让它们“防黑客”是不可能的，但是你可以做一些事情来让你的数据尽可能的安全，并且仍然方便访问。让我们走完这些步骤。
 

@@ -1,6 +1,6 @@
 # 钱能买到的最好的厨房升级
 
-> 原文:[https://life hacker . com/the-best-kitchen-upgrades-money-can-buy-1498308611](https://lifehacker.com/the-best-kitchen-upgrades-money-can-buy-1498308611)
+> 原文：<https://lifehacker.com/the-best-kitchen-upgrades-money-can-buy-1498308611>
 
 无论你是喜欢烹饪还是迫不得已，当你戴上厨师帽、系上围裙时，一个精心布置的厨房会让一切变得不同。也就是说，最好的厨房工具可以做很多事情，让你的生活更轻松。让我们列出一份你能买到的最好的、经济实惠的厨房升级清单。
 

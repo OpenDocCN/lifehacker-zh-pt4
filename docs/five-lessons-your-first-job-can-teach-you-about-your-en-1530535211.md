@@ -1,6 +1,6 @@
 # 你的第一份工作可以教会你整个职业生涯的五个教训
 
-> 原文:[https://life hacker . com/five-lessons-you ' s first-job-can-teach-you-you-on-1530535211](https://lifehacker.com/five-lessons-your-first-job-can-teach-you-about-your-en-1530535211)
+> 原文：<https://lifehacker.com/five-lessons-your-first-job-can-teach-you-about-your-en-1530535211>
 
 除非你非常幸运，否则你的第一份工作可能不会是你梦想中的工作。不过，仅仅因为你卖汉堡赚不到六位数，并不意味着这份工作不重要。不管你的第一份工作有多糟糕，它都能教会你很多东西，帮助你打造一份值得拥有的职业 。
 

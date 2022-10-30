@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:7 月 11 日至 7 月 18 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-July-11-to-July-18-1607171916](https://lifehacker.com/this-weeks-most-popular-posts-july-11th-to-july-18th-1607171916)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-july-11th-to-july-18th-1607171916>
 
 本周，我们 [更新了我们的年度生活黑客包](https://lifehacker.com/lifehacker-pack-for-android-our-list-of-the-essential-819094535) ，收集了 [你每天都在做的错事](http://lifehacker.com/top-10-things-you-might-be-doing-wrong-every-day-1603832593)[在每个州找到了理想的薪水](http://lifehacker.com/the-perfect-salary-for-happiness-by-state-1605278164)[在 10 秒内剥了一个芒果](http://lifehacker.com/how-to-peel-a-mango-in-under-10-seconds-1603398060) 。这里回顾一下。
 

@@ -1,6 +1,6 @@
 # 应用背后:瞭望者的故事
 
-> 原文:[https://lifehacker.com/behind-the-app-lookout-1563772861](https://lifehacker.com/behind-the-app-lookout-1563772861)
+> 原文：<https://lifehacker.com/behind-the-app-lookout-1563772861>
 
 甚至在 iPhones 和 Androids 出现之前， [Lookout](http://lifehacker.com/lookout-helps-you-get-your-lost-phone-back-protects-yo-5950390) 的团队就一直在保护智能手机免受安全缺陷的影响，并开发工具来处理被盗手机。我们采访了联合创始人兼首席技术官凯文·马哈菲，了解是什么导致了该公司的成立和当今应用程序的开发。
 

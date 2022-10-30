@@ -1,6 +1,6 @@
 # 如何在您的电脑上虚拟化 Android，以便您可以在购买之前进行尝试
 
-> 原文:[https://life hacker . com/how-to-virtualize-an-Android-device-so-you-can-try-befo-1609054771](https://lifehacker.com/how-to-virtualize-an-android-device-so-you-can-try-befo-1609054771)
+> 原文：<https://lifehacker.com/how-to-virtualize-an-android-device-so-you-can-try-befo-1609054771>
 
 你大概知道可以在虚拟机 中 [运行桌面操作系统进行测试。你可以对 Android 做同样的事情，这是在你买手机之前测试手机的好方法。下面是如何设置它。](https://lifehacker.com/the-power-users-guide-to-better-virtual-machines-in-vir-1569943402)
 

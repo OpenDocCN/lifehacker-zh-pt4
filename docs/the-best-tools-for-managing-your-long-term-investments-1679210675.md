@@ -1,6 +1,6 @@
 # 管理长期投资的最佳工具
 
-> 原文:[https://life hacker . com/the-best-tools-for-managing-your ' s long-term-investments-1679210675](https://lifehacker.com/the-best-tools-for-managing-your-long-term-investments-1679210675)
+> 原文：<https://lifehacker.com/the-best-tools-for-managing-your-long-term-investments-1679210675>
 
 投资是你能用它做的最复杂的事情之一。如果你有能展示正确视角的工具，那就简单多了。以下是管理你的财务的最佳方法，取决于你的需要。
 

@@ -1,6 +1,6 @@
 # 应用背后:Circa 的故事
 
-> 原文:[https://life hacker . com/幕后故事-1576284463](https://lifehacker.com/behind-the-app-the-story-of-circa-1576284463)
+> 原文：<https://lifehacker.com/behind-the-app-the-story-of-circa-1576284463>
 
 当你试图在手机上阅读冗长的文章时，很难跟上新闻。 [Circa](https://lifehacker.com/circa-news-dishes-out-bite-sized-news-bits-to-keep-you-1462978418) 是一款试图解决这个问题的应用，它通过简化新闻报道的呈现方式，将复杂的概念提炼为易于消化的卡片。
 

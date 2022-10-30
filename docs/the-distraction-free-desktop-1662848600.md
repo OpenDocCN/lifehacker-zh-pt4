@@ -1,6 +1,6 @@
 # 不受干扰的桌面
 
-> 原文:[https://life hacker . com/the-distraction-free-desktop-1662848600](https://lifehacker.com/the-distraction-free-desktop-1662848600)
+> 原文：<https://lifehacker.com/the-distraction-free-desktop-1662848600>
 
 它看起来可能只是一张壁纸，但读者 [狡猾的狗](http://deviousd0g.kinja.com/) 做了一些工作，以确保它手头有合适的工具，并且当她试图工作或学习时，她电脑上所有诱人的干扰都远离了。以下是你如何做同样的事情。
 

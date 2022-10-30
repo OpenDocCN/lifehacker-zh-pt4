@@ -1,6 +1,6 @@
 # 我是比尔·奈，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-bill-Nye-and-this-is-how-I-work-1680700332](https://lifehacker.com/im-bill-nye-and-this-is-how-i-work-1680700332)
+> 原文：<https://lifehacker.com/im-bill-nye-and-this-is-how-i-work-1680700332>
 
 对我们许多人来说，比尔·奈是我们童年的一部分，当我们易受影响的头脑可能没有想到要问*为什么*时，他扮演着教育家和科学照明者的重要角色。在他的电视节目中，他通过研究万物如何运作的细节，告诉我们为什么科学是如此神奇，他继续倡导科学教育和探索。
 

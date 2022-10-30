@@ -1,6 +1,6 @@
 # 买西装，弄坏小玩意，和 Jay-Z 一起做事
 
-> 原文:[https://life hacker . com/buying-suits-breaking-gadgets-and-getting-things-done-1477478271](https://lifehacker.com/buying-suits-breaking-gadgets-and-getting-things-done-1477478271)
+> 原文：<https://lifehacker.com/buying-suits-breaking-gadgets-and-getting-things-done-1477478271>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-fzt9tkLrB2Q&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-fzt9tkLrB2Q&start=0) 
 

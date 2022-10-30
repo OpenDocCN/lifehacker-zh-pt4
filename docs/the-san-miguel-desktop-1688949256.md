@@ -1,6 +1,6 @@
 # 生力桌面
 
-> 原文:[https://lifehacker.com/the-san-miguel-desktop-1688949256](https://lifehacker.com/the-san-miguel-desktop-1688949256)
+> 原文：<https://lifehacker.com/the-san-miguel-desktop-1688949256>
 
 读者 [亲亲刘海！砰！](http://kisskissbangbang.kinja.com/) 想做一个展示他家乡辉煌的桌面，我们认为他已经做到了——太棒了。以下是他如何设置的，以及如何将一块生力放在你的桌面上。
 

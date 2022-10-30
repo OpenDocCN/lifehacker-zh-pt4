@@ -1,6 +1,6 @@
 # 最好的膳食规划 App 是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-meal-planning-app-1532034767](https://lifehacker.com/whats-the-best-meal-planning-app-1532034767)
+> 原文：<https://lifehacker.com/whats-the-best-meal-planning-app-1532034767>
 
 [提前计划你的膳食](https://lifehacker.com/how-to-plan-your-weekly-meals-stress-free-30791921) 是 [在不超支的情况下做出美味佳肴的好方法](http://lifehacker.com/how-to-save-money-on-groceries-and-keep-making-awesome-1442877348) 享受你在厨房的时光。有成千上万的应用程序可以帮助你整理食谱，建立购物清单，并推荐新的菜肴，但本周我们想知道哪些是你认为最好的。
 

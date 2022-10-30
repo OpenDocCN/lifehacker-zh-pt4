@@ -1,6 +1,6 @@
 # 为什么我关掉了我的立式办公桌，而我做了什么
 
-> 原文:[https://life hacker . com/why-I-kill-my-standing-desk-and-what-I-do-instead-1565554537](https://lifehacker.com/why-i-killed-my-standing-desk-and-what-i-do-instead-1565554537)
+> 原文：<https://lifehacker.com/why-i-killed-my-standing-desk-and-what-i-do-instead-1565554537>
 
 立式办公桌可能会风靡一时，但它们肯定也有不好的一面——并不适合所有人。作家 Mikael Cho 解释了他放弃站立式办公桌的原因，以及他如何对抗整天坐着带来的不健康副作用。
 

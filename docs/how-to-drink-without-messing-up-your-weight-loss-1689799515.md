@@ -1,6 +1,6 @@
 # 如何喝酒而不打乱你的减肥计划
 
-> 原文:[https://life hacker . com/how-to-drink-without-打乱你的减肥计划-1689799515](https://lifehacker.com/how-to-drink-without-messing-up-your-weight-loss-1689799515)
+> 原文：<https://lifehacker.com/how-to-drink-without-messing-up-your-weight-loss-1689799515>
 
 酒精通常不被认为是减肥计划中“健康”的一部分，但这并不意味着你不能享受一两杯酒而不破坏你的进展。
 

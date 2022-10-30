@@ -1,6 +1,6 @@
 # 如何用正念管理假期和家庭压力
 
-> 原文:[https://life hacker . com/how-to-manage-holiday-and-family-stress with mindfulnes-1485880373](https://lifehacker.com/how-to-manage-holiday-and-family-stress-with-mindfulnes-1485880373)
+> 原文：<https://lifehacker.com/how-to-manage-holiday-and-family-stress-with-mindfulnes-1485880373>
 
 这是一年中许多家庭聚在一起的时候，或者只是一个或三个家庭的聚会。尽管这可能很美妙，但对许多人来说，这可能是一个艰难的时刻，原因有很多:旧的冲突出现，痛苦的情绪模式，人们批评你，许多人聚在一起制造紧张的混乱，对你的日常事务失去控制，派对计划，等等。
 

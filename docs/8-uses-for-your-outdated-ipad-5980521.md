@@ -1,6 +1,6 @@
 # 过时的 iPad 的 8 种用途
 
-> 原文:[https://gizmodo.com/8-uses-for-your-outdated-ipad-5980521](https://gizmodo.com/8-uses-for-your-outdated-ipad-5980521)
+> 原文：<https://gizmodo.com/8-uses-for-your-outdated-ipad-5980521>
 
 随着 iPad Air 2 从今天开始预售，你可能已经准备好把你的旧平板电脑扔到路边了。但是当技术的进步把你的石板扔进了垃圾抽屉， [不要仅仅卖掉](https://gizmodo.com/the-best-way-to-recycle-your-old-gadgets-5972639) 。将其回收到一个高性能的专业设备中。
 

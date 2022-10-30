@@ -1,6 +1,6 @@
 # iPad 最佳“第二屏幕”应用
 
-> 原文:[https://life hacker . com/the-best-second-screen-for-ipad-1706351639](https://lifehacker.com/the-best-second-screen-app-for-ipad-1706351639)
+> 原文：<https://lifehacker.com/the-best-second-screen-app-for-ipad-1706351639>
 
 将你的 iPad 作为“第二屏幕”是一个很好的方式，通过增加一点额外的屏幕空间来提高你的工作效率。我们在 iOS 上最喜欢的方式是 Duet Display，因为它没有延迟，易于设置，并且有一套很好的定制选项。
 

@@ -1,6 +1,6 @@
 # 如何在大学吃得更健康(并避免“大一 15”)
 
-> 原文:[https://life hacker . com/how-to-eat-healthy-in-college-and-avoid-the-fresh ma-1723166375](https://lifehacker.com/how-to-eat-healthier-in-college-and-avoid-the-freshma-1723166375)
+> 原文：<https://lifehacker.com/how-to-eat-healthier-in-college-and-avoid-the-freshma-1723166375>
 
 你听说过臭名昭著的“ [大一 15](https://en.wikipedia.org/wiki/Freshman_15) ”(或 20，或 30)吗？它是以一种现象命名的，据报道，大学新生到第二年平均增重 15 磅。虽然体重增加有许多解释，但其中最主要的是糟糕的饮食选择。别担心，我们会帮你搞定的。
 

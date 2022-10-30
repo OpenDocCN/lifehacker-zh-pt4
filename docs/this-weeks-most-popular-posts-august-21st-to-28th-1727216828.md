@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:8 月 21 日至 28 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-August-21-to-28-1727216828](https://lifehacker.com/this-weeks-most-popular-posts-august-21st-to-28th-1727216828)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-august-21st-to-28th-1727216828>
 
 本周，我们回顾了在零售业工作的生活经验，分享了一些关于健身趋势的内部观点，列出了所有那些令人困惑的运营商手机购买计划，等等。这里回顾一下。
 

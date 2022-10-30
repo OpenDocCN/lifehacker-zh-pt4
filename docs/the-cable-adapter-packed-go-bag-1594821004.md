@@ -1,6 +1,6 @@
 # 打包了电缆适配器的旅行包
 
-> 原文:[https://life hacker . com/the-cable-adapter-packed-go-bag-1594821004](https://lifehacker.com/the-cable-adapter-packed-go-bag-1594821004)
+> 原文：<https://lifehacker.com/the-cable-adapter-packed-go-bag-1594821004>
 
 做好一切准备对每个人来说都是不同的想法。对读者 Daniel Gerjets 来说，准备意味着能够用适配器将任何东西连接到任何东西。
 

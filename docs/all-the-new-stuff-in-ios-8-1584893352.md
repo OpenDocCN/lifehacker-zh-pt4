@@ -1,6 +1,6 @@
 # iOS 8 中的所有新东西
 
-> 原文:[https://life hacker . com/all-the-new-stuff-in-IOs-8-1584893352](https://lifehacker.com/all-the-new-stuff-in-ios-8-1584893352)
+> 原文：<https://lifehacker.com/all-the-new-stuff-in-ios-8-1584893352>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-dgML7fZc6OI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-dgML7fZc6OI&start=0) 
 

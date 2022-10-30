@@ -1,6 +1,6 @@
 # 超越益生菌:你能“黑掉”你的微生物群吗？
 
-> 原文:[https://life hacker . com/beyond-probiotics-can-you-hack-your-microbiome-1689720231](https://lifehacker.com/beyond-probiotics-can-you-hack-your-microbiome-1689720231)
+> 原文：<https://lifehacker.com/beyond-probiotics-can-you-hack-your-microbiome-1689720231>
 
 数以万亿计的微小生物把你的身体称为家，包括细菌、病毒、真菌等等。它们并不总是坏消息，事实上，我们的健康有赖于拥有一群繁荣的微生物。这就引出了一个显而易见的问题:我们能通过攻击我们的微生物群来攻击我们的健康吗？
 

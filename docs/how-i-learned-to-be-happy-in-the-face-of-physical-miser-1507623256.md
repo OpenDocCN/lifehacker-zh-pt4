@@ -1,6 +1,6 @@
 # 面对身体上的痛苦，我是如何学会快乐的
 
-> 原文:[https://life hacker . com/how-I-learn-to-happy-the-face of-physical-吝啬鬼-1507623256](https://lifehacker.com/how-i-learned-to-be-happy-in-the-face-of-physical-miser-1507623256)
+> 原文：<https://lifehacker.com/how-i-learned-to-be-happy-in-the-face-of-physical-miser-1507623256>
 
 上周我得了严重的橡树毒疹。现在，这听起来可能没有那么糟糕，但这种皮疹覆盖了我的全身(包括最好不要讨论的地方)，也覆盖了我的脸，眼睛，嘴。这并不漂亮，虽然我不会深入细节，但它相当恶心和悲惨。
 

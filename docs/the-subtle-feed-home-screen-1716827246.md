@@ -1,6 +1,6 @@
 # 微妙的饲料主页屏幕
 
-> 原文:[https://life hacker . com/the-finessive-feed-home-screen-1716827246](https://lifehacker.com/the-subtle-feed-home-screen-1716827246)
+> 原文：<https://lifehacker.com/the-subtle-feed-home-screen-1716827246>
 
 当你打开手机时，首先看到的就是你的主屏幕。你不妨利用一下那个空间。这种主屏幕设计在最小的主屏幕上放置了一个微妙的新闻提要，让您在不被侵入的情况下了解最新情况。
 

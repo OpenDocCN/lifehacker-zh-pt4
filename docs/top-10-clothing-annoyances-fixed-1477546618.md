@@ -1,6 +1,6 @@
 # 十大着装烦恼，固定
 
-> 原文:[https://life hacker . com/top-10-服装-烦恼-固定-1477546618](https://lifehacker.com/top-10-clothing-annoyances-fixed-1477546618)
+> 原文：<https://lifehacker.com/top-10-clothing-annoyances-fixed-1477546618>
 
 在不能塞进去的衬衫、可以穿脱的鞋子和到处卡住的拉链之间，我们人类还穿着衣服真是个奇迹。以下是我们的 10 大着装烦恼，以及它们的巧妙解决方案。
 

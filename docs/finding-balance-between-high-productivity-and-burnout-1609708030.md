@@ -1,6 +1,6 @@
 # 如何在高生产率和超负荷工作之间找到平衡
 
-> 原文:[https://life hacker . com/finding-balance-between-high-productivity-and-burnout-1609708030](https://lifehacker.com/finding-balance-between-high-productivity-and-burnout-1609708030)
+> 原文：<https://lifehacker.com/finding-balance-between-high-productivity-and-burnout-1609708030>
 
 你保持忙碌是没有问题的。从你的任务清单上划掉一些事情没问题。你一心多用，好像这已经过时了。但是时间一周周过去，你不禁对自己实际完成的事情感到不满。我厌倦了这种模式。所以我改了。
 

@@ -1,6 +1,6 @@
 # 充分利用高清电视的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-make-the-most-your-HDTV-1564693862](https://lifehacker.com/top-10-ways-to-make-the-most-of-your-hdtv-1564693862)
+> 原文：<https://lifehacker.com/top-10-ways-to-make-the-most-of-your-hdtv-1564693862>
 
 你花了很多时间在电视机前，但很可能你没有充分利用它的潜力。这也不仅仅是为了更好的画面——一台好的电视机需要合适的线缆、一个好的遥控器等等。以下是打造终极电视设置的 10 项调整。
 

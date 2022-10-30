@@ -1,6 +1,6 @@
 # 我们如何工作，2015 年:克里斯汀·王的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-2015-Kristin-wongs-gear-and-productivity-1686793039](https://lifehacker.com/how-we-work-2015-kristin-wongs-gear-and-productivity-1686793039)
+> 原文：<https://lifehacker.com/how-we-work-2015-kristin-wongs-gear-and-productivity-1686793039>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。今天，轮到我来揭示我是如何完成任务的。
 

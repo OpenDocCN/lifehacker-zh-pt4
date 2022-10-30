@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:10 月 25 日至 11 月 1 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-10-25-to-11 月 be-1456731709](https://lifehacker.com/this-weeks-most-popular-posts-october-25th-to-novembe-1456731709)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-october-25th-to-novembe-1456731709>
 
 这一周我们 [得到了一些婚姻建议](https://lifehacker.com/7-things-i-wish-i-had-known-before-getting-married-1452066572)[学到了一些谷歌搜索的小技巧](http://lifehacker.com/top-10-clever-google-search-tricks-1450186165)[健硕了我们邪恶的肌肉](https://lifehacker.com/how-to-crack-a-wi-fi-password-5953047)[终于一窥 Android 4.4 KitKat](http://lifehacker.com/all-the-new-stuff-in-android-4-4-kitkat-1456286732) 。这里回顾一下。
 

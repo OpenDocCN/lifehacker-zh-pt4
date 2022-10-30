@@ -1,6 +1,6 @@
 # 工具学校:绝对必要的钻机/驱动器
 
-> 原文:[https://life hacker . com/tool-school-the-absolute-essential-drill-driver-1697922859](https://lifehacker.com/tool-school-the-absolutely-essential-drill-driver-1697922859)
+> 原文：<https://lifehacker.com/tool-school-the-absolutely-essential-drill-driver-1697922859>
 
 无论你在做什么项目，你都可能需要偶尔钻几个洞，拧几个螺丝。轻型钻机/驱动器应该是每个人拥有的第一个电动工具。原因如下。
 

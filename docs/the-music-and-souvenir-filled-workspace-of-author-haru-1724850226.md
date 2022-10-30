@@ -1,6 +1,6 @@
 # 作家村上春树充满音乐和纪念品的工作室
 
-> 原文:[https://life hacker . com/the-music-and-纪念品填充作者工作区-haru-1724850226](https://lifehacker.com/the-music-and-souvenir-filled-workspace-of-author-haru-1724850226)
+> 原文：<https://lifehacker.com/the-music-and-souvenir-filled-workspace-of-author-haru-1724850226>
 
 参观畅销书作家、深受喜爱的村上春树的办公室和书桌——一个堆满大事记、排列着大约 10，000 张黑胶唱片的工作区。
 

@@ -1,6 +1,6 @@
 # 我是《连线》杂志的文章编辑亚当·罗杰斯，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Adam-Rogers-articles-editor-at-wired-and-this-is-h-1585950648](https://lifehacker.com/im-adam-rogers-articles-editor-at-wired-and-this-is-h-1585950648)
+> 原文：<https://lifehacker.com/im-adam-rogers-articles-editor-at-wired-and-this-is-h-1585950648>
 
 白天，亚当·罗杰斯作为《连线》 杂志 [的文章编辑，报道科学和各种怪才。晚上，他喝酒。相反，亚当写的是喝酒。](http://www.wired.com/)
 

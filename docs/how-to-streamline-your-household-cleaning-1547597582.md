@@ -1,6 +1,6 @@
 # 如何简化你的家庭清洁
 
-> 原文:[https://life hacker . com/how-to-streamline-your-household-cleaning-1547597582](https://lifehacker.com/how-to-streamline-your-household-cleaning-1547597582)
+> 原文：<https://lifehacker.com/how-to-streamline-your-household-cleaning-1547597582>
 
 打扫房子是一项必要的家务，但让我们面对它——我们中的一些人可能不介意，但没有人真的喜欢它。尽管如此，就像许多家务一样，它通常在我们脑海中比我们着手去做的时候要大。这里有一些方法可以简化这个过程，确保在需要的时候手头有工具，永远不要想接下来该做什么。
 

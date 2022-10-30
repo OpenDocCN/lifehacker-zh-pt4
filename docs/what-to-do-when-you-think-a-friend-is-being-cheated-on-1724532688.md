@@ -1,6 +1,6 @@
 # 当你认为朋友被欺骗时该怎么办
 
-> 原文:[https://life hacker . com/1724532688](https://lifehacker.com/what-to-do-when-you-think-a-friend-is-being-cheated-on-1724532688)
+> 原文：<https://lifehacker.com/what-to-do-when-you-think-a-friend-is-being-cheated-on-1724532688>
 
 知道朋友的另一半不忠可能是有史以来最尴尬的情况。你想通知和安慰你的朋友，但你不想破坏你和他们的关系，最终成为死去的信使。如果你认为(或知道)你的朋友是被 欺骗的 [，这里有一些事情需要考虑。](https://lifehacker.com/why-people-cheat-5804677)
 

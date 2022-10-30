@@ -1,6 +1,6 @@
 # 你可能不知道的 AAA 级隐藏津贴
 
-> 原文:[https://life hacker . com/hidden-perks-of-AAA-you-may-not-know-on-1600997113](https://lifehacker.com/hidden-perks-of-aaa-you-may-not-know-about-1600997113)
+> 原文：<https://lifehacker.com/hidden-perks-of-aaa-you-may-not-know-about-1600997113>
 
 当你想到 AAA，你可能会想到拖车。事实证明，AAA 会员资格还能让你享受折扣、金融服务和其他额外待遇。以下是如果你还没有会员资格的话，可以考虑加入的原因。
 

@@ -1,6 +1,6 @@
 # 防弹咖啡:揭穿热黄油炒作
 
-> 原文:[https://gizmodo . com/防弹咖啡-揭穿热黄油-炒作-1681321467](https://gizmodo.com/bulletproof-coffee-debunking-the-hot-buttered-hype-1681321467)
+> 原文：<https://gizmodo.com/bulletproof-coffee-debunking-the-hot-buttered-hype-1681321467>
 
 人们在咖啡里放黄油。嘿，如果你只是渴望一种新的口味体验，那就给你更多的动力。问题是，这一趋势背后的公司“防弹咖啡” 声称，每天早上喝一杯“胖子咖啡”而不是吃早餐，是减肥和获得精神超能力的秘密捷径，现在黄油咖啡已经发展出一批高度含咖啡因、嘴唇油亮的追随者。所以现在我们必须谈谈。
 

@@ -1,6 +1,6 @@
 # HTC One 2014 回顾:更快、更强、更大、更好
 
-> 原文:[https://gizmodo . com/HTC-one-2014-回顾-更快-更强-更好-1550841872](https://gizmodo.com/htc-one-2014-review-faster-stronger-better-1550841872)
+> 原文：<https://gizmodo.com/htc-one-2014-review-faster-stronger-better-1550841872>
 
 去年， [最初的 HTC One](https://gizmodo.com/htc-one-review-the-beauty-is-a-beast-updated-5990716) 以其前所未有的安卓设计印记赢得了我们的好感。它由实心铝块加工而成，非常漂亮，握起来令人难以置信地满意。不仅如此，它绝对拖后腿。不用说，新的 HTC One 有很大的发展空间。
 

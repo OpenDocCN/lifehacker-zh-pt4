@@ -1,6 +1,6 @@
 # iOS 7 越狱发生了什么？该不该用？
 
-> 原文:[https://life hacker . com/whats-happen-with-the-IOs-7-jail break-should-I-use-1488760671](https://lifehacker.com/whats-happening-with-the-ios-7-jailbreak-should-i-use-1488760671)
+> 原文：<https://lifehacker.com/whats-happening-with-the-ios-7-jailbreak-should-i-use-1488760671>
 
 亲爱的 Lifehacker，
 我听说 iOS 7 的新越狱有恶意软件，但其他人说这是假的。我一点也不明白，你能告诉我到底发生了什么吗？

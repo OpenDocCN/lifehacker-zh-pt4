@@ -1,6 +1,6 @@
 # 如何安装洗衣槽
 
-> 原文:[https://life hacker . com/how-to-install-a-洗衣槽-1531559700](https://lifehacker.com/how-to-install-a-laundry-chute-1531559700)
+> 原文：<https://lifehacker.com/how-to-install-a-laundry-chute-1531559700>
 
 洗衣槽可以节省你的时间和精力，减少上下楼梯的次数。专业人士在 [*家庭杂工*](http://www.familyhandyman.com/laundry-room/how-to-install-a-laundry-chute/view-all) *向您展示如何找到墙壁位置并安装一个。*
 

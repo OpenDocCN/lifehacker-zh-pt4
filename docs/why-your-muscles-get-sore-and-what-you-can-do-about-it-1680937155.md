@@ -1,6 +1,6 @@
 # 为什么你的肌肉会酸痛(以及你能做些什么)
 
-> 原文:[https://life hacker . com/why-your-muscles-get-sore-and-what-you-can-do-about-it-1680937155](https://lifehacker.com/why-your-muscles-get-sore-and-what-you-can-do-about-it-1680937155)
+> 原文：<https://lifehacker.com/why-your-muscles-get-sore-and-what-you-can-do-about-it-1680937155>
 
 当你在一次艰苦的锻炼后挣扎着走下楼梯时，你应该把你的酸痛视为你努力了的证明 ，还是你过度努力的标志？真相介于两者之间。让我们来了解一下酸痛从何而来，如何不让它让你痛苦。
 

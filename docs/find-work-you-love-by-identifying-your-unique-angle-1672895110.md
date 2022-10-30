@@ -1,6 +1,6 @@
 # 通过识别你独特的角度找到你喜欢的工作
 
-> 原文:[https://life hacker . com/find-work-you-love by-identifying-your-unique-angle-1672895110](https://lifehacker.com/find-work-you-love-by-identifying-your-unique-angle-1672895110)
+> 原文：<https://lifehacker.com/find-work-you-love-by-identifying-your-unique-angle-1672895110>
 
 有些事情是你喜欢做的，有些事情是人们付钱让你做的。在完美的世界里，这是一回事，但现实中你需要在如何赚钱和有时间从事不太赚钱的爱好之间找到平衡。让我们看看如何找到这种平衡。
 

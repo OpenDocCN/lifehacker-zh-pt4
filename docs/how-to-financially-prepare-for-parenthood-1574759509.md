@@ -1,6 +1,6 @@
 # 如何为为人父母做好经济准备
 
-> 原文:[https://life hacker . com/how-to-financial-preparent-1574759509](https://lifehacker.com/how-to-financially-prepare-for-parenthood-1574759509)
+> 原文：<https://lifehacker.com/how-to-financially-prepare-for-parenthood-1574759509>
 
 大多数父母会告诉你:为人父母是一个持续的学习过程。但尽可能做好准备也无妨。孩子们很可爱，但是他们也很贵。数据显示，中等收入家庭抚养一个孩子的平均支出超过 16.5 万美元。这里有一个为为人父母做好财务准备的指南。
 

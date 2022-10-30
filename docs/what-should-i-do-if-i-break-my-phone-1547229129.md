@@ -1,6 +1,6 @@
 # 手机坏了怎么办？
 
-> 原文:[https://life hacker . com/what-should-I-do-if-I-break-my-phone-1547229129](https://lifehacker.com/what-should-i-do-if-i-break-my-phone-1547229129)
+> 原文：<https://lifehacker.com/what-should-i-do-if-i-break-my-phone-1547229129>
 
 亲爱的生活黑客，我很笨拙。我掉了我的手机，打碎了它的屏幕。问题是，我没有足够的钱马上买一部新手机。我有什么选择？
 

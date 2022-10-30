@@ -1,6 +1,6 @@
 # 如果你在面试中被难住了该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-dumped-in-a-interview-1520529031](https://lifehacker.com/what-to-do-if-youre-stumped-during-an-interview-1520529031)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-stumped-during-an-interview-1520529031>
 
 当你在面试中不知道如何回答一个问题时，这种沉默会让人感到痛苦。你甚至希望地板会打开，把你整个吞下去。不过，不要担心——下次你准备回答问题时，请记住这些建议。
 

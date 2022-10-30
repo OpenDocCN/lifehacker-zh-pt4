@@ -1,6 +1,6 @@
 # 母语为英语的人最容易学习的语言
 
-> 原文:[https://life hacker . com/the-easy-the-languages for the native-English-speakers-to-le-1714778208](https://lifehacker.com/the-easiest-languages-for-native-english-speakers-to-le-1714778208)
+> 原文：<https://lifehacker.com/the-easiest-languages-for-native-english-speakers-to-le-1714778208>
 
 根据你所处的环境，有些语言可能比其他语言更难掌握。如果英语是你的第一语言，这些语言被广泛认为是最容易学会说、读、写的。
 

@@ -1,6 +1,6 @@
 # 如何应对工作中的宿醉
 
-> 原文:[https://deadspin . com/how-to-dead-to-dead-process-a-宿醉-in-work-1724903994](https://deadspin.com/how-to-deal-with-a-hangover-at-work-1724903994)
+> 原文：<https://deadspin.com/how-to-deal-with-a-hangover-at-work-1724903994>
 
 当你在工作日的晚上喝酒时，你永远不会想到自己会喝到第二天宿醉的地步。那么，你同意快乐时光...向自己保证你只会喝两杯，然后离开酒吧。喝完第三杯后，你发誓只再喝一杯，一回家就上床睡觉。不知不觉已经凌晨 2 点了，不知怎么的，你已经是晚上的第三个酒吧了。最糟糕的是，你现在必须在 6 小时内上班。你会宿醉的。这将是地狱。
 

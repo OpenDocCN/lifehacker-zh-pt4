@@ -1,6 +1,6 @@
 # 如果我不再使用某个认证，我应该让它过期吗？
 
-> 原文:[https://life hacker . com/should-I-let-a-certification-expire-if-I-don-t-work-with-1615572321](https://lifehacker.com/should-i-let-a-certification-expire-if-i-dont-work-with-1615572321)
+> 原文：<https://lifehacker.com/should-i-let-a-certification-expire-if-i-dont-work-with-1615572321>
 
 亲爱的 Lifehacker，
 我努力获得了一些专业认证，但我换了职业，真的不再使用它们了。它们就要过期了，我在想:我应该让它们过期，因为我不再在那个领域工作了，还是应该花时间和金钱重新升级它们，以便保持最新状态？值得吗？

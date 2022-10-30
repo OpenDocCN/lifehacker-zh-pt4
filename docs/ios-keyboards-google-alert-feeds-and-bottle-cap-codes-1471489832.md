@@ -1,6 +1,6 @@
 # iOS 键盘、Google Alert Feeds 和瓶盖代码
 
-> 原文:[https://life hacker . com/IOs-keyboards-Google-alert-feeds-and-bottle-cap-codes-1471489832](https://lifehacker.com/ios-keyboards-google-alert-feeds-and-bottle-cap-codes-1471489832)
+> 原文：<https://lifehacker.com/ios-keyboards-google-alert-feeds-and-bottle-cap-codes-1471489832>
 
 读者提供了他们最好的建议，用手势拆分你的 iOS 键盘，将谷歌提醒设置为 RSS 源，以及查看瓶盖代码。
 

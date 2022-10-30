@@ -1,6 +1,6 @@
 # 如何配置 OS X 来保护您的隐私
 
-> 原文:[https://life hacker . com/how-to-configure-OS-x-to-protect-your-privacy-1716352334](https://lifehacker.com/how-to-configure-os-x-to-protect-your-privacy-1716352334)
+> 原文：<https://lifehacker.com/how-to-configure-os-x-to-protect-your-privacy-1716352334>
 
 安装一台新电脑已经够难的了，但是如果你很注重隐私，事情就更复杂了。Mac 电脑尤其如此，它把各种各样的东西都藏在幕后。无论你是在设置新系统还是安装新版本的 OS X，现在都是检查你的隐私设置的好时机。
 

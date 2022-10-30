@@ -1,6 +1,6 @@
 # 满足各种需求的最佳智能手机
 
-> 原文:[https://gizmodo . com/the-best-the-smart phone-for-every-need-1718136855](https://gizmodo.com/the-best-smartphone-for-every-need-1718136855)
+> 原文：<https://gizmodo.com/the-best-smartphone-for-every-need-1718136855>
 
 “最好的智能手机是什么？”这是我每个月至少听到一两次的问题。
 

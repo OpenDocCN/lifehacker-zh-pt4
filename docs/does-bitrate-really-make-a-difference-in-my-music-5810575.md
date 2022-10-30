@@ -1,6 +1,6 @@
 # 比特率真的对我的音乐有影响吗？
 
-> 原文:[https://life hacker . com/does-bitrate-really-make-a-difference-in-my-music-5810575](https://lifehacker.com/does-bitrate-really-make-a-difference-in-my-music-5810575)
+> 原文：<https://lifehacker.com/does-bitrate-really-make-a-difference-in-my-music-5810575>
 
 亲爱的 Lifehacker，
 最近我听到很多关于“无损”和“有损”音乐的争论，但我很难得到直接的答案。比特率真的很重要吗？大多数人能区分高比特率和低比特率的音乐文件吗？

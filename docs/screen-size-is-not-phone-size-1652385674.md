@@ -1,6 +1,6 @@
 # 屏幕尺寸不是手机尺寸
 
-> 原文:[https://gizmodo . com/screen-size-is-not-phone-size-1652385674](https://gizmodo.com/screen-size-is-not-phone-size-1652385674)
+> 原文：<https://gizmodo.com/screen-size-is-not-phone-size-1652385674>
 
 当我们谈论手机有多大时，有一个方便的小捷径。我们不用谈论实际尺寸，而是使用显示器的尺寸。这是有用的简写，但现在手机越来越大，每十分之一英寸都很重要，是时候提醒一下了:屏幕尺寸和手机尺寸不是一回事。事实上，它们可以大相径庭。
 

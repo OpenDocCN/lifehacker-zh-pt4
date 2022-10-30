@@ -1,6 +1,6 @@
 # 如何从您的家庭影院获得更多，而无需支付一分钱
 
-> 原文:[https://life hacker . com/how-to-get-more from your-home-theater-not-payed-a-5774324](https://lifehacker.com/how-to-get-more-from-your-home-theater-without-paying-a-5774324)
+> 原文：<https://lifehacker.com/how-to-get-more-from-your-home-theater-without-paying-a-5774324>
 
 除非你的家庭影院是由专业人士设置的，否则你很可能无法从现有的设置中获得最佳的视频和声音效果。这些简单的调整只需要一点点时间，但会带来一个不同的世界。
 

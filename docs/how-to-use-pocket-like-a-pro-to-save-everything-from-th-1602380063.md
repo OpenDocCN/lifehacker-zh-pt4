@@ -1,6 +1,6 @@
 # 如何像专业人士一样使用 Pocket 保存网络上的所有内容
 
-> 原文:[https://life hacker . com/how-to-use-pocket-like-a-pro-to-save-everything-from-th-1602380063](https://lifehacker.com/how-to-use-pocket-like-a-pro-to-save-everything-from-th-1602380063)
+> 原文：<https://lifehacker.com/how-to-use-pocket-like-a-pro-to-save-everything-from-th-1602380063>
 
 长期以来，Pocket 一直是我们最喜欢的保存文章并在以后阅读的服务之一。然而，在表面之下，你可以用 Pocket 做更多的事情，而不仅仅是偶尔长时间阅读。以下是如何像专业人士一样使用 Pocket。
 

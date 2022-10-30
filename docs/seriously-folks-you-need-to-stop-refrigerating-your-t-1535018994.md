@@ -1,6 +1,6 @@
 # 说真的，伙计们，你需要停止冷藏你的西红柿
 
-> 原文:[https://gizmodo . com/serious-乡亲们-你需要停止冷藏-你的-t-1535018994](https://gizmodo.com/seriously-folks-you-need-to-stop-refrigerating-your-t-1535018994)
+> 原文：<https://gizmodo.com/seriously-folks-you-need-to-stop-refrigerating-your-t-1535018994>
 
 新鲜的西红柿是一种享受——除非它在冰箱里放了几天。然后它就变成了一团浆糊，无味的垃圾。以下是为什么你永远不应该冷藏西红柿的科学理由。但是——如果你一定要这样做的话——有一种方法可以做到。
 

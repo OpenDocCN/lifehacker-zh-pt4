@@ -1,6 +1,6 @@
 # 如何挑选(和管理)信用卡以获得最佳旅行奖励
 
-> 原文:[https://life hacker . com/how-to-pick-and-manage-the-best-trav-1612445323](https://lifehacker.com/how-to-pick-and-manage-credit-cards-for-the-best-trav-1612445323)
+> 原文：<https://lifehacker.com/how-to-pick-and-manage-credit-cards-for-the-best-trav-1612445323>
 
 每个人都喜欢访问外国和异国他乡，但很难为你想做的旅行存钱。幸运的是，信用卡里程是找到你一直想要的欧洲之旅的好方法。
 

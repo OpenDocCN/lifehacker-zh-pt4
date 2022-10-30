@@ -1,6 +1,6 @@
 # 使用这些公路旅行壁纸上路
 
-> 原文:[https://life hacker . com/hit-the-open-road-trip-wallpapers-1672452141](https://lifehacker.com/hit-the-open-road-with-these-road-trip-wallpapers-1672452141)
+> 原文：<https://lifehacker.com/hit-the-open-road-with-these-road-trip-wallpapers-1672452141>
 
 公路旅行是欣赏风景和体验新前景的绝佳时机(不，不是那个)。因此，它们是您可以添加到桌面上的美丽图像的绝佳来源。
 

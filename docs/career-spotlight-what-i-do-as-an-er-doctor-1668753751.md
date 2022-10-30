@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名急诊室医生我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-a-er-doctor-1668753751](https://lifehacker.com/career-spotlight-what-i-do-as-an-er-doctor-1668753751)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-an-er-doctor-1668753751>
 
 你可能会在某个时候被送进急诊室——也许只是在切面包圈失败后缝了几针。但是在急救医学领域工作的训练有素的医疗专业人员已经准备好处理任何紧急情况。
 

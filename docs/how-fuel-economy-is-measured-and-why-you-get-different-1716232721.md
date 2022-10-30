@@ -1,6 +1,6 @@
 # 如何测量燃油经济性(以及为什么你得到不同的 mpg)
 
-> 原文:[https://jalopnik . com/how-fuel-economy-is-measured-and-why-you-get-different-1716232721](https://jalopnik.com/how-fuel-economy-is-measured-and-why-you-get-different-1716232721)
+> 原文：<https://jalopnik.com/how-fuel-economy-is-measured-and-why-you-get-different-1716232721>
 
 有没有想过是谁得出这些燃油经济性数据的？环境保护署是在某个秘密的地下巢穴里做这件事，还是某个叫比利·鲍勃的家伙在堪萨斯州的某个谷仓里做这件事？他们是怎么得出这些数字的？我们先来讲讲基础科学。
 

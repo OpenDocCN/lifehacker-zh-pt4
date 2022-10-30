@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:我该不该和前任复合？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-should-I-get-back-together-with-my-ex-1710690704](https://kotaku.com/ask-dr-nerdlove-should-i-get-back-together-with-my-ex-1710690704)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-should-i-get-back-together-with-my-ex-1710690704>
 
 你好，互联网！欢迎来到 [问问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，唯一一个发布到 Valhalla 的交友专栏，永远闪亮和 Chrome(绝不火狐)。
 

@@ -1,6 +1,6 @@
 # 橙色主屏幕的痕迹
 
-> 原文:[https://life hacker . com/the-trace-of-orange-home-screen-1592286502](https://lifehacker.com/the-trace-of-orange-home-screen-1592286502)
+> 原文：<https://lifehacker.com/the-trace-of-orange-home-screen-1592286502>
 
 Android:今天的主屏幕把你需要的一切都放在几个主屏幕上。除了底部通常的稳定的快捷方式，这个主题还包括你最常用和最喜欢的应用程序的空间。
 

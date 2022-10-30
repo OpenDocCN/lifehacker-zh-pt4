@@ -1,6 +1,6 @@
 # 我应该为我的 NAS 使用一台 DIY PC 还是购买一个机箱？
 
-> 原文:[https://life hacker . com/should-I-use-a-DIY-PC-for-my-nas-or-buy-an-enclosure-1678991505](https://lifehacker.com/should-i-use-a-diy-pc-for-my-nas-or-buy-an-enclosure-1678991505)
+> 原文：<https://lifehacker.com/should-i-use-a-diy-pc-for-my-nas-or-buy-an-enclosure-1678991505>
 
 亲爱的 Lifehacker，
 我正在考虑构建一个 NAS(网络附加存储)来进行存储和备份，但我不知道我是应该构建一台计算机还是使用我闲置的旧计算机，或者我是否应该为这项工作购买一个特殊的机箱，如 Drobo 或 Synology 。你有什么建议？

@@ -1,6 +1,6 @@
 # 如何识别假冒苹果充电器
 
-> 原文:[https://life hacker . com/how-to-spot-a-fake-apple-charger-1579841990](https://lifehacker.com/how-to-spot-a-counterfeit-apple-charger-1579841990)
+> 原文：<https://lifehacker.com/how-to-spot-a-counterfeit-apple-charger-1579841990>
 
 你可能认为手机用什么样的充电器并不重要，但假冒充电器的质量可能会低得多——更不用说不安全了。以下是如何辨别的方法。
 

@@ -1,6 +1,6 @@
 # 剥去个人理财成功的层层外衣
 
-> 原文:[https://life hacker . com/peeling-back-the-layers-of-personal-finance-success-1723351564](https://lifehacker.com/peeling-back-the-layers-of-personal-finance-success-1723351564)
+> 原文：<https://lifehacker.com/peeling-back-the-layers-of-personal-finance-success-1723351564>
 
 这些年来，我写了很多关于个人理财的文章，记录了我自己的理财进展和变化，并与无数读者交谈，我发现最有趣的事情之一是，个人理财很像洋葱。一个洋葱？是的，这是关于层次的。
 

@@ -1,6 +1,6 @@
 # 我从跑步中学到的 5 条人生经验
 
-> 原文:[https://life hacker . com/5-life-lessons-ive-learn-from-running-1470641344](https://lifehacker.com/5-life-lessons-ive-learned-from-running-1470641344)
+> 原文：<https://lifehacker.com/5-life-lessons-ive-learned-from-running-1470641344>
 
 在过去的几年里，我成了一名跑步爱好者。跑步是我的逃避，也是我应对和缓解压力的方式。随着时间的推移，我发现了几条成为跑步者的不成文的规则，这些规则不仅适用于跑步，也适用于日常生活。
 

@@ -1,6 +1,6 @@
 # 控制假日沉迷的六种方法
 
-> 原文:[https://life hacker . com/six-way-to-keep-holiday-lugging-in-check-1668341786](https://lifehacker.com/six-ways-to-keep-holiday-indulging-in-check-1668341786)
+> 原文：<https://lifehacker.com/six-ways-to-keep-holiday-indulging-in-check-1668341786>
 
 当假期到来时，许多人认为这给了他们过度消费的许可——不仅是食物，还有礼物、购物等等。当然，一点点放纵是可以的，但是你不想连续几个月放纵自己。这里有一些方法来控制你的花费和其他嗜好。
 

@@ -1,6 +1,6 @@
 # 最好的卧室升级为更好的睡眠
 
-> 原文:[https://life hacker . com/the-best-bedroom-upgrades-for-a-better-nights-sleep-1661123719](https://lifehacker.com/the-best-bedroom-upgrades-for-a-better-nights-sleep-1661123719)
+> 原文：<https://lifehacker.com/the-best-bedroom-upgrades-for-a-better-nights-sleep-1661123719>
 
 合适的家具和装饰可以把你的卧室变成一个放松的地方，帮助你睡个好觉。你对改造卧室有什么建议吗？
 

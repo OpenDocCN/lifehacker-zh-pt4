@@ -1,6 +1,6 @@
 # 专家们不同意的理财建议:应急基金
 
-> 原文:[https://life hacker . com/money-advice-not-everybody-agreement-on-emergency-funds-1589580471](https://lifehacker.com/money-advice-not-everyone-agrees-on-emergency-funds-1589580471)
+> 原文：<https://lifehacker.com/money-advice-not-everyone-agrees-on-emergency-funds-1589580471>
 
 在戴夫·拉姆齐(以及其他理财专家)的帮助下，“应急基金”几乎成了一个家喻户晓的短语。大多数人都知道，应急基金是让你的财务井然有序的重要组成部分。但不是每个人都同意细节。
 

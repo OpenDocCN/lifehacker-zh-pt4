@@ -1,6 +1,6 @@
 # Crave Flex 系列:数据驱动型女性的完美性玩具
 
-> 原文:[https://life hacker . com/the-crave-flex-series-the-perfect-sex-toys-for-the-dat-1700723131](https://lifehacker.com/the-crave-flex-series-the-perfect-sex-toys-for-the-dat-1700723131)
+> 原文：<https://lifehacker.com/the-crave-flex-series-the-perfect-sex-toys-for-the-dat-1700723131>
 
 曾经买过多模式振动器，并想知道制造商如何解决这些特殊模式？(没有？我想我是这里唯一的性玩具呆子了)。事实证明，大多数制造商只是在黑暗中冒险，但有一家公司打算改变这种情况，给女性找到她们真正喜欢的振动模式的能力。
 

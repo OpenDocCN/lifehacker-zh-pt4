@@ -1,6 +1,6 @@
 # 五台最佳一体机
 
-> 原文:[https://life hacker . com/five-best-all-in-one-computers-1689980057](https://lifehacker.com/five-best-all-in-one-computers-1689980057)
+> 原文：<https://lifehacker.com/five-best-all-in-one-computers-1689980057>
 
 如果您正在寻找一台节省空间、功能强大的 PC，并且您要么不想构建，要么正在为他人购买，那么一体式计算机是一个不错的选择。它们配备了您工作所需的一切，易于安装，可以与传统台式机媲美。本周，我们将根据你们的提名选出五位最佳选手。
 

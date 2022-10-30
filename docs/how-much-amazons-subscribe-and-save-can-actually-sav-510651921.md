@@ -1,6 +1,6 @@
 # 亚马逊的“订阅并节省”实际上能为你节省多少
 
-> 原文:[https://life hacker . com/how-much-amazons-subscribe-and-save-can-actually-sav-510651921](https://lifehacker.com/how-much-amazons-subscribe-and-save-can-actually-sav-510651921)
+> 原文：<https://lifehacker.com/how-much-amazons-subscribe-and-save-can-actually-sav-510651921>
 
 我们是亚马逊 [订阅并保存](http://www.amazon.com/gp/subscribe-and-save/details/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-much-amazons-subscribe-and-save-can-actually-sav-510651921&asc_source=&tag=kinjalifehackerlink-20) 订阅的粉丝，它允许你定期将家居用品运送给你，但它是否真的能为你节省那么多钱一直有争议。Simple Dollar 查看了 Subscribe and Save，并将其与当地的仓库俱乐部进行了比较，以了解可以节省多少钱。
 

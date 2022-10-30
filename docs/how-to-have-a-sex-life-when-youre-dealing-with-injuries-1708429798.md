@@ -1,6 +1,6 @@
 # 当你面对伤害和疾病时，如何过性生活
 
-> 原文:[https://life hacker . com/how-to-have-a-sex-life-when-you-processing-injuries-1708429798](https://lifehacker.com/how-to-have-a-sex-life-when-youre-dealing-with-injuries-1708429798)
+> 原文：<https://lifehacker.com/how-to-have-a-sex-life-when-youre-dealing-with-injuries-1708429798>
 
 在你生命中的某个时刻，你或你的伴侣几乎不可避免地要面对重大的伤害或疾病。如果这只是暂时的挫折，而不是永久的残疾，你是非常幸运的——但是任何一种疾病都可能给你生活的方方面面带来麻烦，包括性。以下是如何为亲密关系腾出空间，即使你正在与健康搏斗。
 

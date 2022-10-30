@@ -1,6 +1,6 @@
 # 最好的 VPN 服务商是哪家？
 
-> 原文:[https://life hacker . com/whats-the-best-VPN-service-provider-1547612561](https://lifehacker.com/whats-the-best-vpn-service-provider-1547612561)
+> 原文：<https://lifehacker.com/whats-the-best-vpn-service-provider-1547612561>
 
 当你使用互联网 时，虚拟专用网 [可以很好地保护你的隐私和安全。无论您在国内还是国外，它们对于保护您的数据都是必不可少的。本周，我们想知道你认为哪些是最好的。](https://lifehacker.com/why-you-should-be-using-a-vpn-and-how-to-choose-one-5940565)
 

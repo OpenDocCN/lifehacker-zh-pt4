@@ -1,6 +1,6 @@
 # 当“逃避”变成“回避”时，如何抓回现实
 
-> 原文:[https://life hacker . com/how-snap-back-to-reality-when-escapism-been-av-1723091630](https://lifehacker.com/how-to-snap-back-to-reality-when-escapism-becomes-av-1723091630)
+> 原文：<https://lifehacker.com/how-to-snap-back-to-reality-when-escapism-becomes-av-1723091630>
 
 生活可能充满艰辛，所以从现实中退一步，沉浸在自己的幻想中是很好的。这就是为什么我们阅读关于遥远国度的书籍，探索拥有强大化身的虚拟世界。然而，太多会对你的生产力和个人成长不利。
 

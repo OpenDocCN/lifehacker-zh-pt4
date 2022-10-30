@@ -1,6 +1,6 @@
 # 凹室工作区
 
-> 原文:[https://lifehacker.com/the-alcove-workspace-1713394353](https://lifehacker.com/the-alcove-workspace-1713394353)
+> 原文：<https://lifehacker.com/the-alcove-workspace-1713394353>
 
 有时尴尬的地方是你家庭办公室的最佳空间。今天的特色工作空间充分利用了楼梯顶部的壁龛。
 

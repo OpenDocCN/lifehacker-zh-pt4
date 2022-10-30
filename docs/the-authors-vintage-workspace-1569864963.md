@@ -1,6 +1,6 @@
 # 作者的经典工作空间
 
-> 原文:[https://life hacker . com/the-authors-vintage-workspace-1569864963](https://lifehacker.com/the-authors-vintage-workspace-1569864963)
+> 原文：<https://lifehacker.com/the-authors-vintage-workspace-1569864963>
 
 看着这张照片就像回到了旋转电话和厚重的纸质字典仍然统治着工作空间的时代。Flickr 用户理查德·杜(Richard Due)深思熟虑地为我们标注了他办公室里那些经典的、仍在使用的物品。
 

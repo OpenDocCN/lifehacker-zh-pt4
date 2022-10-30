@@ -1,6 +1,6 @@
 # 谷歌今天在 I/O 2014 上宣布的所有最好的东西
 
-> 原文:[https://life hacker . com/all-the-best-stuff-Google-announced-today-at-I-o-2014-1596026978](https://lifehacker.com/all-the-best-stuff-google-announced-today-at-i-o-2014-1596026978)
+> 原文：<https://lifehacker.com/all-the-best-stuff-google-announced-today-at-i-o-2014-1596026978>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-wtLJPvx7-ys&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-wtLJPvx7-ys&start=0) 
 

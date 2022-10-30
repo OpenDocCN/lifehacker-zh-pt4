@@ -1,6 +1,6 @@
 # 你在飞机上生病的真正原因——以及如何预防
 
-> 原文:[https://gizmodo . com/why-you-really-生病在飞机上以及如何预防-1471880458](https://gizmodo.com/why-you-really-get-sick-on-planes-and-how-to-prevent-1471880458)
+> 原文：<https://gizmodo.com/why-you-really-get-sick-on-planes-and-how-to-prevent-1471880458>
 
 如果你要飞往某个地方过感恩节，你可能会担心你会在途中染上病毒。这是有充分理由的:许多人在飞机飞行后的几天里都患上了严重的疾病。为什么会这样，怎样才能让自己不生病？
 

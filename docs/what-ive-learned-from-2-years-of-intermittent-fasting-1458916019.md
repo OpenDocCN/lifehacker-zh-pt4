@@ -1,6 +1,6 @@
 # 我从两年的间歇性禁食中学到了什么
 
-> 原文:[https://life hacker . com/what-ive-learn-from-2-year-of-intermittent-fasting-1458916019](https://lifehacker.com/what-ive-learned-from-2-years-of-intermittent-fasting-1458916019)
+> 原文：<https://lifehacker.com/what-ive-learned-from-2-years-of-intermittent-fasting-1458916019>
 
 采用自我实验的哲学可以让你的生活发生巨大的变化。选择尝试新的想法可以帮助你成功创业。选择尝试分享你的作品可以开启你作为作家或艺术家的职业生涯。选择尝试不同的饮食和锻炼可以帮助你发现适合你的健身和健康策略。
 

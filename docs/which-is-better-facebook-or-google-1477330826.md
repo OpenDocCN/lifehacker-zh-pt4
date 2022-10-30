@@ -1,6 +1,6 @@
 # 脸书和 Google+哪个更好？
 
-> 原文:[https://life hacker . com/Facebook 和 google 哪个更好——1477330826](https://lifehacker.com/which-is-better-facebook-or-google-1477330826)
+> 原文：<https://lifehacker.com/which-is-better-facebook-or-google-1477330826>
 
 脸书显然是当今占主导地位的社交网络。这是每个人都去的地方，因为这是每个人都在的地方。这种事情很难改变，但 Google+在过去几年里一直在勇敢尝试。现在，我们想听听你的意见。让它有价值，因为下周我们会发表一篇后续文章，提供双方最好的论点。
 

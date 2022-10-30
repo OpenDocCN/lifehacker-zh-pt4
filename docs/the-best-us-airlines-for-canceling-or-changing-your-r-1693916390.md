@@ -1,6 +1,6 @@
 # 取消(或更改)您的预订的最佳美国航空公司
 
-> 原文:[https://life hacker . com/the-best-us-airlines-for-cancel-or-change-your-r-1693916390](https://lifehacker.com/the-best-us-airlines-for-canceling-or-changing-your-r-1693916390)
+> 原文：<https://lifehacker.com/the-best-us-airlines-for-canceling-or-changing-your-r-1693916390>
 
 航空公司喜欢收费，但最糟糕的是当你需要改变或取消预订时。这些费用最终会耗尽你的全部票价，使整个过程变得毫无价值。不过，这也不全是坏消息:一些航空公司的政策比其他公司更好。我们来分解一下哪些是最好的，哪些是最差的。
 

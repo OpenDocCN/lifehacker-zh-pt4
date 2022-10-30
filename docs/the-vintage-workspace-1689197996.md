@@ -1,6 +1,6 @@
 # 复古工作空间
 
-> 原文:[https://lifehacker.com/the-vintage-workspace-1689197996](https://lifehacker.com/the-vintage-workspace-1689197996)
+> 原文：<https://lifehacker.com/the-vintage-workspace-1689197996>
 
 今天的特色工作空间充满怀旧之情，有黑胶唱片、老式手机、相机、收音机和一件二战时期的美国空降夹克。
 

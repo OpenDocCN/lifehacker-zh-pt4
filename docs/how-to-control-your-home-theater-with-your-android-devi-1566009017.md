@@ -1,6 +1,6 @@
 # 如何使用 Android 设备控制整个家庭影院
 
-> 原文:[https://life hacker . com/how-to-control-your-Android-devi-1566009017](https://lifehacker.com/how-to-control-your-home-theater-with-your-android-devi-1566009017)
+> 原文：<https://lifehacker.com/how-to-control-your-home-theater-with-your-android-devi-1566009017>
 
 我们之前已经讨论过如何用你的安卓手机 来 [控制你的 HTPC 上的任何东西。但是如果你有有线电视，机顶盒，或者任何一个连接到你的电视上的东西呢？或者你只是想控制你的音响？别担心，你也有一些选择。](http://lifehacker.com/how-to-control-anything-on-your-pc-with-your-android-ph-1500063190)
 

@@ -1,6 +1,6 @@
 # Google Now 的 10 大令人敬畏的功能
 
-> 原文:[https://life hacker . com/top-10-awesome-features-of-Google-now-1577427243](https://lifehacker.com/top-10-awesome-features-of-google-now-1577427243)
+> 原文：<https://lifehacker.com/top-10-awesome-features-of-google-now-1577427243>
 
 用于 iOS 和 Android 的读心术个人助手 Google Now 最近进行了大量更新，使其成为完美的智能手机伴侣...嗯，什么都行。这是它能做的最酷的事情的列表。
 

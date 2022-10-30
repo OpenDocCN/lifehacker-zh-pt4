@@ -1,6 +1,6 @@
 # 明亮的墙上办公室工作区
 
-> 原文:[https://life hacker . com/the-bright-office-on-a-wall-workspace-1716287283](https://lifehacker.com/the-bright-office-on-a-wall-workspace-1716287283)
+> 原文：<https://lifehacker.com/the-bright-office-on-a-wall-workspace-1716287283>
 
 如果你有多余的墙，搁板系统可以成为一个很好的定制工作空间。这一个装满了东西，但仍然设法看起来明亮和有条理。
 

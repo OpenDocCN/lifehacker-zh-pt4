@@ -1,6 +1,6 @@
 # 当爱人自杀时如何应对
 
-> 原文:[https://life hacker . com/how-to-cope-when-a-love-piece-自杀-1663171935](https://lifehacker.com/how-to-cope-when-a-loved-one-commits-suicide-1663171935)
+> 原文：<https://lifehacker.com/how-to-cope-when-a-loved-one-commits-suicide-1663171935>
 
 失去亲人从来都不是一件容易的事。然而，当有人结束自己的生命时，它会带来一系列的挑战。在这里，我们将讨论如何应对这种特别困难的损失。
 

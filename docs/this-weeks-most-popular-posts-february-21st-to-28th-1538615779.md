@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:2 月 28 日至 3 月 7 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-2 月 21 日至 28 日-1538615779](https://lifehacker.com/this-weeks-most-popular-posts-february-21st-to-28th-1538615779)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-february-21st-to-28th-1538615779>
 
 本周我们 [对比了流媒体电视库](https://lifehacker.com/tv-streaming-head-to-head-netflix-vs-hulu-vs-amazon-pr-1536006625) ， [了解了为什么你应该点更大的披萨](http://lifehacker.com/an-engineer-explains-why-you-should-always-order-the-la-1532897984) ， [谈到了我们都会犯的五个沟通错误](http://lifehacker.com/five-communication-mistakes-almost-every-couple-makes-1535461741) ， [了解了关于便便](http://lifehacker.com/what-does-the-shape-and-color-of-my-poop-mean-1535648433) 。这里回顾一下。
 

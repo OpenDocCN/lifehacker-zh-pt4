@@ -1,6 +1,6 @@
 # 熔岩灯工作区
 
-> 原文:[https://lifehacker.com/the-lava-lamp-workspace-1592584508](https://lifehacker.com/the-lava-lamp-workspace-1592584508)
+> 原文：<https://lifehacker.com/the-lava-lamp-workspace-1592584508>
 
 熔岩灯不仅仅是六七十年代的新奇遗物。排列成色彩缤纷的系列，它们可以是非常整洁的办公室配饰，营造宁静的氛围。
 

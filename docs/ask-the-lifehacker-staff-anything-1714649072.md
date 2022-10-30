@@ -1,6 +1,6 @@
 # 问 Lifehacker 的员工任何事情
 
-> 原文:[https://life hacker . com/ask-the-life hacker-staff-any-1714649072](https://lifehacker.com/ask-the-lifehacker-staff-anything-1714649072)
+> 原文：<https://lifehacker.com/ask-the-lifehacker-staff-anything-1714649072>
 
 关于生活、爱情、生产力和键盘快捷键，你有什么迫切的问题吗？Lifehacker 团队将回答您的所有问题。
 

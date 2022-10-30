@@ -1,6 +1,6 @@
 # 网上订餐的最佳地点
 
-> 原文:[https://life hacker . com/the-best-places-to-order-food-on-the-web-1505390925](https://lifehacker.com/the-best-places-to-order-food-on-the-web-1505390925)
+> 原文：<https://lifehacker.com/the-best-places-to-order-food-on-the-web-1505390925>
 
 你可以打开网络浏览器，输入一些细节，几分钟内就可以让热腾腾的食物送到你家，这已经很棒了，但同样酷的是，你也可以做同样的事情，让美食或手工制作的食物从世界各地送到你面前。让我们列一个清单，列出把这些好东西直接送到你家的最佳地点。
 

@@ -1,6 +1,6 @@
 # 问专家:所有关于偿还你的学生贷款
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-returning your-student-loans-1703600680](https://lifehacker.com/ask-an-expert-all-about-repaying-your-student-loans-1703600680)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-repaying-your-student-loans-1703600680>
 
 对许多人来说，如果不是大多数人，借学生贷款来支付你的教育是一种不情愿的需要。一旦你毕业，你如何处理偿还这笔潜在的巨额款项？
 

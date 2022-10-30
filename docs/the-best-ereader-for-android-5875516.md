@@ -1,6 +1,6 @@
 # 安卓最佳电子书阅读器
 
-> 原文:[https://lifehacker.com/the-best-ereader-for-android-5875516](https://lifehacker.com/the-best-ereader-for-android-5875516)
+> 原文：<https://lifehacker.com/the-best-ereader-for-android-5875516>
 
 在 Android 上阅读电子书曾经还可以。现在很牛逼。虽然有很多可爱的应用程序可以在手机或平板电脑上阅读书籍，但 Play Books 多年来已经有了很大的改进，因为它的云同步、优秀的研究工具以及上传自己书籍的能力而成为我们的首选。
 

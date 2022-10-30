@@ -1,6 +1,6 @@
 # 整理和升级车库的 10 大聪明方法
 
-> 原文:[https://life hacker . com/top-10-smart-ways-to-organize-and-upgrade-your-garage-1706343727](https://lifehacker.com/top-10-smart-ways-to-organize-and-upgrade-your-garage-1706343727)
+> 原文：<https://lifehacker.com/top-10-smart-ways-to-organize-and-upgrade-your-garage-1706343727>
 
 车库通常是一个被忽视的、凌乱的空间。不过，通过一点组织和一些方便的项目，我们可以更多地利用车库，并使它们现代化。以下是我们的十大车库升级创意。
 

@@ -1,6 +1,6 @@
 # 每个人都应该拥有的 10 大备份(不仅仅是电脑备份)
 
-> 原文:[https://life hacker . com/top-10-backups-every one-should-has-not-just-computer-1667420273](https://lifehacker.com/top-10-backups-everyone-should-have-not-just-computer-1667420273)
+> 原文：<https://lifehacker.com/top-10-backups-everyone-should-have-not-just-computer-1667420273>
 
 你已经听过很多了，但它值得重复: [你需要备份你的电脑](https://lifehacker.com/theres-no-excuse-for-not-backing-up-your-computer-do-1547987206) ，因为你的硬盘*总有一天会*失效。然而，除了这些文件备份，我们还需要备份许多其他东西——从工作和财务到个人需求。
 

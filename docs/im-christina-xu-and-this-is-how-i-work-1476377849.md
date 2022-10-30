@@ -1,6 +1,6 @@
 # 我是克里斯蒂娜·徐，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Christina-Xu-and-this-is-how-I-work-1476377849](https://lifehacker.com/im-christina-xu-and-this-is-how-i-work-1476377849)
+> 原文：<https://lifehacker.com/im-christina-xu-and-this-is-how-i-work-1476377849>
 
 "我浏览待办事项清单，就像它们是洗发水一样。"像克里斯蒂娜·徐 这样忙碌的人还没有为她疯狂的日程找到完美的经理也就不足为奇了。作为[Awesome Foundation](http://www.awesomefoundation.org/en)(每月向世界各地的项目提供资助)的全球协调员和 [Breadpig](http://breadpig.com/) (出售一堆很酷的东西并捐出利润)的核心团队成员，她能找到时间睡觉真是个奇迹。我们采访了克里斯蒂娜，看看她是如何做到这一切的。
 

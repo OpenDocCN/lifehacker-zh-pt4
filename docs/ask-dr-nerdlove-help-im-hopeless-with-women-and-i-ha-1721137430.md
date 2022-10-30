@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:救命，我对女人没希望了，我恨自己
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-help-im-无望的女人和我-ha-1721137430](https://kotaku.com/ask-dr-nerdlove-help-im-hopeless-with-women-and-i-ha-1721137430)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-help-im-hopeless-with-women-and-i-ha-1721137430>
 
 你好，互联网！欢迎来到 [问问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是特兰西瓦尼亚多学科大学毕业的唯一一个约会专栏。
 

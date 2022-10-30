@@ -1,6 +1,6 @@
 # 职业聚焦:作为外交官我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-diplomat-1714687425](https://lifehacker.com/career-spotlight-what-i-do-as-a-diplomat-1714687425)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-diplomat-1714687425>
 
 我想象外交官们一边喝着马提尼酒，一边穿着詹姆斯·邦德风格的服装周游世界，但事实是，他们花在寻找能在当地电源插座上使用的手机充电器上的时间，可能比他们与精英人士交往的时间还要多。在遥远的地方倡导国际合作是困难的，而且往往是默默无闻的工作。
 

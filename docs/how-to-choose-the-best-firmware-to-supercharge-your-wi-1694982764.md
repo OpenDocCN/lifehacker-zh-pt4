@@ -1,6 +1,6 @@
 # 如何选择最好的固件来为你的 Wi-Fi 路由器充电
 
-> 原文:[https://life hacker . com/how-to-choose-the-best-firmware-super charge-your-wi-1694982764](https://lifehacker.com/how-to-choose-the-best-firmware-to-supercharge-your-wi-1694982764)
+> 原文：<https://lifehacker.com/how-to-choose-the-best-firmware-to-supercharge-your-wi-1694982764>
 
 在 Wi-Fi 路由器上安装定制固件就像是家庭网络的上帝模式。你可以看到正在发生的一切，增强你的 Wi-Fi 信号，加强你的安全性，甚至可以做一些高级的事情，比如安装你自己的 VPN。然而，有这么多的选择，很难选择正确的。以下是你需要知道的。
 

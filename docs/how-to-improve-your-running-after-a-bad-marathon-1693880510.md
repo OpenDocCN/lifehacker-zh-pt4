@@ -1,6 +1,6 @@
 # 如何在糟糕的马拉松后提高你的跑步水平
 
-> 原文:[https://life hacker . com/how-to-improve-your running after-a bad-marathon-1693880510](https://lifehacker.com/how-to-improve-your-running-after-a-bad-marathon-1693880510)
+> 原文：<https://lifehacker.com/how-to-improve-your-running-after-a-bad-marathon-1693880510>
 
 马拉松是一个善变的野兽:在 26.2 英里处，厄运的可能性是巨大的。未知的领域可能会带来各种各样无法预料的问题，降低你的目标进度，甚至更糟，但正是从这些问题中，你学会了改进。
 

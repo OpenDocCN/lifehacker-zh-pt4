@@ -1,6 +1,6 @@
 # 如何在工作中偷懒(并且不被抓到)
 
-> 原文:[https://life hacker . com/how-to-slack-on-work-and-not-get-catched-1588002375](https://lifehacker.com/how-to-slack-off-at-work-and-not-get-caught-1588002375)
+> 原文：<https://lifehacker.com/how-to-slack-off-at-work-and-not-get-caught-1588002375>
 
 我们都追求效率，但是有些时候你只需要找到一种减压和放松的方式。不幸的是，在工作中偷懒会让你看起来很糟糕，并且会给你带来很多麻烦。这里有一些方法可以让你在缓慢的一天中打发时间，并让索伦的视线离开你。
 

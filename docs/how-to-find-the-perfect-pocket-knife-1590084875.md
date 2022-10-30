@@ -1,6 +1,6 @@
 # 如何找到完美的小刀
 
-> 原文:[https://gizmodo . com/how-to-find the perfect-pocket-knife-1590084875](https://gizmodo.com/how-to-find-the-perfect-pocket-knife-1590084875)
+> 原文：<https://gizmodo.com/how-to-find-the-perfect-pocket-knife-1590084875>
 
 想做好准备吗？从这里开始，用一把你可以随身携带的好小刀。以下是寻找和购买的方法。
 

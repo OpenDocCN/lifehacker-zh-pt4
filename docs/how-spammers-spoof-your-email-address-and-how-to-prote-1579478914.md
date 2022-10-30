@@ -1,6 +1,6 @@
 # 垃圾邮件发送者如何欺骗您的电子邮件地址(以及如何保护自己)
 
-> 原文:[https://life hacker . com/how-spammers-spoof-your-email-address-and-how-to-prote-1579478914](https://lifehacker.com/how-spammers-spoof-your-email-address-and-how-to-prote-1579478914)
+> 原文：<https://lifehacker.com/how-spammers-spoof-your-email-address-and-how-to-prote-1579478914>
 
 当我们看到垃圾邮件时，我们大多数人都知道它，但是在我们的收件箱中看到来自朋友——或者更糟，来自我们自己——的陌生电子邮件是非常令人不安的。如果你看到一封看起来像是朋友发来的邮件，并不意味着他们被黑了。垃圾邮件发送者一直在欺骗这些地址，这并不难做到。以下是他们如何做到这一点，以及你如何保护自己。
 

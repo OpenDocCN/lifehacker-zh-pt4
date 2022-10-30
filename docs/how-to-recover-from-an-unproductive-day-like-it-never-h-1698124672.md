@@ -1,6 +1,6 @@
 # 如何从毫无收获的一天中恢复过来，就像从未发生过一样
 
-> 原文:[https://life hacker . com/how-to-recover-from-a-no-productivity-day-like-it-never-h-1698124672](https://lifehacker.com/how-to-recover-from-an-unproductive-day-like-it-never-h-1698124672)
+> 原文：<https://lifehacker.com/how-to-recover-from-an-unproductive-day-like-it-never-h-1698124672>
 
 我们都有不思进取的日子。也许一个意想不到的事件打乱了你的计划。也许你感觉不舒服。不管是什么原因，回到正轨都很难。以下是如何度过生产率下降期并恢复正常运转的方法。
 

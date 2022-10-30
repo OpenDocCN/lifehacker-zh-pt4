@@ -1,6 +1,6 @@
 # iPad Air:你需要知道的关于苹果新平板电脑的一切
 
-> 原文:[https://gizmodo . com/apple-hot-fifth-generation-ipad-everything-you-need-1450001533](https://gizmodo.com/apples-hot-fifth-generation-ipad-everything-you-need-1450001533)
+> 原文：<https://gizmodo.com/apples-hot-fifth-generation-ipad-everything-you-need-1450001533>
 
 苹果刚刚发布了 iPad Air，这是其(近)10 英寸平板电脑系列的第五款产品。去年，苹果的大男孩得到了一个敷衍了事的升级，但今年 iPad 得到了一个新的超级超薄设计——和一个新名字——一批重大改进将在明年继续进行。以下是你需要知道的。
 

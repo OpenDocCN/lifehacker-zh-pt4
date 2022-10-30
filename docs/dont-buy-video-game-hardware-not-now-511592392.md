@@ -1,6 +1,6 @@
 # 不要购买新的视频游戏硬件。现在不行。
 
-> 原文:[https://kotaku . com/don-buy-video-game-hardware-not-now-511592392](https://kotaku.com/dont-buy-video-game-hardware-not-now-511592392)
+> 原文：<https://kotaku.com/dont-buy-video-game-hardware-not-now-511592392>
 
 几乎每一个平台上都有精彩的游戏出售，随着库的不断发展，你可能会认为，如果你还没有一个主要的系统，现在是购买新的视频游戏硬件的好时机。大多数情况下，你是对的。但不是这个月。
 

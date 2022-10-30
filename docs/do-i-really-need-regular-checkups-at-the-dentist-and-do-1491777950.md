@@ -1,6 +1,6 @@
 # 我真的需要定期去看牙医和医生吗？
 
-> 原文:[https://life hacker . com/do-I-really-need-regular-checks-at-the-dentist-and-do-1491777950](https://lifehacker.com/do-i-really-need-regular-checkups-at-the-dentist-and-do-1491777950)
+> 原文：<https://lifehacker.com/do-i-really-need-regular-checkups-at-the-dentist-and-do-1491777950>
 
 亲爱的生活黑客，我知道我应该一年去看一次医生，看两次牙医，但是我真的需要吗？每当我体检时，我都感觉很好，我的牙齿真的没有任何问题。我真的需要如此频繁的拜访吗？或者我只是在白花钱？
 

@@ -1,6 +1,6 @@
 # 带孩子旅行的八个专家建议
 
-> 原文:[https://life hacker . com/eight-expert-tips-for-traveling with your-tuckly-1724779450](https://lifehacker.com/eight-expert-tips-for-traveling-with-your-toddler-1724779450)
+> 原文：<https://lifehacker.com/eight-expert-tips-for-traveling-with-your-toddler-1724779450>
 
 作为一名前专业旅行作家，我想我对成人旅行和现在的儿童旅行都有权威性。那么，这里是我的八个带着你的婴儿旅行的专业建议。(然而，婴儿时差是另一个故事，另一个时间。)
 

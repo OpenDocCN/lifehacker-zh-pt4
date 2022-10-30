@@ -1,6 +1,6 @@
 # 我是平面设计师苏珊·卡尔，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Susan-Kare-graphic-designer-and-this-is-how-I-work-1646211826](https://lifehacker.com/im-susan-kare-graphic-designer-and-this-is-how-i-work-1646211826)
+> 原文：<https://lifehacker.com/im-susan-kare-graphic-designer-and-this-is-how-i-work-1646211826>
 
 苏珊·卡雷(Susan Kare)作为一名平面设计师，她的职业生涯可谓丰富多彩，但她的声誉之前还有一个早期的里程碑:她为最初的苹果麦金塔电脑设计了不可磨灭的图标和字体。她令人回味的、清晰的和机智的设计为随后的图形用户界面树立了一个标准。
 

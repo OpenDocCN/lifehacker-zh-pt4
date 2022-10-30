@@ -1,6 +1,6 @@
 # 如果我的手机在保修期内被更换，它会得到升级吗？
 
-> 原文:[https://life hacker . com/if-my-phone-gets-replaced-under-warranty-will-it-get-u-1570800603](https://lifehacker.com/if-my-phone-gets-replaced-under-warranty-will-it-get-u-1570800603)
+> 原文：<https://lifehacker.com/if-my-phone-gets-replaced-under-warranty-will-it-get-u-1570800603>
 
 亲爱的 Lifehacker，
 我有一部 iPhone 4s，合约到 2015 年 4 月才结束。如果苹果在今年晚些时候推出“iPhone 6”时停止生产 iPhone 4s，如果手机在保修期内停止工作，我还能得到换货吗？我会升级到 a 5 吗？

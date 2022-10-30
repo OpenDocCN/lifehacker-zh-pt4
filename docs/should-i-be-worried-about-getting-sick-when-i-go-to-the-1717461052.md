@@ -1,6 +1,6 @@
 # 去医院应该担心生病吗？
 
-> 原文:[https://life hacker . com/should-I-being-the-1717461052](https://lifehacker.com/should-i-be-worried-about-getting-sick-when-i-go-to-the-1717461052)
+> 原文：<https://lifehacker.com/should-i-be-worried-about-getting-sick-when-i-go-to-the-1717461052>
 
 医院可能是可怕的地方。无论你是去看望你爱的人还是去检查自己，许多人都担心感染像 MRSA 这样的难治疾病，或者从其他病人那里感染一些讨厌的东西。让我们来谈谈你患病的可能性有多大，以及你能做些什么来降低风险。
 

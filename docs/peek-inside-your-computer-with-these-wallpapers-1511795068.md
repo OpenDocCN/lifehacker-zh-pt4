@@ -1,6 +1,6 @@
 # 用这些壁纸窥视你的电脑
 
-> 原文:[https://life hacker . com/peek-inside-your-computer-with these-wallpapers-1511795068](https://lifehacker.com/peek-inside-your-computer-with-these-wallpapers-1511795068)
+> 原文：<https://lifehacker.com/peek-inside-your-computer-with-these-wallpapers-1511795068>
 
 无论你是一个 [狂热的计算机建造者](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) 还是仅仅喜欢一点硅的外观，这些计算机组件壁纸都会给你的桌面增添一些可爱的 PC 色情。
 

@@ -1,6 +1,6 @@
 # 如何将志愿服务纳入你的日程安排中
 
-> 原文:[https://life hacker . com/how-to-fit-volunteer-into-your-packed-schedule-1695901749](https://lifehacker.com/how-to-fit-volunteering-into-your-packed-schedule-1695901749)
+> 原文：<https://lifehacker.com/how-to-fit-volunteering-into-your-packed-schedule-1695901749>
 
 志愿服务是回馈社会的好方法，但是如果你只关注自己的事情，就很难做到。这里有几个方法可以让你在不打乱现有生活方式的情况下成为志愿者。
 

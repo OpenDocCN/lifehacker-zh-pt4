@@ -1,6 +1,6 @@
 # 如何通过间歇性禁食来摆脱对食物的渴望
 
-> 原文:[https://life hacker . com/how-to-free you-from-food-cravings-with-intermitte-1702108722](https://lifehacker.com/how-to-free-yourself-from-food-cravings-with-intermitte-1702108722)
+> 原文：<https://lifehacker.com/how-to-free-yourself-from-food-cravings-with-intermitte-1702108722>
 
 禁食减肥听起来像喝水解渴一样愚蠢，但这并不完全一样。让我们来看看一种特殊的禁食，称为间歇性禁食(或 IF)，它可以成为你健身旅程中的一个强大工具。
 

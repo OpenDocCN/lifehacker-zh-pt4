@@ -1,6 +1,6 @@
 # 在房屋改造中，我应该在哪里挥霍，在哪里省钱？
 
-> 原文:[https://life hacker . com/where-should-I-spluge-and-where-should-I-save-in-a-hom-1507302965](https://lifehacker.com/where-should-i-splurge-and-where-should-i-save-in-a-hom-1507302965)
+> 原文：<https://lifehacker.com/where-should-i-splurge-and-where-should-i-save-in-a-hom-1507302965>
 
 亲爱的生活黑客，我正准备做一些家居装修。虽然我对硬件饰面和橱柜风格的选择似乎是无限的，但我的预算却不是。我应该在哪些地方花更多的钱，在哪些地方削减开支，以获得最大的改造成本回报？
 

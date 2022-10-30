@@ -1,6 +1,6 @@
 # 如何用 iPhone 控制 Mac 上的任何东西
 
-> 原文:[https://life hacker . com/how-to-control-any-on-your-MAC-your-iphone-1684293066](https://lifehacker.com/how-to-control-anything-on-your-mac-with-your-iphone-1684293066)
+> 原文：<https://lifehacker.com/how-to-control-anything-on-your-mac-with-your-iphone-1684293066>
 
 从移动设备上控制电脑并不是什么新鲜事，但在过去一年左右的时间里，iOS 和 Mac 上出现了一些著名的应用程序，让它成为一种真正令人敬畏的体验。让我们来看看几个最好的应用程序，让你在手掌上控制你的 Mac。
 

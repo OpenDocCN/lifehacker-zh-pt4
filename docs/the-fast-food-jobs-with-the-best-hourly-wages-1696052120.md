@@ -1,6 +1,6 @@
 # 时薪最高的快餐工作
 
-> 原文:[https://life hacker . com/the-快餐-时薪最高的工作-1696052120](https://lifehacker.com/the-fast-food-jobs-with-the-best-hourly-wages-1696052120)
+> 原文：<https://lifehacker.com/the-fast-food-jobs-with-the-best-hourly-wages-1696052120>
 
 当你正在寻找你的第一份真正的工作经验时，如果你对一些兼职工作感兴趣，或者当你只需要找到一份工作来维持生计时，快餐工作会很棒。根据 [Glassdoor](http://www.glassdoor.com/index.htm) 的说法，这些是支付最佳时薪的连锁店。
 

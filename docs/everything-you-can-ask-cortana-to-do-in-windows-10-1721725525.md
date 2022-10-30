@@ -1,6 +1,6 @@
 # Windows 10 中你可以要求 Cortana 做的一切
 
-> 原文:[https://life hacker . com/everything-you-can-ask-cortana-to-do-in-windows-10-1721725525](https://lifehacker.com/everything-you-can-ask-cortana-to-do-in-windows-10-1721725525)
+> 原文：<https://lifehacker.com/everything-you-can-ask-cortana-to-do-in-windows-10-1721725525>
 
 Cortana 无疑是 Windows 10 最酷的新功能之一。你可能已经熟悉了 Google Now 和 Siri 这样的个人助理，但是现在你已经有一个内置在你的桌面上了！以下是如何获取信息，管理你的时间表，甚至运行一些谷歌命令。
 

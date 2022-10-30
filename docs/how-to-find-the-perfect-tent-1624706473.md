@@ -1,6 +1,6 @@
 # 如何找到完美的帐篷
 
-> 原文:[https://gizmodo.com/how-to-find-the-perfect-tent-1624706473](https://gizmodo.com/how-to-find-the-perfect-tent-1624706473)
+> 原文：<https://gizmodo.com/how-to-find-the-perfect-tent-1624706473>
 
 有什么比帐篷更能代表露营吗？无论您是刚刚入门还是希望升级，选项的数量之多令人难以置信。这里有一个快速方便的指南，可以帮你买到合适的帐篷。
 

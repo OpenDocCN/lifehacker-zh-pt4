@@ -1,6 +1,6 @@
 # 当你失业时，该如何处理债务
 
-> 原文:[https://life hacker . com/what-do-about the debt-what-do-what-what-what-do-what-what-what-you-were-lost you-job-1717617977](https://lifehacker.com/what-to-do-about-debt-when-you-ve-lost-your-job-1717617977)
+> 原文：<https://lifehacker.com/what-to-do-about-debt-when-you-ve-lost-your-job-1717617977>
 
 失业对任何人来说都很糟糕，但当你负债时，情况就更糟了。你的债务突破目标受挫，或者更糟，你甚至不知道如何支付最低还款额。此外，不知道账单如何支付会带来压力和焦虑。你可以做几件事来让情况不那么糟糕。
 

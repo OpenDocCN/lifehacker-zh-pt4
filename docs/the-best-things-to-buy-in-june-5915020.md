@@ -1,6 +1,6 @@
 # 六月最好买的东西
 
-> 原文:[https://life hacker . com/the-best-things-to-buy-in-65915020](https://lifehacker.com/the-best-things-to-buy-in-june-5915020)
+> 原文：<https://lifehacker.com/the-best-things-to-buy-in-june-5915020>
 
 感受到夏天的炎热了吗？随着结婚季节和父亲节的到来，6 月是交易的好时机。以下是这个月最值得买的东西。
 

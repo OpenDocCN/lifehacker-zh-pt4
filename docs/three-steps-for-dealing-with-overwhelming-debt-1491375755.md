@@ -1,6 +1,6 @@
 # 处理巨额债务的三个步骤
 
-> 原文:[https://life hacker . com/1491375755](https://lifehacker.com/three-steps-for-dealing-with-overwhelming-debt-1491375755)
+> 原文：<https://lifehacker.com/three-steps-for-dealing-with-overwhelming-debt-1491375755>
 
 很少有什么事情比展望未来却只能看到债务更让人痛苦的了。
 

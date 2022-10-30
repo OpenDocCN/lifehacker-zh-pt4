@@ -1,6 +1,6 @@
 # 另一天，另一个黑客:你应该关心什么安全新闻？
 
-> 原文:[https://life hacker . com/another-day-another-hack-what-security-news-should-yo-1723127575](https://lifehacker.com/another-day-another-hack-what-security-news-should-yo-1723127575)
+> 原文：<https://lifehacker.com/another-day-another-hack-what-security-news-should-yo-1723127575>
 
 似乎每天都有新的漏洞、密码重置或漏洞出现。许多安全新闻的问题是，虽然它们中的许多很重要，但还有一些 [像这样的垃圾新闻](http://www.cnbc.com/2015/08/06/masque-attack-hackers-using-a-major-ios-security-flaw-to-steal-data.html) ，大谈恐慌和缺乏信息，让你只想不去理会。下面就来分解一下哪些是值得关注的，哪些是看到就可以忽略的。
 

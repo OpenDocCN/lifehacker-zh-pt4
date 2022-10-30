@@ -1,6 +1,6 @@
 # 如何更好地保留书籍、文章等信息
 
-> 原文:[https://life hacker . com/how-to-better-retain-information-from books-articles-1674677444](https://lifehacker.com/how-to-better-retain-information-from-books-articles-1674677444)
+> 原文：<https://lifehacker.com/how-to-better-retain-information-from-books-articles-1674677444>
 
 虽然我们可以从书籍、文章、采访和谈话中学到很多有用的信息，但我们很自然地会忘记很多。建立一个系统，定期提醒你已经学到的东西。这里有三个简单的方法可以做到这一点。
 

@@ -1,6 +1,6 @@
 # 如何在 Mac OS X 上安全擦除固态硬盘
 
-> 原文:[https://life hacker . com/how-to-securely-erase-a-solid-state-drive-on-MAC-OS-x-1580603733](https://lifehacker.com/how-to-securely-erase-a-solid-state-drive-on-mac-os-x-1580603733)
+> 原文：<https://lifehacker.com/how-to-securely-erase-a-solid-state-drive-on-mac-os-x-1580603733>
 
 你的电脑有固态硬盘吗？所有新的苹果笔记本电脑都配有固态硬盘，如果你想擦除它，你最好小心点。“已清除”的内存实际上并未被清除；敏感信息可能会被窃取。苹果专家在 [*栈交换*](http://apple.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=apple-119) *提供安全提示。*
 

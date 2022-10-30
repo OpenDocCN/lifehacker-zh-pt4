@@ -1,6 +1,6 @@
 # 用这些壁纸在你的桌面上放一些(假的)行星
 
-> 原文:[https://life hacker . com/put-some-fake-plants-on-your-desktop with these-wall-1506641778](https://lifehacker.com/put-some-fake-planets-on-your-desktop-with-these-wall-1506641778)
+> 原文：<https://lifehacker.com/put-some-fake-planets-on-your-desktop-with-these-wall-1506641778>
 
 [太空图片牛逼](https://lifehacker.com/download-the-entire-archive-of-nasas-astronomy-picture-5774707) 。但是，如果我们的太阳系对你来说还不够刺激——缺少行星相互撞击并爆炸成巨大的火球——这些抽象的太空壁纸应该会让你开心。
 

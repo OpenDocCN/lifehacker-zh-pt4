@@ -1,6 +1,6 @@
 # xfinity 主屏幕
 
-> 原文:[https://lifehacker.com/the-ofinity-home-screen-1709152133](https://lifehacker.com/the-ofinity-home-screen-1709152133)
+> 原文：<https://lifehacker.com/the-ofinity-home-screen-1709152133>
 
 几何很酷。如果你只是对基本形状感兴趣，特别是那些不多于或少于三个边的形状，这个名为 Ofinity 的主屏幕设计可以满足你。
 

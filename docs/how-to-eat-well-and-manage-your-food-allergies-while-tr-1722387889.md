@@ -1,6 +1,6 @@
 # 如何在旅行中吃好并控制你的食物过敏
 
-> 原文:[https://life hacker . com/how-to-eat-well-and-manage-your-food-allergies-while-tr-1722387889](https://lifehacker.com/how-to-eat-well-and-manage-your-food-allergies-while-tr-1722387889)
+> 原文：<https://lifehacker.com/how-to-eat-well-and-manage-your-food-allergies-while-tr-1722387889>
 
 旅行就是探索和沉浸在不同的文化中。你可能不想花时间担心你的饮食。但是当你离开家时，食物过敏和饮食限制可能很难控制。好消息是，你所需要做的只是做好适当的准备，不让它破坏你的旅行。这里有一些你可以准备的方法。
 

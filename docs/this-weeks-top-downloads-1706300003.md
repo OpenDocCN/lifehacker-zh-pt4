@@ -1,6 +1,6 @@
 # 本周热门下载
 
-> 原文:[https://lifehacker.com/this-weeks-top-downloads-1706300003](https://lifehacker.com/this-weeks-top-downloads-1706300003)
+> 原文：<https://lifehacker.com/this-weeks-top-downloads-1706300003>
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 

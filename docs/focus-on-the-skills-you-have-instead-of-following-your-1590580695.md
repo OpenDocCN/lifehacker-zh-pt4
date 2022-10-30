@@ -1,6 +1,6 @@
 # 专注于你拥有的技能，而不是追随你的激情
 
-> 原文:[https://life hacker . com/focus-on-the-skills-you-that-following-your-1590580695](https://lifehacker.com/focus-on-the-skills-you-have-instead-of-following-your-1590580695)
+> 原文：<https://lifehacker.com/focus-on-the-skills-you-have-instead-of-following-your-1590580695>
 
 “追随你的激情”可能是常见的职业指导，但这是个好建议吗？成功也可以来自于完善你已经拥有的技能，而不是担心你的工作是否适合你。
 

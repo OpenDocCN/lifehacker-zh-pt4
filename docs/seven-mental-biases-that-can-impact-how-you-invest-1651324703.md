@@ -1,6 +1,6 @@
 # 影响投资方式的七种心理偏见
 
-> 原文:[https://life hacker . com/seven-mental-bias-that-can-impact-how-you-invest-1651324703](https://lifehacker.com/seven-mental-biases-that-can-impact-how-you-invest-1651324703)
+> 原文：<https://lifehacker.com/seven-mental-biases-that-can-impact-how-you-invest-1651324703>
 
 即使是专业的市场分析师也很难找出可能解释市场涨跌的力量。但有一件事似乎是无可争议的:在投资方面，并不缺乏脑力。
 

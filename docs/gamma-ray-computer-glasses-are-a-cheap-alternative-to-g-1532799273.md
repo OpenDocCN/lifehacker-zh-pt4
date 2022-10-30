@@ -1,6 +1,6 @@
 # 伽马射线电脑眼镜是 Gunnars 的廉价替代品
 
-> 原文:[https://life hacker . com/gamma-ray-computer-glasses-is-a-beautiful-alternative-to-g-1532799273](https://lifehacker.com/gamma-ray-computer-glasses-are-a-cheap-alternative-to-g-1532799273)
+> 原文：<https://lifehacker.com/gamma-ray-computer-glasses-are-a-cheap-alternative-to-g-1532799273>
 
 如果你因整天盯着电脑而感到眼睛疲劳， [电脑眼镜可以帮助](https://lifehacker.com/do-computer-glasses-really-work-5980509) 。然而，像 [贡纳](http://www.gunnars.com/) 这样的流行品牌相当昂贵。如果你想要便宜一点的东西，低于 30 美元的伽马射线眼镜是一个类似的选择。
 

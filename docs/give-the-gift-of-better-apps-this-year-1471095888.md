@@ -1,6 +1,6 @@
 # 今年赠送更好的应用程序
 
-> 原文:[https://life hacker . com/give-the-give-the-gift-of-better-apps-this-year-1471095888](https://lifehacker.com/give-the-gift-of-better-apps-this-year-1471095888)
+> 原文：<https://lifehacker.com/give-the-gift-of-better-apps-this-year-1471095888>
 
 应用程序可能看起来像一个奇怪的礼物，但付费应用程序经常击中你想要的东西的完美礼物甜蜜点，但不想为自己付钱。今年把更好的应用送给[Windows](https://lifehacker.com/give-the-gift-of-better-apps-for-windows-1471098520)[OS X](http://lifehacker.com/give-the-gift-of-better-apps-for-mac-1469992925)[Android](http://lifehacker.com/give-the-gift-of-better-apps-for-android-1471065121)[iOS](http://lifehacker.com/give-the-gift-of-better-apps-for-the-iphone-ipad-and-1469989620)[web](http://lifehacker.com/give-the-gift-of-premium-web-services-1471094665)。
 

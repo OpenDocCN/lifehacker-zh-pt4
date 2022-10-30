@@ -1,6 +1,6 @@
 # 电子游戏如何教会我个人责任
 
-> 原文:[https://life hacker . com/how-video-games-teached-me-personal-account ability-1699984319](https://lifehacker.com/how-video-games-taught-me-personal-accountability-1699984319)
+> 原文：<https://lifehacker.com/how-video-games-taught-me-personal-accountability-1699984319>
 
 责备、拖延、自我伤害——这三件可怕的事情会毁掉你的职业生涯，限制你个人成功的水平。我们经常发现自己求助于不好的模式，尤其是在工作场所。我注意到在我自己的生活中有一个地方看不到这些特征。当我玩电子游戏时。
 

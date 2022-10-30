@@ -1,6 +1,6 @@
 # 成为楼主值得吗？
 
-> 原文:[https://life hacker . com/is-being-a-a-rooster-worth-it-1579689701](https://lifehacker.com/is-becoming-a-landlord-worth-it-1579689701)
+> 原文：<https://lifehacker.com/is-becoming-a-landlord-worth-it-1579689701>
 
 成为房东可以给你带来大量的被动收入，但这仍然需要付出很多努力——更不用说你需要预付的钱了。你从租户那里获得的收入真的值得你付出时间、金钱和努力吗？
 

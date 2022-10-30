@@ -1,6 +1,6 @@
 # 无论如何都要避免的流行运动——除非你做对了
 
-> 原文:[https://gizmodo . com/popular-exercises-to-avoid-in-all-cost-unt-you-do-t-1702870104](https://gizmodo.com/popular-exercises-to-avoid-at-all-costs-unless-you-do-t-1702870104)
+> 原文：<https://gizmodo.com/popular-exercises-to-avoid-at-all-costs-unless-you-do-t-1702870104>
 
 许多流行的锻炼方法都是不正确的，通常是那些一开始就不应该尝试的人做的。这可能会导致受伤和无用的健身房。我们与专家交谈，找出哪些练习最有问题，以及如何正确地做。
 

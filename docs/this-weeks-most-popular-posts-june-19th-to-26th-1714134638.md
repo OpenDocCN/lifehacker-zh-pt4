@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:6 月 19 日至 26 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-June-19-to-26-1714134638](https://lifehacker.com/this-weeks-most-popular-posts-june-19th-to-26th-1714134638)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-june-19th-to-26th-1714134638>
 
 这一周我们 [修复了我们的口臭](https://lifehacker.com/this-video-explains-how-to-finally-get-rid-of-your-bad-1711989055)[吃了点快餐](https://lifehacker.com/the-least-unhealthy-fast-food-items-to-order-when-it-s-1713087851)[被微软](https://lifehacker.com/find-out-if-you-get-a-free-upgrade-to-windows-10-with-t-1713466323)[拿了个性类型](https://lifehacker.com/lets-quit-it-with-the-introvert-extrovert-nonsense-1713772952) 。这里回顾一下。
 

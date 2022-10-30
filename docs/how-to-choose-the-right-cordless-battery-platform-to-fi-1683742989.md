@@ -1,6 +1,6 @@
 # 如何为您的电动工具选择合适的无线电池平台
 
-> 原文:[https://life hacker . com/how-to-choose-the-right-cordless-battery-platform-to-fi-1683742989](https://lifehacker.com/how-to-choose-the-right-cordless-battery-platform-to-fi-1683742989)
+> 原文：<https://lifehacker.com/how-to-choose-the-right-cordless-battery-platform-to-fi-1683742989>
 
 剪断脐带很容易。然而，选择无线电池平台可能要困难得多。从 12 伏到 18 伏，从 prosumer 到 professional，这里有一个方便的指南来选择适合您的电池平台。
 

@@ -1,6 +1,6 @@
 # 网络是骗人的
 
-> 原文:[https://lifehacker.com/networking-is-bullsh-t-1678236165](https://lifehacker.com/networking-is-bullsh-t-1678236165)
+> 原文：<https://lifehacker.com/networking-is-bullsh-t-1678236165>
 
 所以你正努力变得更擅长交际，分发名片，比如免费样品，以推进你的职业发展。我们都试着去做这件事，但是像一个漫无目的的生产机器人一样处理人际关系是扯淡。努力做一个正常人，认识人就好了。
 

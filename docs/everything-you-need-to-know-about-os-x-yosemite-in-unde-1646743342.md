@@ -1,6 +1,6 @@
 # 在三分钟内了解 OS X Yosemite 的所有信息
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-OS-x-Yosemite-in-unde-1646743342](https://lifehacker.com/everything-you-need-to-know-about-os-x-yosemite-in-unde-1646743342)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-os-x-yosemite-in-unde-1646743342>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-OXAvqaa3aFA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-OXAvqaa3aFA&start=0) 
 

@@ -1,6 +1,6 @@
 # 当聪明的个人理财习惯变得愚蠢时
 
-> 原文:[https://life hacker . com/when-smart-personal-finance-habits-being-just-blind-1719428246](https://lifehacker.com/when-smart-personal-finance-habits-become-just-stupid-1719428246)
+> 原文：<https://lifehacker.com/when-smart-personal-finance-habits-become-just-stupid-1719428246>
 
 当你开始整理你的财务时，这是令人兴奋的。你会看到个人理财的基本概念和规则在起作用，过一段时间后，它们就开始有回报了。这让你很容易成为个人理财爱好者。但是即使是最好的财务建议 也会适得其反。
 

@@ -1,6 +1,6 @@
 # 职业聚焦:我作为一名在线会计做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-a-accountant-1703633735](https://lifehacker.com/career-spotlight-what-i-do-as-an-accountant-1703633735)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-an-accountant-1703633735>
 
 当我想象一名会计时，我会想到在烟雾弥漫的办公室里，有人戴着绿色的遮阳帽，周围是一摞摞不屈不挠的文书工作，不停地在加法机上噼啪作响。我的想法可能有点过时了，所以让我们看一个更现代的例子。
 

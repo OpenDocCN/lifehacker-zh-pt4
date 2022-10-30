@@ -1,6 +1,6 @@
 # 50 英寸平板主屏幕
 
-> 原文:[https://life hacker . com/the-fifty-flat-home-screen-1719839456](https://lifehacker.com/the-fifty-flat-home-screen-1719839456)
+> 原文：<https://lifehacker.com/the-fifty-flat-home-screen-1719839456>
 
 现在是夏天！为什么不在你的主屏幕上加点颜色呢？这种设计带有明亮、色彩鲜艳的主屏幕，分为四个不同的部分。
 

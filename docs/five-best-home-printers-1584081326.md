@@ -1,6 +1,6 @@
 # 五款最佳家用打印机
 
-> 原文:[https://lifehacker.com/five-best-home-printers-1584081326](https://lifehacker.com/five-best-home-printers-1584081326)
+> 原文：<https://lifehacker.com/five-best-home-printers-1584081326>
 
 最好的家用打印机有不同的形状和尺寸。有些是快速打印机，有些是多功能打印机，也可以扫描或复印。还有一些是无线网络。所有这些都物有所值。根据 Lifehacker 社区的说法，这里有五款最好的家用打印机。
 

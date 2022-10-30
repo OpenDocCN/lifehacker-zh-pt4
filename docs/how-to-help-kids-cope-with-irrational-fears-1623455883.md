@@ -1,6 +1,6 @@
 # 如何帮助孩子应对不合理的恐惧
 
-> 原文:[https://life hacker . com/how-to-help-kids-应付非理性恐惧-1623455883](https://lifehacker.com/how-to-help-kids-cope-with-irrational-fears-1623455883)
+> 原文：<https://lifehacker.com/how-to-help-kids-cope-with-irrational-fears-1623455883>
 
 作为父母，最无助和沮丧的时刻之一是当我们的孩子有不合理的恐惧时，我们说的任何话似乎都不能帮助他们应对。当然，对于一个孩子来说，害怕黑暗是非常自然的，但是我们怎样才能帮助他们克服这些恐惧呢？
 

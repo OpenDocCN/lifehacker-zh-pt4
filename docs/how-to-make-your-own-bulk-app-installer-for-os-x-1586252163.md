@@ -1,6 +1,6 @@
 # 如何为 OS X 制作自己的批量应用安装程序
 
-> 原文:[https://life hacker . com/how-to-make-your-own-bulk-app-installer-for-OS-x-1586252163](https://lifehacker.com/how-to-make-your-own-bulk-app-installer-for-os-x-1586252163)
+> 原文：<https://lifehacker.com/how-to-make-your-own-bulk-app-installer-for-os-x-1586252163>
 
 设置新 Mac 最糟糕的部分是找到并下载你所有的软件。很费时间，很无聊，通常感觉是在浪费时间。令人欣慰的是，只需一点点设置，你就可以用家酿啤酒和家酿啤酒桶自动完成整个过程，这样你就再也不用做了。
 

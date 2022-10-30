@@ -1,6 +1,6 @@
 # 防止水果褐变的最佳方法
 
-> 原文:[https://life hacker . com/tip-tester-the-best-ways-to-keep-from-browning-1718285160](https://lifehacker.com/tip-tester-the-best-ways-to-keep-fruit-from-browning-1718285160)
+> 原文：<https://lifehacker.com/tip-tester-the-best-ways-to-keep-fruit-from-browning-1718285160>
 
 新鲜水果和蔬菜片是美味又健康的零食，但是其中一些变成棕色和糊状真的让我很不舒服。这种斗争并不新鲜，互联网上有各种各样的方法来防止它，但是很难知道哪种方法值得你花费宝贵的时间，这就是为什么你很幸运有我在身边。
 

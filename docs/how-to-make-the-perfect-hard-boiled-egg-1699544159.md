@@ -1,6 +1,6 @@
 # 如何做出完美的水煮蛋
 
-> 原文:[https://life hacker . com/how-to-make the perfect-hidden-egg-1699544159](https://lifehacker.com/how-to-make-the-perfect-hard-boiled-egg-1699544159)
+> 原文：<https://lifehacker.com/how-to-make-the-perfect-hard-boiled-egg-1699544159>
 
 煮熟的鸡蛋可能不会像炒鸡蛋、煎蛋或荷包蛋那样受到人们的喜爱，但它们是一种多功能的食物，可以为从沙拉到三明治的所有食物添加大量蛋白质——只要你做得对。
 

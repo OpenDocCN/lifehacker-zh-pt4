@@ -1,6 +1,6 @@
 # 如何找到你的最佳工作环境并提高生产力
 
-> 原文:[https://life hacker . com/how-to-find-your ' s optimal-work-environment-to-boost-prod-1630664638](https://lifehacker.com/how-to-find-your-optimal-work-environment-to-boost-prod-1630664638)
+> 原文：<https://lifehacker.com/how-to-find-your-optimal-work-environment-to-boost-prod-1630664638>
 
 不缺乏可以尝试的生产力技巧，但是最佳生产力对每个人来说都有不同的状态。有些人是早起的云雀，有些人是夜猫子，有些人需要安静，而有些人需要音乐。如果你正在努力改进你自己的工作流程，这里有三个领域可以开始尝试。
 

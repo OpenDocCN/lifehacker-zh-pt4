@@ -1,6 +1,6 @@
 # 实时翻译应用 Word Lens 现在是免费的
 
-> 原文:[https://life hacker . com/word-lens-the-real-time-translation-app-is-now-free-1579220195](https://lifehacker.com/word-lens-the-real-time-translation-app-is-now-free-1579220195)
+> 原文：<https://lifehacker.com/word-lens-the-real-time-translation-app-is-now-free-1579220195>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-h2OfQdYrHRs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-h2OfQdYrHRs&start=0) 
 

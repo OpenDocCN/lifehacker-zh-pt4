@@ -1,6 +1,6 @@
 # 用这些壁纸给你的桌面增添一点活力
 
-> 原文:[https://life hacker . com/put-a little-spring-on-your desktop with these-wallpape-1557032699](https://lifehacker.com/put-a-little-spring-on-your-desktop-with-these-wallpape-1557032699)
+> 原文：<https://lifehacker.com/put-a-little-spring-on-your-desktop-with-these-wallpape-1557032699>
 
 春天可能不像是每个人都来了，但从技术上来说，季节已经变了。如果你不能享受户外的天气，你至少可以用这些清新的户外壁纸在你的桌面上享受。
 

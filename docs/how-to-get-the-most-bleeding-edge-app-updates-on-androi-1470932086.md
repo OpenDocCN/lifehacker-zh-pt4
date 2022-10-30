@@ -1,6 +1,6 @@
 # 如何在 Android 上获得最前沿的应用程序更新
 
-> 原文:[https://life hacker . com/how-to-get-the-most-bleeding-edge-app-updates-on-androi-1470932086](https://lifehacker.com/how-to-get-the-most-bleeding-edge-app-updates-on-androi-1470932086)
+> 原文：<https://lifehacker.com/how-to-get-the-most-bleeding-edge-app-updates-on-androi-1470932086>
 
 如果你认为在 Play Store 上点击“全部更新”就意味着你拥有了最新版本的安卓应用，那你就错了。对于喜欢冒险的人来说，有很多方法可以更快地推出甚至是实验性的构建。
 

@@ -1,6 +1,6 @@
 # 使用这些 Finder 提示和技巧，像专业人士一样浏览文件
 
-> 原文:[https://life hacker . com/navigate-files-like-a-pro-with the-finder-tips-and-tr-1463229668](https://lifehacker.com/navigate-files-like-a-pro-with-these-finder-tips-and-tr-1463229668)
+> 原文：<https://lifehacker.com/navigate-files-like-a-pro-with-these-finder-tips-and-tr-1463229668>
 
 Finder 并不是 OS X 最令人兴奋的地方，但它是操作系统导航的支柱。它是你的文件浏览器，你的搜索引擎，你的管理区域，但我们很少有人真正深入了解它能做的一切。考虑到这一点，这里有一些提示和技巧可以让 Finder 发挥更大的作用。
 

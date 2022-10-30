@@ -1,6 +1,6 @@
 # 买车之前，接受你认为你知道的都是错的
 
-> 原文:[https://jalopnik . com/before-buy-a-car-accept-the-all-you-think-you-know 1450795234](https://jalopnik.com/before-buying-a-car-accept-that-all-you-think-you-know-1450795234)
+> 原文：<https://jalopnik.com/before-buying-a-car-accept-that-all-you-think-you-know-1450795234>
 
 柴油对环境有害。普锐斯对环境有益。越大越安全。美国车是垃圾。作为一个经常给那些想在购买新车前获得洞察力的人提建议的人，人们对现代汽车状况的错误认识令人吃惊。纠正你的假设，否则会有被整的风险。
 

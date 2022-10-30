@@ -1,6 +1,6 @@
 # 适用于 Mac 的最佳应用程序启动器
 
-> 原文:[https://life hacker . com/the-best-app-launcher-for-MAC-5835412](https://lifehacker.com/the-best-app-launcher-for-mac-5835412)
+> 原文：<https://lifehacker.com/the-best-app-launcher-for-mac-5835412>
 
 多年来，苹果电脑有大量优秀的应用程序启动器可供选择。阿尔弗雷德是我们的选择，因为它成功地平衡了功能和可用性。任何人都可以拿起它并开始使用它，但是如果你想更深入地研究自动化，还有很大的扩展空间。
 

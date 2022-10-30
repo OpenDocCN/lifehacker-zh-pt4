@@ -1,6 +1,6 @@
 # 纤薄的黑白工作空间
 
-> 原文:[https://life hacker . com/the-slim-black-white-workspace-1705526200](https://lifehacker.com/the-slim-black-and-white-workspace-1705526200)
+> 原文：<https://lifehacker.com/the-slim-black-and-white-workspace-1705526200>
 
 单色配色方案既简单又悦目。这种极简主义的工作空间看起来整洁而时尚，这要归功于有限的颜色和不杂乱。
 

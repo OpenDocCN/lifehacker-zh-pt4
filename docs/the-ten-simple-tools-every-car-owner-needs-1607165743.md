@@ -1,6 +1,6 @@
 # 每位车主都需要的十个简单工具
 
-> 原文:[https://jalopnik . com/the-ten-simple-tools-ever-car-owner-needs-1607165743](https://jalopnik.com/the-ten-simple-tools-every-car-owner-needs-1607165743)
+> 原文：<https://jalopnik.com/the-ten-simple-tools-every-car-owner-needs-1607165743>
 
 你想自己动手修车吗？太好了。这里有 10 种工具，你可以在车库、车道、停车场或任何你修车的地方使用。
 

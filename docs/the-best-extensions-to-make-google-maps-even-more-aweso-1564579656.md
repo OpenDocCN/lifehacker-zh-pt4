@@ -1,6 +1,6 @@
 # 让谷歌地图更棒的最佳扩展
 
-> 原文:[https://life hacker . com/the-best-extensions-to-make-Google-maps-even-more-aweso-1564579656](https://lifehacker.com/the-best-extensions-to-make-google-maps-even-more-aweso-1564579656)
+> 原文：<https://lifehacker.com/the-best-extensions-to-make-google-maps-even-more-aweso-1564579656>
 
 谷歌地图无疑是互联网上最受欢迎和最强大的地图工具之一。不过，它不必独自做所有的跑腿工作。这里有一些最好的扩展，你可以把它们添加到你的浏览器中，让谷歌地图变得更棒。
 

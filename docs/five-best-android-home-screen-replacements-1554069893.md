@@ -1,6 +1,6 @@
 # 五款最佳安卓主屏幕替代品
 
-> 原文:[https://life hacker . com/five-best-Android-home-screen-replacements-1554069893](https://lifehacker.com/five-best-android-home-screen-replacements-1554069893)
+> 原文：<https://lifehacker.com/five-best-android-home-screen-replacements-1554069893>
 
 任何人都可以下载一个启动器，但当你想要一种改变你与 Android 手机交互方式的体验时——特别是一种上下文感知的，并在你需要时显示你需要的信息的体验，你有几个可靠的选项可供选择。这里有五个最好的。
 

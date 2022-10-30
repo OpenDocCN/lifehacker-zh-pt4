@@ -1,6 +1,6 @@
 # 我们如何工作，2015 年:帕特里克·艾伦的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-2015-Patrick-allans-gear-and-productivity-1685250240](https://lifehacker.com/how-we-work-2015-patrick-allans-gear-and-productivity-1685250240)
+> 原文：<https://lifehacker.com/how-we-work-2015-patrick-allans-gear-and-productivity-1685250240>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。今天，我们将难得一见一位狂野的生活黑客作家。小心地靠近，给我一些奖励，你会看到我最喜欢的装备，技巧，以及我用来完成事情的任何东西。
 

@@ -1,6 +1,6 @@
 # 放射性主屏幕
 
-> 原文:[https://life hacker . com/the-radiative-home-screen-1692461585](https://lifehacker.com/the-radioactive-home-screen-1692461585)
+> 原文：<https://lifehacker.com/the-radioactive-home-screen-1692461585>
 
 “放射性”一词可以让人联想到核反应堆和荷马·辛普森。这个主屏幕上布满了钚~~驱动的~~激发的发光绿色。它甚至有深色和浅色两种主题。
 

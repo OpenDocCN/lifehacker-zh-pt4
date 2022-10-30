@@ -1,6 +1,6 @@
 # 省钱电话:如何优化您的订购服务
 
-> 原文:[https://life hacker . com/money-saving-phone-calls-how-to-optimize-your-subscrip-1459531623](https://lifehacker.com/money-saving-phone-calls-how-to-optimize-your-subscrip-1459531623)
+> 原文：<https://lifehacker.com/money-saving-phone-calls-how-to-optimize-your-subscrip-1459531623>
 
 有多少次，你登录自己的信用卡或银行账户，看到不知从哪里冒出来的虚假费用或滞纳金？你想马上打电话给公司，让他们退还你的钱，但你不知道该说些什么来免除费用。所以你就顺其自然了。一次又一次。
 

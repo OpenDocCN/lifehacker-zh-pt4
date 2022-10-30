@@ -1,6 +1,6 @@
 # 我如何保护我的皮肤和眼睛免受刺骨的寒冷？
 
-> 原文:[https://life hacker . com/how-can-I-protect-my-skin-and-eyes-the-bitting-col-1486441993](https://lifehacker.com/how-can-i-protect-my-skin-and-eyes-from-the-biting-col-1486441993)
+> 原文：<https://lifehacker.com/how-can-i-protect-my-skin-and-eyes-from-the-biting-col-1486441993>
 
 亲爱的生活黑客，我喜欢呆在户外，但不是在冬天。寒冷刺骨的风让我的脸变得又红又紧又疼。连我眼睛都干了！在这种恶劣的环境下，我能做些什么来保护自己？
 署名，

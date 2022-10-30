@@ -1,6 +1,6 @@
 # 如何克服决策疲劳
 
-> 原文:[https://life hacker . com/how-to-克服决策疲劳-1462863837](https://lifehacker.com/how-to-overcome-decision-fatigue-1462863837)
+> 原文：<https://lifehacker.com/how-to-overcome-decision-fatigue-1462863837>
 
 你有没有想过为什么杂货店会把这么多冲动购物放在收银台附近？他们把这些东西放在那里，当然是因为它们在那里会卖得很好，但背后的原因是决策疲劳，正如这篇发人深省的文章 所概述的那样*《纽约时报》*。
 

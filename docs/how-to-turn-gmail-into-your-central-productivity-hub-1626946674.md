@@ -1,6 +1,6 @@
 # 如何将 Gmail 变成您的生产力中心
 
-> 原文:[https://life hacker . com/how-to-turn-to-Gmail-into-your-central-productivity-hub-1626946674](https://lifehacker.com/how-to-turn-gmail-into-your-central-productivity-hub-1626946674)
+> 原文：<https://lifehacker.com/how-to-turn-gmail-into-your-central-productivity-hub-1626946674>
 
 我们中的大多数人使用 Gmail 作为我们主要的电子邮件服务，但这还远远不够。Gmail 可以作为你的待办事项列表、你的笔记板、你的提醒、你的列表制作工具，以及你高效工作所需的所有其他东西。
 

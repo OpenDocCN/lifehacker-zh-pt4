@@ -1,6 +1,6 @@
 # 工作日期间进行微型静修的五个宁静的地方
 
-> 原文:[https://life hacker . com/five-peace-places-take-micro-retreats-in-the-1686830527](https://lifehacker.com/five-peaceful-places-to-take-micro-retreats-during-the-1686830527)
+> 原文：<https://lifehacker.com/five-peaceful-places-to-take-micro-retreats-during-the-1686830527>
 
 在正常的工作日，很容易感到缺乏安宁。我们如此渴望和平与宁静，以至于我们会花钱在一个宁静的地方度过时光 。但是到处都有宁静的地方，非常适合快速充电和脱离工作。这里有一些你可以在休息时去的地方来恢复精力。
 

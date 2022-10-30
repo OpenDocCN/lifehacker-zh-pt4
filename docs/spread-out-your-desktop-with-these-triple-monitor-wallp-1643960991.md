@@ -1,6 +1,6 @@
 # 用这些三显示器壁纸铺开你的桌面
 
-> 原文:[https://life hacker . com/spread-out-of-your-desktop with this-triple-monitor-wallp-1643960991](https://lifehacker.com/spread-out-your-desktop-with-these-triple-monitor-wallp-1643960991)
+> 原文：<https://lifehacker.com/spread-out-your-desktop-with-these-triple-monitor-wallp-1643960991>
 
 [更多的显示器不一定等于更高的生产力](http://lifehacker.com/seven-productivity-myths-debunked-by-science-and-comm-5965826) ，但肯定等于 [更牛逼](https://lifehacker.com/make-the-most-of-your-multiple-monitors-in-windows-5526025) 。这里有一些壁纸，你可以伸展到两个甚至三个屏幕。
 

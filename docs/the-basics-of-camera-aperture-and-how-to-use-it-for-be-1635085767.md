@@ -1,6 +1,6 @@
 # 相机光圈的基本知识，以及如何使用它来拍摄更好的照片
 
-> 原文:[https://life hacker . com/the-basics-of-camera-aperture and-how-to-use-it-for-be-1635085767](https://lifehacker.com/the-basics-of-camera-aperture-and-how-to-use-it-for-be-1635085767)
+> 原文：<https://lifehacker.com/the-basics-of-camera-aperture-and-how-to-use-it-for-be-1635085767>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-cMhsRZUG3FY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-cMhsRZUG3FY&start=0) 
 

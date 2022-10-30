@@ -1,6 +1,6 @@
 # 如何找到适合自己的健身房
 
-> 原文:[https://life hacker . com/how-to-find-the-right-of-gym-for-you 1709198069](https://lifehacker.com/how-to-find-the-right-gym-for-you-1709198069)
+> 原文：<https://lifehacker.com/how-to-find-the-right-gym-for-you-1709198069>
 
 良好的 [锻炼计划和饮食](http://vitals.lifehacker.com/exercise-vs-diet-which-is-more-important-for-weight-l-1677532039) 无疑是你健身成功的重要部分。但它们不是唯一的因素——你选择的健身房也会对你的成功产生很大的影响。
 

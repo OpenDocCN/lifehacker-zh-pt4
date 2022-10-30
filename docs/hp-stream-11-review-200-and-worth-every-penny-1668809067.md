@@ -1,6 +1,6 @@
 # 惠普流 11 审查:200 美元，值得每一分钱
 
-> 原文:[https://gizmodo . com/HP-stream-11-review-200-and-worth-per-penny-1668809067](https://gizmodo.com/hp-stream-11-review-200-and-worth-every-penny-1668809067)
+> 原文：<https://gizmodo.com/hp-stream-11-review-200-and-worth-every-penny-1668809067>
 
 我刚刚收集完市面上最好的 chrome book，但是除了谷歌的浏览器，廉价计算世界还有更多。惠普 Stream 是一款 200 美元的*全视窗*笔记本电脑，它出奇的好。
 

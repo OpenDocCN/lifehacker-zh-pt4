@@ -1,6 +1,6 @@
 # 三星 Gear Fit 评论:一款漂亮的腕表被浪费了
 
-> 原文:[https://gizmodo . com/Samsung-gear-fit-review-a-beautiful-wris table-gone-to-1563715416](https://gizmodo.com/samsung-gear-fit-review-a-beautiful-wristable-gone-to-1563715416)
+> 原文：<https://gizmodo.com/samsung-gear-fit-review-a-beautiful-wristable-gone-to-1563715416>
 
 三星的 Gear Fit 完全有可能成为迄今为止你能拥有的最好的活动追踪器。它不是。一点也不。没有什么比未实现的潜力更让人难过的了。
 

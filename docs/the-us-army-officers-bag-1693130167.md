@@ -1,6 +1,6 @@
 # 美国军官的包
 
-> 原文:[https://lifehacker.com/the-us-army-officers-bag-1693130167](https://lifehacker.com/the-us-army-officers-bag-1693130167)
+> 原文：<https://lifehacker.com/the-us-army-officers-bag-1693130167>
 
 当你为陆军工程队工作时，你需要做好一切准备。在酷工具上，Pat Ripton 分享了他的包，里面装满了各种有用的东西。
 

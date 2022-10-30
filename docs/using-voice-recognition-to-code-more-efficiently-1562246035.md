@@ -1,6 +1,6 @@
 # 我可以使用语音识别更有效地编码吗？
 
-> 原文:[https://life hacker . com/using-voice-recognition-to-code-more-efficiency-1562246035](https://lifehacker.com/using-voice-recognition-to-code-more-efficiently-1562246035)
+> 原文：<https://lifehacker.com/using-voice-recognition-to-code-more-efficiently-1562246035>
 
 语音识别正在变得越来越好，它越来越多地不仅仅用于提醒和电子邮件。但是你能用它来帮助你编码吗？也许吧。贫嘴的编码员在 [*栈交换*](http://productivity.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=productivity-113) *处插话。*
 

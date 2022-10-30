@@ -1,6 +1,6 @@
 # 满足各种需求的最佳健身追踪器
 
-> 原文:[https://gizmodo . com/the-best-fitness-tracker-for-every-need-1673000514](https://gizmodo.com/the-best-fitness-tracker-for-every-need-1673000514)
+> 原文：<https://gizmodo.com/the-best-fitness-tracker-for-every-need-1673000514>
 
 像你们许多人一样，我在电脑前工作。它们是强大的设备，但它们也会吸走你的求生意志，骗你永远不要起床出门。诸如此类的原因就是健身追踪器被发明的原因。
 

@@ -1,6 +1,6 @@
 # 重新校准你的现实
 
-> 原文:[https://lifehacker.com/recalibrate-your-reality-5891564](https://lifehacker.com/recalibrate-your-reality-5891564)
+> 原文：<https://lifehacker.com/recalibrate-your-reality-5891564>
 
 希望你更好/更聪明/更强壮/更快？当然，努力工作会有帮助，但事实是，你的自我认知可能会妨碍你。我们都有自己的现实，而这些现实并不完美。你的自我认知非常有限，改变你对世界的看法会对你的生产力、创造力和幸福感产生奇迹。以下是如何重新校准你的现实。
 

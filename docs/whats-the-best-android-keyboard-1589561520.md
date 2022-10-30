@@ -1,6 +1,6 @@
 # 最好用的安卓键盘是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-Android-keyboard-1589561520](https://lifehacker.com/whats-the-best-android-keyboard-1589561520)
+> 原文：<https://lifehacker.com/whats-the-best-android-keyboard-1589561520>
 
 Android 的一大优点是你可以使用任何适合你需求的键盘。自定义词典，主题，布局，无论你需要什么，有一个键盘来匹配。本周，我们想知道你认为哪些是最好的。
 

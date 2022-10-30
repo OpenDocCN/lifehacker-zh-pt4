@@ -1,6 +1,6 @@
 # 五大最佳定制电脑制造商
 
-> 原文:[https://life hacker . com/five-best-custom-PC-builders-1664766332](https://lifehacker.com/five-best-custom-pc-builders-1664766332)
+> 原文：<https://lifehacker.com/five-best-custom-pc-builders-1664766332>
 
 我们都赞成建造自己的电脑。我们已经向你展示了 和 [如何给你一些构建](http://lifehacker.com/the-best-pcs-you-can-build-for-300-600-and-1200-5840963) 。然而，如果您正在寻找一台高端的钻机，但还附带支持、保修和监督等额外待遇，而不是您的时间和故障排除，我们有五家定制 PC 制造商将根据您的提名为您打造该钻机。
 

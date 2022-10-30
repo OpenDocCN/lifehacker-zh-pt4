@@ -1,6 +1,6 @@
 # 烹饪肉类的五个基本规则
 
-> 原文:[https://life hacker . com/the-five-basic-rules-for-cooking-meat-1655470140](https://lifehacker.com/the-five-basic-rules-for-cooking-meat-1655470140)
+> 原文：<https://lifehacker.com/the-five-basic-rules-for-cooking-meat-1655470140>
 
 你可以用很多不同的方法烹饪肉类，从烘烤到煎烤到烧烤。然而，有五个基本原则适用于肉类和家禽的绝大多数技术。以下是我们在试验厨房烹饪多年后的发现。
 

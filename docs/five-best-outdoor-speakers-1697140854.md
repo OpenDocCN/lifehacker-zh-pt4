@@ -1,6 +1,6 @@
 # 五款最佳户外扬声器
 
-> 原文:[https://life hacker . com/five-best-outdoor-speakers-1697140854](https://lifehacker.com/five-best-outdoor-speakers-1697140854)
+> 原文：<https://lifehacker.com/five-best-outdoor-speakers-1697140854>
 
 温暖的天气意味着这是一个外出的好时机，生火烧烤，邀请朋友来家里，也许当每个人都在外面闲逛的时候听听音乐。不过，要做到这一点，你需要一些坚固的户外耐候扬声器。本周，我们将根据你们的提名选出五位最佳选手。
 

@@ -1,6 +1,6 @@
 # 屏住呼吸 20 分钟的秘密
 
-> 原文:[https://gizmodo . com/the-secret-to-屏息 20 分钟-1542451520](https://gizmodo.com/the-secret-to-holding-your-breath-for-20-minutes-1542451520)
+> 原文：<https://gizmodo.com/the-secret-to-holding-your-breath-for-20-minutes-1542451520>
 
 魔术师兼特技演员哈里·胡迪尼以能屏住呼吸超过三分钟而闻名。但是今天，竞争激烈的屏气潜水者可以从一肺空气中挤出 10 分钟、15 分钟甚至 20 分钟。这些潜水员是如何做到的——你如何训练屏气更长时间？
 

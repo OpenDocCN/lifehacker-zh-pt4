@@ -1,6 +1,6 @@
 # 使用 Kindle 进行研究的学生指南
 
-> 原文:[https://life hacker . com/a-students-guide-to-use-the-kindle-for-research-1502276466](https://lifehacker.com/a-students-guide-to-using-the-kindle-for-research-1502276466)
+> 原文：<https://lifehacker.com/a-students-guide-to-using-the-kindle-for-research-1502276466>
 
 Kindle 非常适合阅读临时书籍，但你可能不知道它对学生来说也是一个非常棒的工具。如果使用得当，它本质上可以作为一个便携式工具，将你所有的书籍、笔记和研究放在一个地方。以下是如何让 Kindle 成为你在学校的新朋友。
 

@@ -1,6 +1,6 @@
 # 你怎么知道你和你的伴侣在性方面是否和谐？
 
-> 原文:[https://life hacker . com/how-do-you-know-if-you-re-sex-compatible-with-your-1595493776](https://lifehacker.com/how-do-you-know-if-you-re-sexually-compatible-with-your-1595493776)
+> 原文：<https://lifehacker.com/how-do-you-know-if-you-re-sexually-compatible-with-your-1595493776>
 
 作为一名性治疗师，我听说过无数对夫妻在性兼容性上苦苦挣扎。一方比另一方更想要，或者一方比另一方喜欢不同的东西。性感觉脱节，伴侣感觉不在一个页面上。
 

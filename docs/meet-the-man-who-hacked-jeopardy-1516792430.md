@@ -1,6 +1,6 @@
 # 见见黑了 Jeopardy 的人
 
-> 原文:[https://kotaku . com/meet-the-man-who-hacked-jeopardy-1516792430](https://kotaku.com/meet-the-man-who-hacked-jeopardy-1516792430)
+> 原文：<https://kotaku.com/meet-the-man-who-hacked-jeopardy-1516792430>
 
 当亚瑟·朱接到电话说他被选中参加 *Jeopardy* 节目时，他的第一步是彻底而果断的:他去谷歌上输入“jeopardy strategy”
 

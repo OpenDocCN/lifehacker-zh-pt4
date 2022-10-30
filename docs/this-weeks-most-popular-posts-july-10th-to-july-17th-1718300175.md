@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:7 月 10 日至 7 月 17 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-July-10-to-July-17-1718300175](https://lifehacker.com/this-weeks-most-popular-posts-july-10th-to-july-17th-1718300175)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-july-10th-to-july-17th-1718300175>
 
 本周，我们学习了如何支持与抑郁症作斗争的伴侣，与小工具视频制作人 MKBHD 聊天，看了看最新的苹果测试软件，等等。这里回顾一下。
 

@@ -1,6 +1,6 @@
 # 如何处理工作中的大混乱
 
-> 原文:[https://life hacker . com/how-to-handle-big-time-mess-ups-in-work-1623238231](https://lifehacker.com/how-to-handle-big-time-mess-ups-at-work-1623238231)
+> 原文：<https://lifehacker.com/how-to-handle-big-time-mess-ups-at-work-1623238231>
 
 犯错是人之常情，有时当我们意识到自己在工作中犯了错误时，我们会发现自己不知该如何处理。以下是你可以采取的措施，尽可能地收拾残局，减少长期损失。
 

@@ -1,6 +1,6 @@
 # 请教专家:关于定制 PC 构建的一切
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-custom-PC-building-1680403516](https://lifehacker.com/ask-an-expert-all-about-custom-pc-building-1680403516)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-custom-pc-building-1680403516>
 
 没有一个认真对待自己硬件的人会买现成的机器；他们挑选符合他们需求的最佳组件——某个显卡、某个 CPU，也许还有一个疯狂的水冷系统来保持冷却。而这里讨论 PC 构建的是 Linus Sebastian，你可能从 [LinusTechTips](https://www.youtube.com/user/LinusTechTips) 中知道他。
 

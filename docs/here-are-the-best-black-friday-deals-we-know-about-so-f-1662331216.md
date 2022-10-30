@@ -1,6 +1,6 @@
 # 以下是我们目前所知的最好的黑色星期五交易
 
-> 原文:[https://gizmodo . com/here-is-the-best-black-Friday-deals-we-know-about-so-f-1662331216](https://gizmodo.com/here-are-the-best-black-friday-deals-we-know-about-so-f-1662331216)
+> 原文：<https://gizmodo.com/here-are-the-best-black-friday-deals-we-know-about-so-f-1662331216>
 
 我们已经在我们的黑色星期五中心公布了目前为止最好的交易。当然，随着事情的进展，我们预计会出现价格匹配、降价和替代选择，我们会不断更新。
 

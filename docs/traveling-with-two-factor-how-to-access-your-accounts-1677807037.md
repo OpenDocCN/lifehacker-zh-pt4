@@ -1,6 +1,6 @@
 # 双因素旅行:如何进入你的海外账户
 
-> 原文:[https://gizmodo . com/traveling-with-two-factor-how-access-your-accounts-1677807037](https://gizmodo.com/traveling-with-two-factor-how-to-access-your-accounts-1677807037)
+> 原文：<https://gizmodo.com/traveling-with-two-factor-how-to-access-your-accounts-1677807037>
 
 随着每周都有大量的安全攻击出现，双因素身份认证已经成为现代的必需品。但是，离开这个国家并获得访问代码可能比仅仅等待一条短信要困难得多。以下是你下次旅行前需要了解和做的事情。
 

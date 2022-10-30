@@ -1,6 +1,6 @@
 # 过时的退休规则你应该重新考虑
 
-> 原文:[https://life hacker . com/outsided-retirement-rules-you-should-reference-1611455024](https://lifehacker.com/outdated-retirement-rules-you-should-reconsider-1611455024)
+> 原文：<https://lifehacker.com/outdated-retirement-rules-you-should-reconsider-1611455024>
 
 我对财务经验又爱又恨。一方面，我认识到不是每个人都会花足够多的时间去思考和研究金融话题，经验法则为他们提供了易于记忆的指引。但是另一方面，这些类型的指导方针通常是不准确的，过时的，或者完全错误的——并且遵循它们会破坏你正在努力实现的目标。
 

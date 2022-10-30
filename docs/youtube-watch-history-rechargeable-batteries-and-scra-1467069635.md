@@ -1,6 +1,6 @@
 # YouTube 观看历史、充电电池和炒鸡蛋
 
-> 原文:[https://life hacker . com/YouTube-watch-history-充电电池-和-scra-1467069635](https://lifehacker.com/youtube-watch-history-rechargeable-batteries-and-scra-1467069635)
+> 原文：<https://lifehacker.com/youtube-watch-history-rechargeable-batteries-and-scra-1467069635>
 
 读者们为你的 YouTube 观看历史提供了他们最好的建议，保留成对的可充电电池，做蛋壳内的炒鸡蛋。
 

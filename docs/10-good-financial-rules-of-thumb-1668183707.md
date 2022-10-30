@@ -1,6 +1,6 @@
 # 10 条最佳财务经验法则
 
-> 原文:[https://life hacker . com/10-good-financial-rules-thumb-1668183707](https://lifehacker.com/10-good-financial-rules-of-thumb-1668183707)
+> 原文：<https://lifehacker.com/10-good-financial-rules-of-thumb-1668183707>
 
 经验法则是让你的财务步入正轨的一个很好的起点，所以我们总结了十条好的建议。然而，由于每个人的情况不同，我们也包括了这些规则最适用的场景。
 

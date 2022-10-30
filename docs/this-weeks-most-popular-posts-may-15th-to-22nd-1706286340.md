@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:5 月 15 日至 22 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-may-15-to-22-1706286340](https://lifehacker.com/this-weeks-most-popular-posts-may-15th-to-22nd-1706286340)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-may-15th-to-22nd-1706286340>
 
 本周我们学习了 [为什么 Chrome 如此抢手](https://lifehacker.com/why-chrome-uses-so-much-freaking-ram-1702537477)[【dad BOD】真正来源于](http://vitals.lifehacker.com/what-causes-the-dadbod-and-how-to-reverse-it-1704598337)[游戏鼠标的生产力之美](http://lifehacker.com/why-i-started-using-gaming-peripherals-to-get-real-work-1705459320) ，以及 [如何正确锁定你的自行车](http://lifehacker.com/the-best-bike-lock-and-how-to-use-it-according-to-bi-1705302129) 。这里回顾一下。
 

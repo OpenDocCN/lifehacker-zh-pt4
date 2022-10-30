@@ -1,6 +1,6 @@
 # 像 Medium 这样的新博客平台是怎么回事？我应该用一个吗？
 
-> 原文:[https://life hacker . com/whats-with-new-blogging-platforms-like-medium-should-1518292181](https://lifehacker.com/whats-with-new-blogging-platforms-like-medium-should-1518292181)
+> 原文：<https://lifehacker.com/whats-with-new-blogging-platforms-like-medium-should-1518292181>
 
 亲爱的 Lifehacker，
 我不断看到这些新的博客平台如和 [Svbtle](https://svbtle.com/) 般涌现。为什么我会使用这些新平台中的一个，而不是像 Wordpress 这样更强大的经典？

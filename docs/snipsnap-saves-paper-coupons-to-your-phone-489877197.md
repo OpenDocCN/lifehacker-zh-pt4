@@ -1,6 +1,6 @@
 # SnipSnap 将纸质优惠券保存到您的手机上
 
-> 原文:[https://life hacker . com/snip snap-saves-paper-coupons-to-your-phone-489877197](https://lifehacker.com/snipsnap-saves-paper-coupons-to-your-phone-489877197)
+> 原文：<https://lifehacker.com/snipsnap-saves-paper-coupons-to-your-phone-489877197>
 
 iOS/Android:如果你去购物时从来不记得带优惠券，SnipSnap 是一个跨平台的应用程序，可以在智能手机上数字化和组织优惠券。
 

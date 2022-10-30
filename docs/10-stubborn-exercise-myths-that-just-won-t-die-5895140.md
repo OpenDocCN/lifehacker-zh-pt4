@@ -1,6 +1,6 @@
 # 10 个顽固不化的锻炼神话
 
-> 原文:[https://life hacker . com/10-nevery-exercise-myths-that-just-won-t-die-5895140](https://lifehacker.com/10-stubborn-exercise-myths-that-just-won-t-die-5895140)
+> 原文：<https://lifehacker.com/10-stubborn-exercise-myths-that-just-won-t-die-5895140>
 
 “一分耕耘，一分收获！”"没有补品，你永远也不会变胖。""仰卧起坐是六块腹肌的关键！"市场上关于健康锻炼的问题和半真半假的说法似乎比明确、确定的事实要多——但仅在美国，锻炼行业就是一个价值数十亿美元的行业，部分建立在销售小工具和 DVD 的基础上，这些小工具和 DVD 对渴望减肥或看起来有吸引力的人有着令人难以置信的宣传。与此同时，好的锻炼计划和简单的真理潜伏在背景中，等待它们发光。所有这些导致了大量关于锻炼的错误信息，虽然每个人的现实都不同，但我们正在挑战一些普遍持有的锻炼神话，我们有科学支持我们。让我们开始吧。
 

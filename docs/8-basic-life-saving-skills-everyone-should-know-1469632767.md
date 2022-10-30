@@ -1,6 +1,6 @@
 # 每个人都应该知道的 8 个基本救生技能
 
-> 原文:[https://life hacker . com/8-基本-救生-技能-每个人都应该知道-1469632767](https://lifehacker.com/8-basic-life-saving-skills-everyone-should-know-1469632767)
+> 原文：<https://lifehacker.com/8-basic-life-saving-skills-everyone-should-know-1469632767>
 
 这些年来，我们精选了大量的 [生存](http://lifehacker.com/tag/survival) 和 [MacGyver 提示](http://lifehacker.com/tag/macgyver-tips) 可以帮助你摆脱困境，但是如果你旁边有其他人正在经历紧急情况呢？当有人窒息或晕倒时，不要只是站在那里！知道在这些生死攸关的情况下该怎么做。
 

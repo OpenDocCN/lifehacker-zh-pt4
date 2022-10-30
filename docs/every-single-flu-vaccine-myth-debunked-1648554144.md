@@ -1,6 +1,6 @@
 # 每个流感疫苗的神话都被揭穿了
 
-> 原文:[https://gizmodo . com/every-single-流感疫苗-神话-揭穿-1648554144](https://gizmodo.com/every-single-flu-vaccine-myth-debunked-1648554144)
+> 原文：<https://gizmodo.com/every-single-flu-vaccine-myth-debunked-1648554144>
 
 这里广泛分享的是围绕 [流感疫苗](http://io9.com/dont-forget-to-get-your-flu-shot-1402004133) 的最常见的神话和误解的集合，用清晰透彻的解释逐点揭穿。
 

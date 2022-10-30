@@ -1,6 +1,6 @@
 # 如何制作完美的性爱播放列表(加上一些歌曲推荐)
 
-> 原文:[https://life hacker . com/how-to-craft-the-perfect-sex-playlist-plus-some-song-r-1719840177](https://lifehacker.com/how-to-craft-the-perfect-sex-playlist-plus-some-song-r-1719840177)
+> 原文：<https://lifehacker.com/how-to-craft-the-perfect-sex-playlist-plus-some-song-r-1719840177>
 
 正确的配乐有能力将性爱从美好提升到令人难以置信的程度。但是如果你曾经和一个放着明显是精心安排的“性播放列表”的人交往过，你也知道音乐有可能让你的遭遇有点尴尬。下面是如何实现前者而不是后者。
 

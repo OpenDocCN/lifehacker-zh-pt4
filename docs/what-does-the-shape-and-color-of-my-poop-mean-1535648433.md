@@ -1,6 +1,6 @@
 # 我便便的形状和颜色是什么意思？
 
-> 原文:[https://life hacker . com/what-the-shape-and-color-of-my-poop-mean-1535648433](https://lifehacker.com/what-does-the-shape-and-color-of-my-poop-mean-1535648433)
+> 原文：<https://lifehacker.com/what-does-the-shape-and-color-of-my-poop-mean-1535648433>
 
 亲爱的 Lifehacker，和大多数人一样，我这辈子也拉了不少屎。通常情况下，事情都遵循一个相当可预测的模式，但我偶尔会看到不寻常的颜色和形状。我没有感觉不好或任何不适，但我担心这些变化可能意味着什么。我怎么知道什么时候我应该关心我便便的形状和颜色？
 

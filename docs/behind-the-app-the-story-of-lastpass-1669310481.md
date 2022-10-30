@@ -1,6 +1,6 @@
 # 应用背后:LastPass 的故事
 
-> 原文:[https://life hacker . com/behind-the-app-the-story-of-lastpass-1669310481](https://lifehacker.com/behind-the-app-the-story-of-lastpass-1669310481)
+> 原文：<https://lifehacker.com/behind-the-app-the-story-of-lastpass-1669310481>
 
 使用安全、复杂的密码非常不方便，因为最安全的密码 [是那些你不记得的](https://lifehacker.com/the-only-secure-password-is-the-one-you-can-t-remember-5785420) 。随着引人注目的安全漏洞变得司空见惯，许多人都在寻找安全管理其密码的解决方案。像 [LastPass](http://lifehacker.com/the-intermediate-guide-to-mastering-passwords-with-last-5645162) 。
 

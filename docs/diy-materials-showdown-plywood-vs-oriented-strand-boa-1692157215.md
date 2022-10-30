@@ -1,6 +1,6 @@
 # DIY 材料摊牌:胶合板与定向刨花板
 
-> 原文:[https://life hacker . com/DIY-materials-摊牌-胶合板-定向-钢绞线-boa-1692157215](https://lifehacker.com/diy-materials-showdown-plywood-vs-oriented-strand-boa-1692157215)
+> 原文：<https://lifehacker.com/diy-materials-showdown-plywood-vs-oriented-strand-boa-1692157215>
 
 胶合板曾经是墙壁覆板和地板材料的王者，但 70 年代后期推出的定向刨花板(OSB)现在是最受欢迎的。但是两者都有各自的优点和缺点——那么您应该在您的项目中使用哪一种呢？
 

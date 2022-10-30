@@ -1,6 +1,6 @@
 # iPhone 6 评论:这部手机把我吸引回了苹果
 
-> 原文:[https://gizmodo . com/iphone-6-review-the-phone-that-looked-me-back-to-apple-1638424371](https://gizmodo.com/iphone-6-review-the-phone-that-lured-me-back-to-apple-1638424371)
+> 原文：<https://gizmodo.com/iphone-6-review-the-phone-that-lured-me-back-to-apple-1638424371>
 
 我宁愿先说清楚:iPhone 6 是你能买到的最好的智能手机。事实上，比那更好。iPhone 6 说服我换回苹果。
 

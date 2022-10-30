@@ -1,6 +1,6 @@
 # 初来乍到者的城市生存指南:如何在城市中做好准备
 
-> 原文:[https://life hacker . com/urban-survival-guide-how-to-always-be-prepared-in-the-the-1696181455](https://lifehacker.com/urban-survival-guide-how-to-always-be-prepared-in-the-1696181455)
+> 原文：<https://lifehacker.com/urban-survival-guide-how-to-always-be-prepared-in-the-1696181455>
 
 如果你在森林里迷路了，童子军可以教你如何生存。但是现在，有时候你更有可能会在一个大城市迷路，这也同样令人害怕。当你需要打车而不是点火时，这里有一些方法。
 

@@ -1,6 +1,6 @@
 # 我们新的 iPhone Liveblog 从现在开始
 
-> 原文:[https://gizmodo . com/our-iphone-event-live blog-starts-right-here-on-9-10-at-1277167537](https://gizmodo.com/our-iphone-event-liveblog-starts-right-here-on-9-10-at-1277167537)
+> 原文：<https://gizmodo.com/our-iphone-event-liveblog-starts-right-here-on-9-10-at-1277167537>
 
 欢迎朋友们！再过几个小时，苹果就要揭开新款 iPhone 5S 和全新低价 iPhone 5C 的包装了。我们会在这里现场直播。加入我们吧！
 

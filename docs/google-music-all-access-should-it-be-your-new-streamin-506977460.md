@@ -1,6 +1,6 @@
 # Google Music All Access:它应该成为你的新流媒体服务吗？
 
-> 原文:[https://life hacker . com/Google-music-all-access-should-it-be-your-new-stream in-506977460](https://lifehacker.com/google-music-all-access-should-it-be-your-new-streamin-506977460)
+> 原文：<https://lifehacker.com/google-music-all-access-should-it-be-your-new-streamin-506977460>
 
 今天，谷歌发布了 Google Play Music All Access，这是一项订阅音乐和互联网广播服务，为数百万首歌曲打开了大门，所有这些歌曲都与你已经拥有的音乐混合在一起。听起来很棒，价格也很有竞争力，但你应该放弃目前的流媒体服务吗？让我们来看看。
 

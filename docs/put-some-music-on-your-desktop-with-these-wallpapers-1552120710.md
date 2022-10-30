@@ -1,6 +1,6 @@
 # 用这些壁纸在你的桌面上放些音乐
 
-> 原文:[https://life hacker . com/put-some-music-on-your desktop with these-wallpapers-1552120710](https://lifehacker.com/put-some-music-on-your-desktop-with-these-wallpapers-1552120710)
+> 原文：<https://lifehacker.com/put-some-music-on-your-desktop-with-these-wallpapers-1552120710>
 
 乐器不仅有听觉上的吸引力，还有视觉上的吸引力。虽然你不能把一把很棒的吉他或架子鼓塞进你的电脑，但你可以把这些很棒的音乐主题壁纸放在你的桌面上。
 

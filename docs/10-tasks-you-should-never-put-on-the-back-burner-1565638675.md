@@ -1,6 +1,6 @@
 # 你永远不应该搁置的 10 项任务
 
-> 原文:[https://life hacker . com/10-tasks-you-should-never-put-on-back-burner-1565638675](https://lifehacker.com/10-tasks-you-should-never-put-on-the-back-burner-1565638675)
+> 原文：<https://lifehacker.com/10-tasks-you-should-never-put-on-the-back-burner-1565638675>
 
 当事情变得忙碌时，我们都有被推迟的任务。有时项目会因为必要而延迟。如果你正在推迟正确的事情，这会是减少你工作量的一个好办法。但是如果你在错误的任务上拖延，你可能会给自己带来麻烦。那么，你应该避免搁置哪些任务呢？
 

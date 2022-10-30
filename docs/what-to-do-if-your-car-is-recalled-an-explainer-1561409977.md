@@ -1,6 +1,6 @@
 # 如果你的车被召回该怎么办:解释者
 
-> 原文:[https://jalopnik . com/what-do-if-your ' s car ' s-recall-an-explainer-1561409977](https://jalopnik.com/what-to-do-if-your-car-is-recalled-an-explainer-1561409977)
+> 原文：<https://jalopnik.com/what-to-do-if-your-car-is-recalled-an-explainer-1561409977>
 
 继通用汽车[上个月召回超过 500 万辆汽车，丰田汽车](http://jalopnik.com/nhtsa-fines-gm-28-000-over-ignition-switch-recall-1560996853) [今天召回超过 600 万辆汽车](http://jalopnik.com/toyota-recalls-6-76-million-vehicles-because-everyone-1561254559) 之后，你可能只想假设，如果你在任何时候都在汽车的 25 英里范围内，就会有东西 [被召回](https://oppositelock.jalopnik.com/more-than-10-7-million-cars-have-been-recalled-so-far-t-1561057194) 。接下来会发生什么。
 

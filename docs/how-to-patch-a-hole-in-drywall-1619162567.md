@@ -1,6 +1,6 @@
 # 如何修补石膏板上的洞
 
-> 原文:[https://life hacker . com/how-to-patch-a-hole-in-dry wall-1619162567](https://lifehacker.com/how-to-patch-a-hole-in-drywall-1619162567)
+> 原文：<https://lifehacker.com/how-to-patch-a-hole-in-drywall-1619162567>
 
 如果你发现自己正盯着一面原本完好无损的墙壁上的一个洞，不要担心。修补干墙比看起来容易:你只需要合适的工具和一些基本原则。
 

@@ -1,6 +1,6 @@
 # 每个人都应该知道的十大法律权利和问题
 
-> 原文:[https://life hacker . com/top-10-legal-rights-and-issues-every one-should-know-ABO-1631133677](https://lifehacker.com/top-10-legal-rights-and-issues-everyone-should-know-abo-1631133677)
+> 原文：<https://lifehacker.com/top-10-legal-rights-and-issues-everyone-should-know-abo-1631133677>
 
 了解管理我们生活的法律是我们的公民义务，无论我们是去一个不同的城市旅行，还是仅仅想举办一次车库拍卖 。然而，法律问题和我们的权利并不总是很清楚，所以让我们来看看可能影响你的最重要的问题。
 

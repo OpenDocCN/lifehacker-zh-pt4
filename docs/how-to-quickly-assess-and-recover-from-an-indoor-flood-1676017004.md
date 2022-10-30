@@ -1,6 +1,6 @@
 # 如何快速评估室内水灾并从中恢复
 
-> 原文:[https://life hacker . com/how-to-fast-assessed-and-recover-from-a-in-a-indoor-flood-1676017004](https://lifehacker.com/how-to-quickly-assess-and-recover-from-an-indoor-flood-1676017004)
+> 原文：<https://lifehacker.com/how-to-quickly-assess-and-recover-from-an-indoor-flood-1676017004>
 
 室内洪水会给你的家造成价值数千美元的损失，清理起来简直是一场噩梦。以下是当你发现水渍时应该做的事情，以及如何安全地开始修复过程。
 

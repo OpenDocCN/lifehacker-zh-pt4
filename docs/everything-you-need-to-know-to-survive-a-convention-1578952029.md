@@ -1,6 +1,6 @@
 # 你需要知道的在会议中生存的一切
 
-> 原文:[https://life hacker . com/everything-you-need-to-know-to-survive-a-conventi on-1578952029](https://lifehacker.com/everything-you-need-to-know-to-survive-a-convention-1578952029)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-to-survive-a-convention-1578952029>
 
 当夏天开始时，大会出来玩(直到圣诞节才停止)。无论你是摩拳擦掌准备 [动漫大会](http://www.comic-con.org/)[龙大会](http://www.dragoncon.org/)[派克斯](http://prime.paxsite.com/)[漫画家](http://comikazeexpo.com/)[E3](http://www.e3expo.com/)[动漫大会](http://www.momocon.com/) ，还是其他任何一个 [上百个](http://en.wikipedia.org/wiki/List_of_science_fiction_conventions)
 

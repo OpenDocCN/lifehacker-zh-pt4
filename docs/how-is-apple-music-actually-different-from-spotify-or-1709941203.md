@@ -1,6 +1,6 @@
 # Apple Music 实际上与 Spotify(或其他任何东西)有什么不同？
 
-> 原文:[https://gizmodo . com/how-is-apple-music-really-different-from-Spotify-or-1709941203](https://gizmodo.com/how-is-apple-music-actually-different-from-spotify-or-1709941203)
+> 原文：<https://gizmodo.com/how-is-apple-music-actually-different-from-spotify-or-1709941203>
 
 是的，是的，好吧！我们到了！我们现在有了苹果音乐，还有另一个订阅流媒体音乐服务。不过这一次，它来自苹果公司。值得转行吗？嗯，也许吧。 [我们现在才开始着手](http://gizmodo.com/apple-music-first-look-wait-do-i-like-alternative-1714926632) 。但在 Gizmodo 的员工中，基本上只有一个问题很重要:它与 Spotify 相比如何，Spotify 是城里最大、最好的游戏。这是概要。
 

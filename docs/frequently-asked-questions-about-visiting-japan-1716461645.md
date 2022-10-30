@@ -1,6 +1,6 @@
 # 关于访问日本的常见问题
 
-> 原文:[https://kotaku . com/FAQ-questions-about-visiting-Japan-1716461645](https://kotaku.com/frequently-asked-questions-about-visiting-japan-1716461645)
+> 原文：<https://kotaku.com/frequently-asked-questions-about-visiting-japan-1716461645>
 
 所以，你要去日本，是吗？太棒了。你可能会有一些问题。希望我能找到一些答案。
 

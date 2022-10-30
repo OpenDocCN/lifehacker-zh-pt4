@@ -1,6 +1,6 @@
 # 成功人士最常见的八个特征
 
-> 原文:[https://life hacker . com/the-8-most-common-traits-of-successful-people-1635017441](https://lifehacker.com/the-eight-most-common-traits-of-successful-people-1635017441)
+> 原文：<https://lifehacker.com/the-eight-most-common-traits-of-successful-people-1635017441>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-NOl0v54DaXo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-NOl0v54DaXo&start=0) 
 

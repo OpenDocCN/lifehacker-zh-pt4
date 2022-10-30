@@ -1,6 +1,6 @@
 # 如何利用办公室假日聚会推进你的职业发展
 
-> 原文:[https://life hacker . com/how-to-use-the-office-holiday-party-to-advance-your-car-1481129059](https://lifehacker.com/how-to-use-the-office-holiday-party-to-advance-your-car-1481129059)
+> 原文：<https://lifehacker.com/how-to-use-the-office-holiday-party-to-advance-your-car-1481129059>
 
 会有开放的酒吧吗？我必须去吗？我能带上我的另一半吗？当你收到组织的假日聚会邀请时，其中的一些问题可能会在你的脑海中浮现。但是如果你想利用这个月的事件来推进你的事业，你的首要问题应该是:我如何以正确的方式与正确的人联系？
 

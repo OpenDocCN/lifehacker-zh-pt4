@@ -1,6 +1,6 @@
 # 有声书籍、谷歌钱包卡和网飞列表
 
-> 原文:[https://life hacker . com/audible-books-Google-wallet-cards-and-网飞-lists-1510248029](https://lifehacker.com/audible-books-google-wallet-cards-and-netflix-lists-1510248029)
+> 原文：<https://lifehacker.com/audible-books-google-wallet-cards-and-netflix-lists-1510248029>
 
 读者提供了他们在有声书籍上省钱的最佳建议，在紧急情况下使用你的谷歌钱包卡，以及从你的网飞列表中隐藏电影。
 

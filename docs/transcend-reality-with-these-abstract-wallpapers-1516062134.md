@@ -1,6 +1,6 @@
 # 用这些抽象的壁纸超越现实
 
-> 原文:[https://life hacker . com/transcend-reality-with-these-abstract-wallpapers-1516062134](https://lifehacker.com/transcend-reality-with-these-abstract-wallpapers-1516062134)
+> 原文：<https://lifehacker.com/transcend-reality-with-these-abstract-wallpapers-1516062134>
 
 美丽的照片是很好的壁纸，但是如果你喜欢更抽象的东西，我们可以帮你。这里有九种很酷的抽象壁纸来装饰你的桌面。
 

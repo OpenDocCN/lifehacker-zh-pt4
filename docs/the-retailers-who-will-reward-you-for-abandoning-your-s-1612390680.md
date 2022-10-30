@@ -1,6 +1,6 @@
 # 那些会奖励你放弃购物车的零售商
 
-> 原文:[https://life hacker . com/the-retailers-who-will-reward-you-discharge-s-1612390680](https://lifehacker.com/the-retailers-who-will-reward-you-for-abandoning-your-s-1612390680)
+> 原文：<https://lifehacker.com/the-retailers-who-will-reward-you-for-abandoning-your-s-1612390680>
 
 你有没有在你最喜欢的商店网上购物，把东西放进购物车，然后因为这样或那样的原因决定不买了？也许只是太贵了。也许运输成本是一个交易破坏者。无论你放弃网上购物车的理由是什么，一些受欢迎的在线商店现在正在发送后续电子邮件，试图用优惠券或折扣吸引你回来完成购买。
 

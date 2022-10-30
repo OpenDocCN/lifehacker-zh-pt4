@@ -1,6 +1,6 @@
 # 去任何目的地旅行如何省钱
 
-> 原文:[https://life hacker . com/how-to-save-money-when-traveling-to-any-destination-1677596104](https://lifehacker.com/how-to-save-money-when-traveling-to-any-destination-1677596104)
+> 原文：<https://lifehacker.com/how-to-save-money-when-traveling-to-any-destination-1677596104>
 
 度假花很多钱并不意味着你会比花钱少的人过得更开心。我已经花了将近十年的时间环游世界，我发现遵循一些简单的建议可以让你轻松地花很少的钱旅行，并且仍然有一个令人惊奇的旅行。
 

@@ -1,6 +1,6 @@
 # 问问 Nerdlove 博士:我是约会中的海德先生吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-am-I-the-mister-hyde-of-dating-1713967083](https://kotaku.com/ask-dr-nerdlove-am-i-the-mister-hyde-of-dating-1713967083)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-am-i-the-mister-hyde-of-dating-1713967083>
 
 你好，互联网！欢迎来到 [【问问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这个专栏也被称为即将来临的风暴，黑暗的带来者，还有……对了，我应该回答你的约会问题，不是吗
 

@@ -1,6 +1,6 @@
 # 通过这一设置调整加速 Android 版 Chrome
 
-> 原文:[https://life hacker . com/speed-up-chrome-for-Android-with-this-settings-tweak-1555623190](https://lifehacker.com/speed-up-chrome-for-android-with-this-settings-tweak-1555623190)
+> 原文：<https://lifehacker.com/speed-up-chrome-for-android-with-this-settings-tweak-1555623190>
 
 Android: Chrome 是 [我们最喜欢的 Android 浏览器](https://lifehacker.com/five-best-android-web-browsers-5925969) 之一，但它有时会有点迟钝。多亏了 Redditor [红血球数量 64](http://www.reddit.com/user/erythrocytes64) ，这个设置调整可以给你一个相当快的速度提升，这取决于你的设备。
 

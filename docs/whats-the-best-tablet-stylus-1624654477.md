@@ -1,6 +1,6 @@
 # 最好的平板手写笔是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-table t-stylus-1624654477](https://lifehacker.com/whats-the-best-tablet-stylus-1624654477)
+> 原文：<https://lifehacker.com/whats-the-best-tablet-stylus-1624654477>
 
 如果你有一个平板电脑，你可以用它来记笔记，甚至不时地用 [画画](https://lifehacker.com/five-best-tablet-drawing-apps-5913489) 。如果你这样做，一个好的平板电脑手写笔可以是一个巨大的好处。这一周，我们想知道你认为哪种 tablet stylii 最好、最舒适、最准确。
 

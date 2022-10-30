@@ -1,6 +1,6 @@
 # 如何管理你对身体疼痛的容忍度
 
-> 原文:[https://life hacker . com/how-to-manage-your ' s tolerance for-physical-pain-1689263947](https://lifehacker.com/how-to-manage-your-tolerance-for-physical-pain-1689263947)
+> 原文：<https://lifehacker.com/how-to-manage-your-tolerance-for-physical-pain-1689263947>
 
 身体上的疼痛可能会让人害怕。无论是醒来后的酸痛，运动损伤，还是意外的刺痛，如果你没有做好应对的心理准备，疼痛可能会很可怕。我们采访了一些专家，以了解如何应对和准备身体疼痛，而不会感到不知所措或惊慌失措。
 

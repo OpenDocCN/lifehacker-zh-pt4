@@ -1,6 +1,6 @@
 # 如何有效地为你从未见过的经理工作
 
-> 原文:[https://life hacker . com/how-to-effective-work for-a-manager-you-never-see-1640859514](https://lifehacker.com/how-to-effectively-work-for-a-manager-you-never-see-1640859514)
+> 原文：<https://lifehacker.com/how-to-effectively-work-for-a-manager-you-never-see-1640859514>
 
 无论你是在家工作还是你的老板远程工作，今天的工作场所与过去的集中式办公室有很大不同。对于许多组织来说，分散在全国各地的远程员工现在是常态。以下是你如何有效地与老板共事的方法，即使你们不在同一个地方。
 

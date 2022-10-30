@@ -1,6 +1,6 @@
 # 自拍如何帮助你实现健身目标
 
-> 原文:[https://life hacker . com/how-self ies-can-help-you-goals-1717703419](https://lifehacker.com/how-selfies-can-help-you-achieve-your-fitness-goals-1717703419)
+> 原文：<https://lifehacker.com/how-selfies-can-help-you-achieve-your-fitness-goals-1717703419>
 
 你可能认为自拍在魔多的火坑中有着特殊的地位，但不要小看它们。它们实际上是一个非常有用的减肥工具，可以用来衡量进步，让你保持动力。
 

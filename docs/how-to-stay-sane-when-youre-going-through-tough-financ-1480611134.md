@@ -1,6 +1,6 @@
 # 如何在艰难的金融时期保持理智
 
-> 原文:[https://life hacker . com/how-to-stay-sane-when-you-through-financ-1480611134](https://lifehacker.com/how-to-stay-sane-when-youre-going-through-tough-financ-1480611134)
+> 原文：<https://lifehacker.com/how-to-stay-sane-when-youre-going-through-tough-financ-1480611134>
 
 我们总有一天会经历艰难的金融时期，你准备得越充分，忍受的痛苦就越少。然而，当你觉得自己被财务问题压垮时，这并不会让事情变得更容易。
 

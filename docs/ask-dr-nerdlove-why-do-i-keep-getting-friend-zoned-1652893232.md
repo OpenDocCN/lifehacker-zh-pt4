@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:为什么我总是被划分为朋友区？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-why-do-I-keep-get-friend-zone-1652893232](https://kotaku.com/ask-dr-nerdlove-why-do-i-keep-getting-friend-zoned-1652893232)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-why-do-i-keep-getting-friend-zoned-1652893232>
 
 你好，互联网！欢迎来到 [问问 Nerdlove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个知道如何获得你人生约会模拟中每个结局的约会建议专栏。
 

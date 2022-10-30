@@ -1,6 +1,6 @@
 # 选择(或打造)完美立式办公桌的完整指南
 
-> 原文:[https://life hacker . com/the-complete-guide-to-choose-or-build-the-perfect-1682274258](https://lifehacker.com/the-complete-guide-to-choosing-or-building-the-perfec-1682274258)
+> 原文：<https://lifehacker.com/the-complete-guide-to-choosing-or-building-the-perfec-1682274258>
 
 立式办公桌很受欢迎，但选择一款好的绝非易事。你可以用电动的整张桌子来代替，或者自己动手做一个简单的解决方案。你甚至可以买一个可调节的附件放在你现有的桌子上。让我们来谈谈你可能需要什么样的立式办公桌，你能从预算中得到什么，以及如何选择最符合你需求的。
 

@@ -1,6 +1,6 @@
 # 如何确保您的语音通话和音频聊天非常清晰
 
-> 原文:[https://life hacker . com/how-to-assure-your-voice-call-and-audio-chats-are-c-1690302645](https://lifehacker.com/how-to-make-sure-your-voice-calls-and-audio-chats-are-c-1690302645)
+> 原文：<https://lifehacker.com/how-to-make-sure-your-voice-calls-and-audio-chats-are-c-1690302645>
 
 无论您是在 Skype 或 Hangouts 上与家人通话，还是在玩多人游戏并需要队友听到您的声音，您都可以做一些简单的事情来确保您的声音清晰地传递。
 

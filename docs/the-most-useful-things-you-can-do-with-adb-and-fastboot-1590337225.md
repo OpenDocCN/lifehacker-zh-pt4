@@ -1,6 +1,6 @@
 # 在 Android 上使用 ADB 和 Fastboot 可以做的最有用的事情
 
-> 原文:[https://life hacker . com/the-most-used-things-you-can-do-with-ADB-and-fast boot-1590337225](https://lifehacker.com/the-most-useful-things-you-can-do-with-adb-and-fastboot-1590337225)
+> 原文：<https://lifehacker.com/the-most-useful-things-you-can-do-with-adb-and-fastboot-1590337225>
 
 上周，我们向您展示了如何在任何操作系统 上安装 ADB 和 fastboot。如果你不确定为什么要去找这个(相对较小的)麻烦，这里只是你可以用这两个方便的工具做的一些有用的事情。
 

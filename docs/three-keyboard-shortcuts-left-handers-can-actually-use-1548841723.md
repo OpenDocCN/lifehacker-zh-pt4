@@ -1,6 +1,6 @@
 # 左撇子可以使用的三种键盘快捷键
 
-> 原文:[https://life hacker . com/three-keyboard-shortcut s-left-handlers-can-actual-use-1548841723](https://lifehacker.com/three-keyboard-shortcuts-left-handers-can-actually-use-1548841723)
+> 原文：<https://lifehacker.com/three-keyboard-shortcuts-left-handers-can-actually-use-1548841723>
 
 那些用左手使用电脑鼠标的人会很高兴地知道，像剪切、复制和粘贴这样的常用键盘快捷键在键盘的右侧也有替代选项。
 

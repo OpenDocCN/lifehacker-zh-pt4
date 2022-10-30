@@ -1,6 +1,6 @@
 # SanDisk 固态硬盘、SD 卡和闪存驱动器今天在亚马逊上打六折
 
-> 原文:[https://life hacker . com/some-sandisk-SSDs-and-SD-cards-is-60-off-today-on-ama-511028348](https://lifehacker.com/some-sandisk-ssds-and-sd-cards-are-60-off-today-on-ama-511028348)
+> 原文：<https://lifehacker.com/some-sandisk-ssds-and-sd-cards-are-60-off-today-on-ama-511028348>
 
 固态硬盘是升级你的台式机的一个很好的方式，它们从来都不是一个更好的选择 。嗯，除了像今天这样的大减价，还有一些 SD 卡和闪存盘的优惠。
 

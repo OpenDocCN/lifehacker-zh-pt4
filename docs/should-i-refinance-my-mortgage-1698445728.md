@@ -1,6 +1,6 @@
 # 我应该为我的抵押贷款再融资吗？
 
-> 原文:[https://life hacker . com/should-I-refinance-my-mortgage-1698445728](https://lifehacker.com/should-i-refinance-my-mortgage-1698445728)
+> 原文：<https://lifehacker.com/should-i-refinance-my-mortgage-1698445728>
 
 亲爱的生活黑客，最近利率太低了，我在考虑为我的房屋抵押贷款再融资。然而，我担心关闭成本和再融资的其他潜在缺点。我如何决定现在再融资是不是一个好主意？
 

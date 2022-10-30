@@ -1,6 +1,6 @@
 # 如何知道何时结束你们的关系
 
-> 原文:[https://life hacker . com/how-to-know-when-call-it-quit-in-your-relationship-1660237226](https://lifehacker.com/how-to-know-when-to-call-it-quits-in-your-relationship-1660237226)
+> 原文：<https://lifehacker.com/how-to-know-when-to-call-it-quits-in-your-relationship-1660237226>
 
 没有人喜欢考虑结束一段关系，但有时你必须面对残酷的事实:事情就是不会有结果。以下是有毒关系中最值得注意的四点。
 

@@ -1,6 +1,6 @@
 # 如何在您的 Nexus 5、6 或 9 上安装 Android M 开发者预览版
 
-> 原文:[https://life hacker . com/how-to-install-the-Android-m-developer-preview-on-your-1707530107](https://lifehacker.com/how-to-install-the-android-m-developer-preview-on-your-1707530107)
+> 原文：<https://lifehacker.com/how-to-install-the-android-m-developer-preview-on-your-1707530107>
 
 今天的 [Android M 公告](https://lifehacker.com/all-the-new-features-of-android-m-1707454646) 在 [Google I/O 2015](http://lifehacker.com/all-the-important-stuff-google-announced-at-i-o-2015-1707454800?rev=1432842495224) 已经让我们相当兴奋了。如果你渴望尝试新的热点(并且你有 Nexus 5、6、9 或播放器)，下面是如何立即在你的设备上安装它的方法。
 

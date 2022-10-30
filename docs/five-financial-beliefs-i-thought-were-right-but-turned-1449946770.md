@@ -1,6 +1,6 @@
 # 我错了的五个金融信念
 
-> 原文:[https://life hacker . com/five-financial-believes-I-thought-be-right-but-turn-1449946770](https://lifehacker.com/five-financial-beliefs-i-thought-were-right-but-turned-1449946770)
+> 原文：<https://lifehacker.com/five-financial-beliefs-i-thought-were-right-but-turned-1449946770>
 
 上周，我妻子在网上寻找烤土豆的理想温度和烹饪时间。当她挖掘信息时，她发现了一个有趣的事实:要正确地烘烤一个土豆，你应该把它*裸露*放在烹饪板上(当然，要涂上油和你选择的调料)。*神魂颠倒。*
 

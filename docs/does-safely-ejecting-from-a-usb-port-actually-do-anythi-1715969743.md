@@ -1,6 +1,6 @@
 # 从 USB 端口安全弹出真的有用吗？
 
-> 原文:[https://gizmodo . com/does-safely-ejecting-from-a-USB-port-actually-do-any thi-1715969743](https://gizmodo.com/does-safely-ejecting-from-a-usb-port-actually-do-anythi-1715969743)
+> 原文：<https://gizmodo.com/does-safely-ejecting-from-a-usb-port-actually-do-anythi-1715969743>
 
 仅仅拔出一个闪存盘会有什么危害吗？为什么我们需要安全转移？
 

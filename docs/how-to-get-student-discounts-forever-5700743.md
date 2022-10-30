@@ -1,6 +1,6 @@
 # 如何永久获得学生折扣
 
-> 原文:[https://life hacker . com/how-to-get-student-discounts-forever-5700743](https://lifehacker.com/how-to-get-student-discounts-forever-5700743)
+> 原文：<https://lifehacker.com/how-to-get-student-discounts-forever-5700743>
 
 去他妈的销售，没有什么比老式的学生折扣更省钱了。以下是如何在毕业后很长一段时间内继续利用这些黄金减价品。
 

@@ -1,6 +1,6 @@
 # 五款最佳流媒体机顶盒
 
-> 原文:[https://life hacker . com/five-best-streaming-机顶盒-5806570](https://lifehacker.com/five-best-streaming-set-top-boxes-5806570)
+> 原文：<https://lifehacker.com/five-best-streaming-set-top-boxes-5806570>
 
 机顶盒能让你在大屏幕上观看所有你想看的节目和电影，从互联网或你自己的电影收藏中下载。问题是，有很多优秀的流媒体设备值得考虑。本周我们将根据你们的投票选出五位最佳选手。
 

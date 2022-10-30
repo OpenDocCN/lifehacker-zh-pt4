@@ -1,6 +1,6 @@
 # 当你付不起学生贷款时该怎么办
 
-> 原文:[https://life hacker . com/what-do-what-what-what-what-what-what-your-student-loa-1594957967](https://lifehacker.com/what-to-do-when-you-cant-afford-to-pay-your-student-loa-1594957967)
+> 原文：<https://lifehacker.com/what-to-do-when-you-cant-afford-to-pay-your-student-loa-1594957967>
 
 学生贷款是一个棘手的话题。我们的国家学生贷款债务已经达到 1 万亿美元大关。对于如何处理这一统计数据有不同的想法，但事实是:很多人都在努力偿还贷款。如果你在那条船上，你应该明白你的选择。
 

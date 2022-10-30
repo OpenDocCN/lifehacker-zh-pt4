@@ -1,6 +1,6 @@
 # 这张小费表显示了谁需要小费，以及需要多少
 
-> 原文:[https://life hacker . com/this-tipping-infograph-shows-who-expects-tips-and-ho-1562841207](https://lifehacker.com/this-tipping-infographic-shows-who-expects-tips-and-ho-1562841207)
+> 原文：<https://lifehacker.com/this-tipping-infographic-shows-who-expects-tips-and-ho-1562841207>
 
 给小费是一种令人困惑的做法，通常是因为你永远不确定应该给谁小费，什么时候给 T2 小费，给多少小费。这张来自《等待，但为什么》的信息图展示了大多数人在做什么，以及在不同的机构里人们期望什么。
 

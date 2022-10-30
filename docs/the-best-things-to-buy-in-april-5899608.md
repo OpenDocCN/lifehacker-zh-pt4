@@ -1,6 +1,6 @@
 # 四月最好买的东西
 
-> 原文:[https://life hacker . com/the-best-things-to-buy-in-four-5899608](https://lifehacker.com/the-best-things-to-buy-in-april-5899608)
+> 原文：<https://lifehacker.com/the-best-things-to-buy-in-april-5899608>
 
 整整一个季度已经过去了，这意味着商店正在削减冬季商品和其他季节性商品的价格。以下是这个月最值得买的东西。
 

@@ -1,6 +1,6 @@
 # 最好的，最被低估的度假目的地
 
-> 原文:[https://life hacker . com/the-best-most-defaulted-vacation-destinations-1599392001](https://lifehacker.com/the-best-most-underrated-vacation-destinations-1599392001)
+> 原文：<https://lifehacker.com/the-best-most-underrated-vacation-destinations-1599392001>
 
 有时候花时间远离这一切是很重要的，但是通常的旅游陷阱和热门目的地都有自己的压力，如果你想放松一下，充电，最好避免。让我们列出一个替代的、被低估的度假地点和值得考虑的选择。
 

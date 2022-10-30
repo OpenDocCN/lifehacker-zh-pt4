@@ -1,6 +1,6 @@
 # LastPass 现在会告诉您要更改哪些受心脏出血影响的密码
 
-> 原文:[https://life hacker . com/lastpass-now-tell-you-the-heart bleed-affected-passwo-1561522244](https://lifehacker.com/lastpass-now-tells-you-which-heartbleed-affected-passwo-1561522244)
+> 原文：<https://lifehacker.com/lastpass-now-tells-you-which-heartbleed-affected-passwo-1561522244>
 
 本周，一个影响互联网很大一部分的巨大安全漏洞曝光。随着不同网站的恢复，你将需要更改你的密码，现在 LastPass 告诉你什么时候这样做。
 

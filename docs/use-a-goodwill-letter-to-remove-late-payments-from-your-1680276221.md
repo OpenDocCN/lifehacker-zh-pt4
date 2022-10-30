@@ -1,6 +1,6 @@
 # 用一封善意的信从你的信用报告中删除逾期付款
 
-> 原文:[https://life hacker . com/use-a-good will-letter-to-remove-late-payments-from-your-1680276221](https://lifehacker.com/use-a-goodwill-letter-to-remove-late-payments-from-your-1680276221)
+> 原文：<https://lifehacker.com/use-a-goodwill-letter-to-remove-late-payments-from-your-1680276221>
 
 延迟付款会损害你的信用，特别是如果你停止支付贷款或信用卡一段时间。虽然我们通常会告诉你，在修复你的信用方面没有捷径可走，但是你可以采取一些合法的行动来更快地提高你的分数。我们来看看其中的一条:写一封善意的信。
 

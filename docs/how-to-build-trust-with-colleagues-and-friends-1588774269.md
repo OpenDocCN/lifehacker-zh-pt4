@@ -1,6 +1,6 @@
 # 如何与同事和朋友建立信任
 
-> 原文:[https://life hacker . com/how-to-build-trust-with-college-and-friends-1588774269](https://lifehacker.com/how-to-build-trust-with-colleagues-and-friends-1588774269)
+> 原文：<https://lifehacker.com/how-to-build-trust-with-colleagues-and-friends-1588774269>
 
 信任是如此容易被视为理所当然。作为雇员和雇主，作为朋友、配偶和家庭成员，我们倾向于期望很多人信任我们，当他们不信任我们时，我们会感到受伤。只要稍加小心，你就能建立信任，这对你的职业和个人关系都有好处。
 

@@ -1,6 +1,6 @@
 # 定期锻炼的 10 大理由(除了减肥)
 
-> 原文:[https://life hacker . com/top-10-定期锻炼的理由-除了失去-we-1473616982](https://lifehacker.com/top-10-reasons-to-exercise-regularly-besides-losing-we-1473616982)
+> 原文：<https://lifehacker.com/top-10-reasons-to-exercise-regularly-besides-losing-we-1473616982>
 
 你已经被告知 [上百次](https://lifehacker.com/how-exercise-affects-your-body-and-how-to-pick-the-rig-507511853) 锻炼对你有好处，这是真的——但它的好处远不止是减肥或锻炼肌肉。以下是 [带来的另外 10 个好处，只需每天做一点点运动](http://lifehacker.com/how-to-motivate-yourself-into-an-exercise-routine-youll-5950484) 。
 

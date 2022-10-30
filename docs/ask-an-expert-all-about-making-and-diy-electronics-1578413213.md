@@ -1,6 +1,6 @@
 # 请教专家:关于制作和 DIY 电子产品
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-making-and-DIY-electronics-1578413213](https://lifehacker.com/ask-an-expert-all-about-making-and-diy-electronics-1578413213)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-making-and-diy-electronics-1578413213>
 
 向马克·弗劳恩菲尔德问好。如果你熟悉创客的世界，马克不需要太多介绍——他是“创客运动”的杰出领袖，是《MAKE》杂志的创始主编，是手工制作的 [【创客爸爸】](https://www.amazon.com/dp/054411454X?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/ask-an-expert-all-about-making-and-diy-electronics-1578413213&asc_source=&linkCode=ogi&psc=1&smid=A27SBMZTKG1FOT&tag=kinjalifehackerlink-20&th=1)的作者，也是 Boing Boing 的联合创始人。
 

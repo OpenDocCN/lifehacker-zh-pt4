@@ -1,6 +1,6 @@
 # 一个关于无数节育选择的基本指南
 
-> 原文:[https://life hacker . com/a-basic-guide-to-the neutrally-birth-control-options-ou-1673259659](https://lifehacker.com/a-basic-guide-to-the-countless-birth-control-options-ou-1673259659)
+> 原文：<https://lifehacker.com/a-basic-guide-to-the-countless-birth-control-options-ou-1673259659>
 
 在无数的节育方法中做出选择是一个复杂的过程。你有很多选择，所以这里有一个更常用的选项的基本解释，以及你需要考虑的每一个选项。
 

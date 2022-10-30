@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名数码产品设计师，我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-a-product-designer-1671728592](https://lifehacker.com/career-spotlight-what-i-do-as-a-product-designer-1671728592)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-product-designer-1671728592>
 
 他们说好的设计是无形的——你伸手去按一个按钮，它就在你需要它的地方，好像在你意识到之前，应用程序就知道你想做什么。用户界面和产品设计师在这样的设计决策中投入了大量的思想。
 

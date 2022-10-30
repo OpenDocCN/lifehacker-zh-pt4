@@ -1,6 +1,6 @@
 # 不要被欺骗:旅行时你可以避免的所有额外费用
 
-> 原文:[https://life hacker . com/stop-getting-gougged-all-the-extra-fees-you-can-avoid-w-1701090951](https://lifehacker.com/stop-getting-gouged-all-the-extra-fees-you-can-avoid-w-1701090951)
+> 原文：<https://lifehacker.com/stop-getting-gouged-all-the-extra-fees-you-can-avoid-w-1701090951>
 
 旅行已经够贵了，因为没有航空公司、酒店和租赁公司的高额费用会让你大吃一惊。虽然旅游业可能喜欢掠夺筋疲力尽的人，但只需要一点知识就可以完全避免这些费用。
 

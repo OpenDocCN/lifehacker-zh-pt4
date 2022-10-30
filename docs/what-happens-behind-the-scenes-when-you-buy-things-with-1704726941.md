@@ -1,6 +1,6 @@
 # 用手机买东西的幕后发生了什么
 
-> 原文:[https://gizmodo . com/1704726941](https://gizmodo.com/what-happens-behind-the-scenes-when-you-buy-things-with-1704726941)
+> 原文：<https://gizmodo.com/what-happens-behind-the-scenes-when-you-buy-things-with-1704726941>
 
 你决定买一双新鞋，你要用你的智能手机点击收银台来付款。这就像使用你的信用卡——除了它不是。以下是你手机上的钱真正发生了什么，当你花的时候，当你只是带着它到处走的时候。
 

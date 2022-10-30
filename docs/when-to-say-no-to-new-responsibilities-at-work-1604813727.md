@@ -1,6 +1,6 @@
 # 何时对工作中的新职责说不
 
-> 原文:[https://life hacker . com/when-to-say-no-to-new-respons ibility-in-work-1604813727](https://lifehacker.com/when-to-say-no-to-new-responsibilities-at-work-1604813727)
+> 原文：<https://lifehacker.com/when-to-say-no-to-new-responsibilities-at-work-1604813727>
 
 通常你应该在工作中接受新的任务和责任来展示你的潜力，但有时机会来了，可能只会让你陷入困境，而不会促进你的职业发展。这里有四种情况，你最好说不，谢谢。
 

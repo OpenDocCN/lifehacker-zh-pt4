@@ -1,6 +1,6 @@
 # 与朋友共享大文件的最佳方式是什么？
 
-> 原文:[https://life hacker . com/what-s-the-best-way-to-share-large-files-1486810038](https://lifehacker.com/what-s-the-best-way-to-share-large-files-with-friends-1486810038)
+> 原文：<https://lifehacker.com/what-s-the-best-way-to-share-large-files-with-friends-1486810038>
 
 亲爱的 Lifehacker，
 我和我的朋友分享很多大文件，但似乎每个人都使用不同的服务。做这件事最简单的方法是什么？

@@ -1,6 +1,6 @@
 # 如何批量购买
 
-> 原文:[https://deadspin.com/how-to-buy-in-bulk-1702130489](https://deadspin.com/how-to-buy-in-bulk-1702130489)
+> 原文：<https://deadspin.com/how-to-buy-in-bulk-1702130489>
 
 当我和妻子从 600 平方英尺的公寓搬进 1000 平方英尺的房子(带车库！)，我对几件事特别兴奋:1)有了自己的洗衣机和烘干机，只要我高兴，就可以把屎放在里面；2)能够更容易地证明购买电动工具的合理性；以及 3)好市多。
 

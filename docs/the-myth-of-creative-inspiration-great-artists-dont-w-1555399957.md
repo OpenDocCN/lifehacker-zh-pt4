@@ -1,6 +1,6 @@
 # 创作灵感的神话:伟大的艺术家不会等待
 
-> 原文:[https://life hacker . com/the-myth-of-creative-inspiration-great-artists-don t-w-1555399957](https://lifehacker.com/the-myth-of-creative-inspiration-great-artists-dont-w-1555399957)
+> 原文：<https://lifehacker.com/the-myth-of-creative-inspiration-great-artists-dont-w-1555399957>
 
 弗朗兹·卡夫卡被认为是 20 世纪最具创造力和影响力的作家之一，但他实际上大部分时间都在为工人事故保险协会做律师。卡夫卡是如何在保住日常工作的同时创作出如此出色的创造性作品的？坚持严格的时间表。
 

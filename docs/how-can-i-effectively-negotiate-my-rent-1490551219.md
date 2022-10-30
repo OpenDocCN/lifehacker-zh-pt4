@@ -1,6 +1,6 @@
 # 我如何有效地协商我的租金？
 
-> 原文:[https://life hacker . com/how-can-I-effective-negotiate-my-rent-1490551219](https://lifehacker.com/how-can-i-effectively-negotiate-my-rent-1490551219)
+> 原文：<https://lifehacker.com/how-can-i-effectively-negotiate-my-rent-1490551219>
 
 对很多人来说，这是一个房东市场，但这并不意味着你不能按自己的条件租房。金钱专家在 [*栈交换*](http://money.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=money-98) *第一次和老房客就租金上涨进行谈判时插话。*
 

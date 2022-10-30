@@ -1,6 +1,6 @@
 # 用这些壁纸把这些孤独的树放在前面和中间
 
-> 原文:[https://life hacker . com/put-these-lonely-trees-front-and-center-with these-wa-1520687974](https://lifehacker.com/put-these-solitary-trees-front-and-center-with-these-wa-1520687974)
+> 原文：<https://lifehacker.com/put-these-solitary-trees-front-and-center-with-these-wa-1520687974>
 
 有没有意识到有多少壁纸符合“田野中间的一棵树”这一奇怪的特定类别有很多。而且都很牛逼。所以今天我们分享一些我们最喜欢的。
 

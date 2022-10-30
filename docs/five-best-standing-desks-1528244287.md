@@ -1,6 +1,6 @@
 # 五款最佳站立书桌
 
-> 原文:[https://lifehacker.com/five-best-standing-desks-1528244287](https://lifehacker.com/five-best-standing-desks-1528244287)
+> 原文：<https://lifehacker.com/five-best-standing-desks-1528244287>
 
 整天坐着是个坏主意，一般来说是个坏主意，站着办公可以让你灵活地站立和走动，不管站着办公还是不站着办公。然而，一些立式办公桌肯定比其他的好——它们要么更可定制，更实惠，容易调节，承受更多重量，要么更适合大多数工作场所。本周我们来看五个最好的。
 

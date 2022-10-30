@@ -1,6 +1,6 @@
 # 应用程序在你头脑中玩的让你上瘾的把戏
 
-> 原文:[https://life hacker . com/the-tricks-apps-play-on-you-mind-you-keep-you-Hooke-1676900059](https://lifehacker.com/the-tricks-apps-play-on-your-mind-you-to-keep-you-hooke-1676900059)
+> 原文：<https://lifehacker.com/the-tricks-apps-play-on-your-mind-you-to-keep-you-hooke-1676900059>
 
 移动应用程序可能非常有趣，但它们也会累积占用你大量的时间，分散你的工作注意力。你需要的不仅仅是意志力来控制你对应用程序的胃口——你需要了解它们是如何工作的，以及为什么它们非常容易上瘾。
 

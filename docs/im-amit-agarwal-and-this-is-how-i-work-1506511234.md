@@ -1,6 +1,6 @@
 # 我是阿米特·阿加瓦尔，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Amit-Agarwal-and-this-is-how-I-work-1506511234](https://lifehacker.com/im-amit-agarwal-and-this-is-how-i-work-1506511234)
+> 原文：<https://lifehacker.com/im-amit-agarwal-and-this-is-how-i-work-1506511234>
 
 成为印度领先的科技博客作者需要什么？近十年来，阿米特·阿加瓦尔(Amit Agarwal)一直在数字灵感网站写作，提供指南和技巧，用正确的技术让生活变得更轻松。他开发了大量的 [酷脚本和应用](http://ctrlq.org/) ，甚至设法找到时间写了一本 [书](http://www.amazon.com/exec/obidos/ASIN/B006R4RN3U/ctrlqorg-20/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-amit-agarwal-and-this-is-how-i-work-1506511234&asc_source=&tag=kinjalifehackerlink-20) 。我们找到了这个一个人的博客和黑客力量，找出了他离不开的工具和技巧。
 

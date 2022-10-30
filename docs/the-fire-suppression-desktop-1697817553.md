@@ -1,6 +1,6 @@
 # 灭火桌面
 
-> 原文:[https://life hacker . com/the-fire-suppression-desktop-1697817553](https://lifehacker.com/the-fire-suppression-desktop-1697817553)
+> 原文：<https://lifehacker.com/the-fire-suppression-desktop-1697817553>
 
 我们的朋友 [joergermeister](https://www.flickr.com/photos/joergermeister/) 做了不少我们喜欢的台式机，这款也不例外。干净，稀疏，但仍然有效，这是他如何设置的。
 

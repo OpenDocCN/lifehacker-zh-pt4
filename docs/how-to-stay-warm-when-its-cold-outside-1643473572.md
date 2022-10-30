@@ -1,6 +1,6 @@
 # 外面冷的时候如何保暖
 
-> 原文:[https://gizmodo . com/how-to-stay-warm-when it-cold-outside-1643473572](https://gizmodo.com/how-to-stay-warm-when-its-cold-outside-1643473572)
+> 原文：<https://gizmodo.com/how-to-stay-warm-when-its-cold-outside-1643473572>
 
 我不断震惊于有多少人不知道在户外穿衣服保暖的基本知识。更多的人不具备在寒冷的夜晚温暖入睡的基本条件。这一切都很简单，很便宜，读完这篇文章，别再找借口了。
 

@@ -1,6 +1,6 @@
 # 职业聚焦:我在机场运营中做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-in-airport-operations-1713193221](https://lifehacker.com/career-spotlight-what-i-do-in-airport-operations-1713193221)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-in-airport-operations-1713193221>
 
 机场的复杂性和效率令人着迷。它们实际上是自给自足的城市，拥有庞大的基础设施，为了所有游客的舒适和安全，需要尽可能完美地维护。这需要一大群工人来完成。
 

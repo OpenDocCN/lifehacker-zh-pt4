@@ -1,6 +1,6 @@
 # 结识新朋友的最佳地点
 
-> 原文:[https://life hacker . com/the-best-places-to-meet-new-people-1512814587](https://lifehacker.com/the-best-places-to-meet-new-people-1512814587)
+> 原文：<https://lifehacker.com/the-best-places-to-meet-new-people-1512814587>
 
 让我们面对现实吧，认识新的人，交新的朋友是很难的。我们都很忙，刚碰到志趣相投的人也不容易。这就是为什么大学毕业后，或者搬到新城市 时 [很难交到朋友。尽管如此，有时只是找到合适的地方或适合你的活动，无论你是喜欢夜生活，还是压力较小的在线活动或安静的面对面活动。让我们列一个清单，列出寻找和联系你可能有共同兴趣并想交朋友的人的最佳方式。](https://lifehacker.com/the-stress-free-guide-to-settling-down-in-a-new-city-5798087)
 

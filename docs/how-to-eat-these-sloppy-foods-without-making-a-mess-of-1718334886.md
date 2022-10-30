@@ -1,6 +1,6 @@
 # 如何吃这些邋遢的食物而不把自己弄得一团糟
 
-> 原文:[https://life hacker . com/how-to-eat-these-slophy-foods-without-making-a-message of-1718334886](https://lifehacker.com/how-to-eat-these-sloppy-foods-without-making-a-mess-of-1718334886)
+> 原文：<https://lifehacker.com/how-to-eat-these-sloppy-foods-without-making-a-mess-of-1718334886>
 
 无论是你脑袋大小的汉堡还是一大盘辣鸡翅，有些食物最好在某个黑暗的角落独自享用。你能不能成为一个成年人，不要在公共场合点这些食物，或者你可以掌握在公共场合吃邋遢食物的艺术。下面是怎么做的。
 

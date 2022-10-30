@@ -1,6 +1,6 @@
 # 隐藏在你的机器人辅助选项中的秘密力量
 
-> 原文:[https://life hacker . com/the-secret-powers-hidden-in-your-androids-accessibility-1598420171](https://lifehacker.com/the-secret-powers-hidden-in-your-androids-accessibility-1598420171)
+> 原文：<https://lifehacker.com/the-secret-powers-hidden-in-your-androids-accessibility-1598420171>
 
 你可以在 Android 中调整这么多东西，你可能甚至都没有打开辅助功能设置。顾名思义，你可能会认为这些功能只适用于残疾人，但实际上它们对任何人都有用。
 

@@ -1,6 +1,6 @@
 # 今年你最感谢的免费应用有哪些？
 
-> 原文:[https://life hacker . com/what-free-apps-what-you-most-than-thank for-this-year-5860696](https://lifehacker.com/what-free-apps-are-you-most-thankful-for-this-year-5860696)
+> 原文：<https://lifehacker.com/what-free-apps-are-you-most-thankful-for-this-year-5860696>
 
 众所周知，我们热爱伟大的软件，尤其是伟大的免费软件。在下面的评论中表达你对免费提供应用程序的开发者的感激之情。
 

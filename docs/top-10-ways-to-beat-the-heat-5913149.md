@@ -1,6 +1,6 @@
 # 战胜炎热的 10 大方法
 
-> 原文:[https://lifehacker.com/top-10-ways-to-beat-the-heat-5913149](https://lifehacker.com/top-10-ways-to-beat-the-heat-5913149)
+> 原文：<https://lifehacker.com/top-10-ways-to-beat-the-heat-5913149>
 
 炎热的夏天对我们的身体、情绪和电费都很不利。不过，不要让温度让你沮丧。这十条建议将帮助你保持凉爽，即使你感觉太阳要出来晒你了。
 

@@ -1,6 +1,6 @@
 # 最好的预算电脑鼠标是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-budget-computer-mouse-1596165602](https://lifehacker.com/whats-the-best-budget-computer-mouse-1596165602)
+> 原文：<https://lifehacker.com/whats-the-best-budget-computer-mouse-1596165602>
 
 不是每个人都有几十美元可以花在鼠标上，尤其是如果你带着鼠标旅行或者在办公室需要一个的话。本周，我们想知道如果你只有 20 美元左右的钱买一个放在你的笔记本电脑或旅行包里，你会买哪个鼠标。
 

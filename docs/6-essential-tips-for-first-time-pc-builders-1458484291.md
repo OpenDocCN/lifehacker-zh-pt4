@@ -1,6 +1,6 @@
 # 首次使用电脑的 6 个基本技巧
 
-> 原文:[https://life hacker . com/6-essential-tips-for-first-time-PC-builders-1458484291](https://lifehacker.com/6-essential-tips-for-first-time-pc-builders-1458484291)
+> 原文：<https://lifehacker.com/6-essential-tips-for-first-time-pc-builders-1458484291>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-f_mwBF-_UJQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-f_mwBF-_UJQ&start=0) 
 

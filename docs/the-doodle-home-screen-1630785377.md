@@ -1,6 +1,6 @@
 # 涂鸦主屏幕
 
-> 原文:[https://lifehacker.com/the-doodle-home-screen-1630785377](https://lifehacker.com/the-doodle-home-screen-1630785377)
+> 原文：<https://lifehacker.com/the-doodle-home-screen-1630785377>
 
 有时候，一个吸引人的主屏幕比一个组织严密的主屏幕更令人愉快。为此，Themer 应用程序的这一设计将你的主屏幕变成了一个涂鸦板。你需要执行的每个任务都有自己的绘图。
 

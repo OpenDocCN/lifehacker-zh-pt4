@@ -1,6 +1,6 @@
 # 你应该经常储备的十样东西
 
-> 原文:[https://life hacker . com/ten-items-you-should-always-up-on-1511457806](https://lifehacker.com/ten-items-you-should-always-stock-up-on-1511457806)
+> 原文：<https://lifehacker.com/ten-items-you-should-always-stock-up-on-1511457806>
 
 让我们面对现实吧:没有人早上醒来时会有强烈的购买日常必需品的欲望，比如宠物食品、卫生纸、电池或尿布。然而，当你离开它们时，你的整个世界会嘎然而止。
 

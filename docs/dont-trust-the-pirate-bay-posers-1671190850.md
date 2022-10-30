@@ -1,6 +1,6 @@
 # 不要相信海盗湾装腔作势的人
 
-> 原文:[https://gizmodo . com/don-trust-the-pirate-bay-posers-1671190850](https://gizmodo.com/dont-trust-the-pirate-bay-posers-1671190850)
+> 原文：<https://gizmodo.com/dont-trust-the-pirate-bay-posers-1671190850>
 
 在瑞典 警方突袭之后，海盗湾上周陷入黑暗。紧随其后，大量模仿原版的网站涌现出来，试图填补空白。不要相信他们。
 

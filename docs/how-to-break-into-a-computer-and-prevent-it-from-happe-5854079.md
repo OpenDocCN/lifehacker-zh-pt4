@@ -1,6 +1,6 @@
 # 如何闯入电脑(并防止它发生在你身上)
 
-> 原文:[https://life hacker . com/how-to-break-into-a-computer-and-prevent-it-happe-5854079](https://lifehacker.com/how-to-break-into-a-computer-and-prevent-it-from-happe-5854079)
+> 原文：<https://lifehacker.com/how-to-break-into-a-computer-and-prevent-it-from-happe-5854079>
 
 有时你需要在不知道密码的情况下进入电脑。也许你忘了你的，或者你不怀好意。不管怎样，只要你的受害者没有采取必要的预防措施，这其实很容易做到。点击以下链接之一，了解如何在 Windows PC [或 Mac](http://lifehacker.com/how-to-break-into-a-mac-and-prevent-it-from-happening-5681710) 上做这件事，以及 [如何防止他人](http://lifehacker.com/how-to-encrypt-and-hide-your-entire-operating-system-fr-5554136)[对你做同样的事](http://lifehacker.com/how-your-passwords-are-stored-on-the-internet-and-when-5919918) 。
 

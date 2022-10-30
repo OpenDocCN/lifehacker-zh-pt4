@@ -1,6 +1,6 @@
 # 二进制 Rain 桌面
 
-> 原文:[https://lifehacker.com/the-binary-rain-desktop-1681821145](https://lifehacker.com/the-binary-rain-desktop-1681821145)
+> 原文：<https://lifehacker.com/the-binary-rain-desktop-1681821145>
 
 读者他是这样设计的。
 

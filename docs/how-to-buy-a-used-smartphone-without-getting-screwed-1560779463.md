@@ -1,6 +1,6 @@
 # 如何买到二手智能手机而不上当
 
-> 原文:[https://life hacker . com/how-to-buy-a-used-smart phone-without-getting-1560779463](https://lifehacker.com/how-to-buy-a-used-smartphone-without-getting-screwed-1560779463)
+> 原文：<https://lifehacker.com/how-to-buy-a-used-smartphone-without-getting-screwed-1560779463>
 
 购买二手智能手机可以为你节省一些钱，但它显然包含一些风险——比如确保它处于良好状态(并且没有被盗)。下面是我买了很多二手手机后学到的一些小技巧。
 

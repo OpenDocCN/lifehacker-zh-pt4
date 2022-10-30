@@ -1,6 +1,6 @@
 # 最好的单一用途网站，做他们所说的事情
 
-> 原文:[https://life hacker . com/our-favorite-single-purpose-purpose-web-sites-that-do-exact-w-5860925](https://lifehacker.com/our-favorite-single-purpose-web-sites-that-do-exactly-w-5860925)
+> 原文：<https://lifehacker.com/our-favorite-single-purpose-web-sites-that-do-exactly-w-5860925>
 
 现在的孩子有最复杂的网站名称。脸书？推特？易贝？抱歉，但我喜欢黑咖啡和不言自明的网站。这里有一些实际上有用的网站，它们的功能和听起来一模一样。
 

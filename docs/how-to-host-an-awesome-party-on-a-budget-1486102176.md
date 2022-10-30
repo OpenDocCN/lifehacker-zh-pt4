@@ -1,6 +1,6 @@
 # 如何在预算有限的情况下举办一场精彩的派对
 
-> 原文:[https://life hacker . com/how-to-host-an-awesome-party-on-budget-1486102176](https://lifehacker.com/how-to-host-an-awesome-party-on-a-budget-1486102176)
+> 原文：<https://lifehacker.com/how-to-host-an-awesome-party-on-a-budget-1486102176>
 
 你不必掏空你的钱包或设立一个特殊的储蓄账户来邀请你的朋友。无论你是计划一次非正式的聚会还是一次豪华的晚宴，有很多方法可以在不花太多钱的情况下完成工作并度过一段美好时光。以下是方法。
 

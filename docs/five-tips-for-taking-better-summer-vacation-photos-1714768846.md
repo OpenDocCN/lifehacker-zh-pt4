@@ -1,6 +1,6 @@
 # 拍摄更好的暑假照片的五个技巧
 
-> 原文:[https://life hacker . com/five-tips-taking-better-summer-vacation-photos-1714768846](https://lifehacker.com/five-tips-for-taking-better-summer-vacation-photos-1714768846)
+> 原文：<https://lifehacker.com/five-tips-for-taking-better-summer-vacation-photos-1714768846>
 
 我在非常恶劣的条件下拍摄。事实上，我职业生涯的很大一部分都是在寒冷中度过的。作为一名专业人士，对我来说，这通常意味着漫长的夜晚，寒冷的早晨，在三脚架前露营等待条件成熟。但这绝对值得:有时，为了让事情按部就班，你不得不将自己置于一个不正常的境地。
 

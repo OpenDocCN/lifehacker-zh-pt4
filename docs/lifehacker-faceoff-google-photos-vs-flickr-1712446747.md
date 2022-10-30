@@ -1,6 +1,6 @@
 # life hacker face off:Google Photos vs . Flickr
 
-> 原文:[https://life hacker . com/life hacker-face off-Google-photos-vs-Flickr-1712446747](https://lifehacker.com/lifehacker-faceoff-google-photos-vs-flickr-1712446747)
+> 原文：<https://lifehacker.com/lifehacker-faceoff-google-photos-vs-flickr-1712446747>
 
 上个月，谷歌和雅虎都对他们的照片存储服务进行了重大调整，分别是 [谷歌照片](https://lifehacker.com/how-the-new-google-photos-makes-your-picture-library-aw-1708189976) 和 [Flickr](https://lifehacker.com/flickrs-new-tools-automatically-upload-and-organize-all-1702855423) (4.0)。两者都提供相同的有用功能:自动照片备份、智能组织、在线编辑工具和共享功能。那么应该用哪一个呢？
 

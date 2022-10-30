@@ -1,6 +1,6 @@
 # 我最大的面试错误(以及如何避免)
 
-> 原文:[https://life hacker . com/my-maximum-interview-missions-and-how-to-avoid-these-them-1467375933](https://lifehacker.com/my-biggest-interview-mistakes-and-how-to-avoid-them-1467375933)
+> 原文：<https://lifehacker.com/my-biggest-interview-mistakes-and-how-to-avoid-them-1467375933>
 
 我不是最棒的受访者。我 [会前极度紧张](http://www.thedailymuse.com/job-search/5-ways-to-look-confident-in-an-interview-even-when-youre-freaking-out/) :心跳加速，手心冒汗，胡思乱想——整整九码。然后，一旦我走进办公室，真正的乐趣就开始了:我忘记了我想说什么，笨嘴拙舌，让自己被桌子对面的人吓倒。
 

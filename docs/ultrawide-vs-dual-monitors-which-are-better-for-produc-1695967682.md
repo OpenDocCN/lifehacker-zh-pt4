@@ -1,6 +1,6 @@
 # 超宽显示器与双显示器:哪一种更有利于提高工作效率？
 
-> 原文:[https://life hacker . com/ultra wide-vs-dual-monitors-the-better-for-product-1695967682](https://lifehacker.com/ultrawide-vs-dual-monitors-which-are-better-for-produc-1695967682)
+> 原文：<https://lifehacker.com/ultrawide-vs-dual-monitors-which-are-better-for-produc-1695967682>
 
 我们喜欢多显示器工作站，但“超宽”显示器，其分辨率可与并排的两三块面板相媲美，目前看起来越来越好。毕竟，拥有多台显示器并不会自动提高您的工作效率。以下是这些新的超宽显示器与双屏显示器的不同之处，以及您可能考虑购买的时间。
 

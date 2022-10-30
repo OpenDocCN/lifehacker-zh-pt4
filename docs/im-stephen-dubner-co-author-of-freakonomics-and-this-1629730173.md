@@ -1,6 +1,6 @@
 # 我是《魔鬼经济学》的合著者史蒂芬·都伯纳，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Stephen-dubner-魔鬼经济学的合著者-and-this-1629730173](https://lifehacker.com/im-stephen-dubner-co-author-of-freakonomics-and-this-1629730173)
+> 原文：<https://lifehacker.com/im-stephen-dubner-co-author-of-freakonomics-and-this-1629730173>
 
 2005 年，史蒂芬·列维特和史蒂芬·都伯纳的《魔鬼经济学》一书从经济学原理的角度为日常生活带来了新的视角——揭示了从育儿到犯罪的一切，以及我们为什么会这样做。
 

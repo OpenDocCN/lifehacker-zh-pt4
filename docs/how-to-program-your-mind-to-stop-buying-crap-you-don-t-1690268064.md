@@ -1,6 +1,6 @@
 # 如何让你的大脑停止购买你不需要的垃圾
 
-> 原文:[https://life hacker . com/how-to-program-you-mind-stop-purchase-you-don-1690268064](https://lifehacker.com/how-to-program-your-mind-to-stop-buying-crap-you-don-t-1690268064)
+> 原文：<https://lifehacker.com/how-to-program-your-mind-to-stop-buying-crap-you-don-t-1690268064>
 
 我们都会时不时地买一些我们并不真正需要的东西。只要你能控制自己，偶尔迎合自己的需求是没问题的。如果你在杂乱、冲动购物和买家后悔中挣扎，以下是如何在你踏进商店之前把你的思想放在正确的位置上。
 

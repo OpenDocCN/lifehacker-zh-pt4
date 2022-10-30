@@ -1,6 +1,6 @@
 # 五大最佳 3D 打印服务
 
-> 原文:[https://life hacker . com/five-best-3d-printing-services-1706410803](https://lifehacker.com/five-best-3d-printing-services-1706410803)
+> 原文：<https://lifehacker.com/five-best-3d-printing-services-1706410803>
 
 获得 3D 打印的东西现在比以往任何时候都更容易，而且你可能有很多理由想要这样做。从制造特殊和独特的东西到更换损坏的零件，3D 打印服务让一切变得简单。本周我们将根据你们的提名选出五位最佳选手。
 

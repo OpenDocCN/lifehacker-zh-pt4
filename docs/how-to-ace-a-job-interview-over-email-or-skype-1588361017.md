@@ -1,6 +1,6 @@
 # 如何通过电子邮件或 Skype 赢得面试
 
-> 原文:[https://life hacker . com/how-to-ace-a-job-over-email-or-Skype-1588361017](https://lifehacker.com/how-to-ace-a-job-interview-over-email-or-skype-1588361017)
+> 原文：<https://lifehacker.com/how-to-ace-a-job-interview-over-email-or-skype-1588361017>
 
 随着远程工作环境变得越来越普遍，面试过程通常不会亲自与招聘人员见面，而是通过电子邮件或视频聊天进行面试。因为媒体不同于面对面交谈，你需要适应和使用新的策略来赢得面试和工作。
 

@@ -1,6 +1,6 @@
 # 六大购房障碍(以及如何排除它们)
 
-> 原文:[https://life hacker . com/six-home-buying-deal-breakers-and-how-to-trouble shooting-1605420806](https://lifehacker.com/six-home-buying-deal-breakers-and-how-to-troubleshoot-1605420806)
+> 原文：<https://lifehacker.com/six-home-buying-deal-breakers-and-how-to-troubleshoot-1605420806>
 
 在你给房子付定金之前，不要忘了仔细检查它——即使它看起来状况良好。有些问题可能会被忽视，你希望在它们变得令人头疼之前发现任何潜在的交易破坏者。
 

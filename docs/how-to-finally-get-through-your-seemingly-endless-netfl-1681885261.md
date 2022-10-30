@@ -1,6 +1,6 @@
 # 如何最终穿过你看似无穷无尽的网飞队列
 
-> 原文:[https://life hacker . com/how-to-finally-get-through-your surface-endless-netfl-1681885261](https://lifehacker.com/how-to-finally-get-through-your-seemingly-endless-netfl-1681885261)
+> 原文：<https://lifehacker.com/how-to-finally-get-through-your-seemingly-endless-netfl-1681885261>
 
 网飞很擅长提供很多值得观看的东西，但有时似乎太多了。如果你很难完成清单上的事情，或者发现自己一遍又一遍地看着同样的事情，这些建议会有所帮助。
 

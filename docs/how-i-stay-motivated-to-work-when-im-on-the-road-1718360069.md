@@ -1,6 +1,6 @@
 # 我在旅途中如何保持工作动力
 
-> 原文:[https://life hacker . com/how-I-stay-motive-to-work-when-im-on-the-road-1718360069](https://lifehacker.com/how-i-stay-motivated-to-work-when-im-on-the-road-1718360069)
+> 原文：<https://lifehacker.com/how-i-stay-motivated-to-work-when-im-on-the-road-1718360069>
 
 今天，我想和大家分享一些我在旅途工作中学到的东西，旅途可能会很艰难。我已经成功了，但是克服缺乏工作能量是一个有趣的挑战。
 

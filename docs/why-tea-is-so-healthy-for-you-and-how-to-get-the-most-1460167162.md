@@ -1,6 +1,6 @@
 # 为什么茶对你如此健康(以及如何从每一杯茶中获得最大益处)
 
-> 原文:[https://life hacker . com/why-tea-is so-health for you-and-how-to-get-the-most-1460167162](https://lifehacker.com/why-tea-is-so-healthy-for-you-and-how-to-get-the-most-1460167162)
+> 原文：<https://lifehacker.com/why-tea-is-so-healthy-for-you-and-how-to-get-the-most-1460167162>
 
 茶不仅是一种令人舒适愉快的饮料，它还具有显著的治疗功效——以至于它被认为是一种“神奇饮料”，可能比饮用水 更健康。以下是喝茶可以导致更健康、更长寿的所有方法——以及如何最大限度地享受喝茶的乐趣及其对健康的益处。
 

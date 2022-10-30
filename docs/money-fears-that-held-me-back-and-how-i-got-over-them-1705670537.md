@@ -1,6 +1,6 @@
 # 阻碍我前进的金钱恐惧(以及我如何克服它们)
 
-> 原文:[https://life hacker . com/money-fears-hold-me-back-and-how-get-over-them-1705670537](https://lifehacker.com/money-fears-that-held-me-back-and-how-i-got-over-them-1705670537)
+> 原文：<https://lifehacker.com/money-fears-that-held-me-back-and-how-i-got-over-them-1705670537>
 
 大学毕业后，我觉得很幸运，没多久就找到了工作。我数着自己的福气，满腔热情地投入了工作的世界。几个月后，我得到了一份更好、薪水更高的工作。你以为我会开心，但我没有。不完全是。我最害怕的是。
 

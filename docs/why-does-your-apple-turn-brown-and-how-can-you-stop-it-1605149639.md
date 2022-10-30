@@ -1,6 +1,6 @@
 # 为什么你的苹果会变成褐色，你如何阻止它？
 
-> 原文:[https://gizmodo . com/why-your ' s apple-turn-brown-and-how-can-stop it-1605149639](https://gizmodo.com/why-does-your-apple-turn-brown-and-how-can-you-stop-it-1605149639)
+> 原文：<https://gizmodo.com/why-does-your-apple-turn-brown-and-how-can-you-stop-it-1605149639>
 
 把一个苹果切成两半，你就开始了与时间的赛跑。你浪费的每一秒钟都是你的苹果用来变成松软的褐色烂摊子的一秒钟。为什么苹果如此努力地挫败你对维生素的追求？科学有答案。
 

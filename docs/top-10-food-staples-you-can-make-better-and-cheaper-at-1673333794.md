@@ -1,6 +1,6 @@
 # 你可以在家做得更好更便宜的 10 种主食
 
-> 原文:[https://life hacker . com/top-10-food-staples-you-can-make-better-and-cheap-at-1673333794](https://lifehacker.com/top-10-food-staples-you-can-make-better-and-cheaper-at-1673333794)
+> 原文：<https://lifehacker.com/top-10-food-staples-you-can-make-better-and-cheaper-at-1673333794>
 
 许多简单的食物不仅容易在家制作，而且可能比商店里买的更便宜、更健康、更美味。从奶酪到花生酱，这里有几个 DIY，好吃的美食项目。
 

@@ -1,6 +1,6 @@
 # 问一问专家:忙碌的人如何保持健康
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-stay-fit-for-busy-people-1611999751](https://lifehacker.com/ask-an-expert-all-about-staying-fit-for-busy-people-1611999751)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-staying-fit-for-busy-people-1611999751>
 
 承认吧:在九个小时的工作日结束时，你更有可能扑通一声倒在沙发上看电视，而不是去健身房。人们如何在忙碌的生活中找到时间保持健康？这里帮忙回答的是 [Fitocracy](https://www.fitocracy.com/) 的迪克·塔伦斯。
 

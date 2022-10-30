@@ -1,6 +1,6 @@
 # 学习新事物的唯一技巧
 
-> 原文:[https://life hacker . com/the-only-technique-to-learn-something-new-1709323497](https://lifehacker.com/the-only-technique-to-learn-something-new-1709323497)
+> 原文：<https://lifehacker.com/the-only-technique-to-learn-something-new-1709323497>
 
 有人从我参与的一家公司偷了 9000 万美元。我不善于看人。公司倒闭了。有些东西我学不会。我太喜欢人了。所以我很难成为一个好的判断人的人，不管我怎么努力。所以我找到其他擅长判断别人的人，并请他们帮助我。
 

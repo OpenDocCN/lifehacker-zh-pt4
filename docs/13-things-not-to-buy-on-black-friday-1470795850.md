@@ -1,6 +1,6 @@
 # 黑色星期五不要买的 13 样东西
 
-> 原文:[https://life hacker . com/13-things-not-buy-on-black-Friday-1470795850](https://lifehacker.com/13-things-not-to-buy-on-black-friday-1470795850)
+> 原文：<https://lifehacker.com/13-things-not-to-buy-on-black-friday-1470795850>
 
 随着 2013 年 [黑色星期五广告的泄露和我们在过去几周发现的](http://dealnews.com/black-friday/) ，这个季节的购物盛宴看起来已经成熟，所有商品都有交易和折扣。但是，尽管许多产品类别将出现新的历史最低价格，但并不是所有的*产品*在黑色星期五都处于最低价。事实上，有 13 样东西你绝对不应该在 11 月 29 日买。
 

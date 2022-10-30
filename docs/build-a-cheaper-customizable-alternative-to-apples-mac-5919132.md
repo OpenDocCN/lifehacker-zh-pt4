@@ -1,6 +1,6 @@
 # 为苹果的 Mac Pro 打造一款更便宜、可定制的替代品
 
-> 原文:[https://life hacker . com/build-a-price-customized-alternative-to-apple-MAC-5919132](https://lifehacker.com/build-a-cheaper-customizable-alternative-to-apples-mac-5919132)
+> 原文：<https://lifehacker.com/build-a-cheaper-customizable-alternative-to-apples-mac-5919132>
 
 苹果的 Mac Pro，来自外太空的光滑闪亮的垃圾桶，当然是工程学的壮举。也要 3000 美元。如果你想自己造一台类似的机器，你可以用 Hackintosh 来节省一大笔钱。
 

@@ -1,6 +1,6 @@
 # 眼见为实:可视化你的待办事项清单的八种创造性方法
 
-> 原文:[https://life hacker . com/seeing-is-doing-eight-creative-ways-visualize-your-1635761082](https://lifehacker.com/seeing-is-doing-eight-creative-ways-to-visualize-your-1635761082)
+> 原文：<https://lifehacker.com/seeing-is-doing-eight-creative-ways-to-visualize-your-1635761082>
 
 有时候我的任务清单太多了。我想后退一大步，看看我未来的一周或一个月，真正想象即将发生的事情——缩小并理解你的任务列表如何适应你的整体日程安排可能很棘手，但我发现视觉表达真的很有帮助。
 

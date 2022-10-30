@@ -1,6 +1,6 @@
 # 我写第一本书时学到的六件事
 
-> 原文:[https://life hacker . com/six-things-I-learned-while-writing my-first-book-1692467791](https://lifehacker.com/six-things-i-learned-while-writing-my-first-book-1692467791)
+> 原文：<https://lifehacker.com/six-things-i-learned-while-writing-my-first-book-1692467791>
 
 写书几乎要了你的命。到最后，你会筋疲力尽，脑死亡，充满焦虑感。我最近完成了我的第一本书 ，这里有几条可以应用于几乎任何大型项目的经验。
 

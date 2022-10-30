@@ -1,6 +1,6 @@
 # 姿势背后的科学以及它如何影响你的大脑
 
-> 原文:[https://life hacker . com/the-science-behind-posture-and-how-affect-your-brai-1463291618](https://lifehacker.com/the-science-behind-posture-and-how-it-affects-your-brai-1463291618)
+> 原文：<https://lifehacker.com/the-science-behind-posture-and-how-it-affects-your-brai-1463291618>
 
 我先承认:我的姿势很糟糕。至少从我上高中起就一直很糟糕，甚至可能更久。这是我一直记在心里的事情之一，我知道我应该做，但从来没有抽出时间去做，就像吃更多的蔬菜和寄更多的明信片一样。
 

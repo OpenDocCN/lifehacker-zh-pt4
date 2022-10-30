@@ -1,6 +1,6 @@
 # 这就是你烹饪火鸡的方法(避免浪费时间)
 
-> 原文:[https://life hacker . com/this-is-how-you-should-to-avoid-wasti-5860136](https://lifehacker.com/this-is-how-you-should-cook-your-turkey-to-avoid-wasti-5860136)
+> 原文：<https://lifehacker.com/this-is-how-you-should-cook-your-turkey-to-avoid-wasti-5860136>
 
 你一年做一次火鸡吗？也许你做火鸡的方法是从你祖母那里传下来的；也许你每年都尝试不同的食谱来寻找更好的方法。我并不是说你或你奶奶是错的，但是如果你的火鸡在烤箱里超过两个小时，你就是在浪费生命。这是我发现的最好的火鸡食谱，由 [厨师画报](http://www.cooksillustrated.com/) 的详尽的测试厨师和食品科学家提供。烘烤时间:两个小时。(别担心:我的标准很高，这只火鸡棒极了。)
 

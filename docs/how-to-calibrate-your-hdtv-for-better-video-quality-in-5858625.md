@@ -1,6 +1,6 @@
 # 如何在 30 分钟内校准您的高清电视以获得更好的视频质量
 
-> 原文:[https://life hacker . com/how-to-calibrate-your-HDTV-in-5858625](https://lifehacker.com/how-to-calibrate-your-hdtv-for-better-video-quality-in-5858625)
+> 原文：<https://lifehacker.com/how-to-calibrate-your-hdtv-for-better-video-quality-in-5858625>
 
 大多数高清电视的默认设置是为了在商店陈列室看起来更好，但在家里并不理想。幸运的是，使用正确的工具，将 HDTV 校准到您的观看风格很容易，您可以在不到半小时内完成。
 

@@ -1,6 +1,6 @@
 # 抗菌香皂有什么大惊小怪的？我应该停止使用一个吗？
 
-> 原文:[https://life hacker . com/what ' s-the-fuss-over-抗菌肥皂-should-i-stop-1500232937](https://lifehacker.com/whats-the-fuss-over-antibacterial-soaps-should-i-stop-1500232937)
+> 原文：<https://lifehacker.com/whats-the-fuss-over-antibacterial-soaps-should-i-stop-1500232937>
 
 亲爱的生活黑客，我听说抗菌肥皂对你不好，或者至少我应该停止使用它们。我一直认为抗菌药物肯定是好的，但现在人们说它们是浪费钱，而且可能对我有害。我错过了什么？我应该停止使用它们吗？
 

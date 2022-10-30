@@ -1,6 +1,6 @@
 # 2014 年最受欢迎的特写和散文
 
-> 原文:[https://life hacker . com/2014-1671909445](https://lifehacker.com/most-popular-features-and-essays-of-2014-1671909445)
+> 原文：<https://lifehacker.com/most-popular-features-and-essays-of-2014-1671909445>
 
 我们为 Lifehacker 的操作方法和解释者感到自豪，但有些文章并不完全符合这两个类别。也许它们是对人生经验的个人描述，也许它们是对当今一个流行问题的咆哮。以下是今年一些最好的特写和文章。
 

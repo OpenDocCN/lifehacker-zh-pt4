@@ -1,6 +1,6 @@
 # 穷乡僻壤研究者的包
 
-> 原文:[https://life hacker . com/the-back country-researchers-bag-1690371125](https://lifehacker.com/the-backcountry-researchers-bag-1690371125)
+> 原文：<https://lifehacker.com/the-backcountry-researchers-bag-1690371125>
 
 如果你是一个穷乡僻壤的研究者，你需要在你的包里有一个非常特别的物品组合。CoolTools 的读者 Heron 就是这种情况，他每周花大约五天时间在华盛顿的穷乡僻壤做研究工作。
 

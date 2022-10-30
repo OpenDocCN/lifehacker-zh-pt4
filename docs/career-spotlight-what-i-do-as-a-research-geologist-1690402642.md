@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名研究地质学家我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-a-research-geologist-1690402642](https://lifehacker.com/career-spotlight-what-i-do-as-a-research-geologist-1690402642)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-research-geologist-1690402642>
 
 一个地质学家花大部分时间用一把石锤和一个放大镜搜寻偏远的地形，这很吸引人，但实际上他们在实验室里花的时间比路虎还要多。研究地质学家的工作是折衷的、分析的和科学的。
 

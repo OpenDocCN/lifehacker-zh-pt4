@@ -1,6 +1,6 @@
 # 隐私不只是数字:我在私人调查中学到的
 
-> 原文:[https://life hacker . com/privacy-not-just-digital-what-I-learned-in-private-1713326760](https://lifehacker.com/privacy-isnt-just-digital-what-i-learned-in-private-in-1713326760)
+> 原文：<https://lifehacker.com/privacy-isnt-just-digital-what-i-learned-in-private-in-1713326760>
 
 当您考虑保护您的隐私时，您可能会想到您的脸书数据或短信。然而，正如我在一家私人调查公司工作时了解到的那样，我们大多数人并不完全理解隐私是如何工作的，它是如何超越我们的浏览器历史的，或者我们是如何真正容易受到攻击的。
 

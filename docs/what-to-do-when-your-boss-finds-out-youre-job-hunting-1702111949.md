@@ -1,6 +1,6 @@
 # 当你的老板发现你在找工作时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-what-what-what-what-your-boss-found-you-job-1702111949](https://lifehacker.com/what-to-do-when-your-boss-finds-out-youre-job-hunting-1702111949)
+> 原文：<https://lifehacker.com/what-to-do-when-your-boss-finds-out-youre-job-hunting-1702111949>
 
 这是你职业生涯中可能会遇到的尴尬场景:你正在找新工作，在你直接告诉你现任老板之前，他已经得到了风声。现在你发现自己在一次闭门会议中面对面地被问到，“我听说你在找新工作。是真的吗？”
 

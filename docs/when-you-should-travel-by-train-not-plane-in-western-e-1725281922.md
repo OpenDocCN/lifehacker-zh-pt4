@@ -1,6 +1,6 @@
 # 在西欧，什么时候你应该乘火车旅行，而不是飞机
 
-> 原文:[https://life hacker . com/when-you-should-train-not-plane-in-western-e-1725281922](https://lifehacker.com/when-you-should-travel-by-train-not-plane-in-western-e-1725281922)
+> 原文：<https://lifehacker.com/when-you-should-travel-by-train-not-plane-in-western-e-1725281922>
 
 有时候坐火车 [比坐飞机](http://wayfarer.lifehacker.com/this-guide-shows-u-s-routes-where-trains-are-better-th-1646515181#_ga=1.31328127.156623539.1423234556) 好。当谈到在西欧城市之间穿梭时，有时火车会击败廉价航空公司诱人的报价。
 

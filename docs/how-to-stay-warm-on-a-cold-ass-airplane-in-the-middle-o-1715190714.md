@@ -1,6 +1,6 @@
 # 如何在盛夏寒冷的飞机上保持温暖
 
-> 原文:[https://Jezebel . com/how-to-stay-warm-on-a-cold-ass-in-the-middle-o-1715190714](https://jezebel.com/how-to-stay-warm-on-a-cold-ass-airplane-in-the-middle-o-1715190714)
+> 原文：<https://jezebel.com/how-to-stay-warm-on-a-cold-ass-airplane-in-the-middle-o-1715190714>
 
 对于那些永远寒冷的人来说，真正的痛苦是被困在飞机上，瑟瑟发抖，祈祷自己的脚趾还在脚上。当你问一个没有同情心的空乘人员是否可以调节机舱温度时，你的话是含糊不清的——这是体温过低的表现。
 

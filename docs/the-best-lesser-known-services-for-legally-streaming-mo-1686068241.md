@@ -1,6 +1,6 @@
 # 最好的鲜为人知的合法流媒体电影和电视服务
 
-> 原文:[https://life hacker . com/the-best-lesser-known-services-for-legal-streaming-mo-1686068241](https://lifehacker.com/the-best-lesser-known-services-for-legally-streaming-mo-1686068241)
+> 原文：<https://lifehacker.com/the-best-lesser-known-services-for-legally-streaming-mo-1686068241>
 
 这很容易忘记，但除了网飞、Hulu 和亚马逊之外，还有很多其他方式来播放电影和电视。这里有一些最好的——有时是免费的——合法选择。
 

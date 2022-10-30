@@ -1,6 +1,6 @@
 # 问专家:如何在工作面试中脱颖而出
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-acing-the-job-interview-1601113070](https://lifehacker.com/ask-an-expert-all-about-acing-the-job-interview-1601113070)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-acing-the-job-interview-1601113070>
 
 在找工作的时候，仅仅是迈出第一步就很难，一旦你迈出了第一步，要想在面试中胜出就有很大的压力。你如何保持冷静，并向你的潜在雇主展示你的能力？
 

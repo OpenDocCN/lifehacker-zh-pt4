@@ -1,6 +1,6 @@
 # 用这些 DIY 万圣节装饰品吓唬你的邻居
 
-> 原文:[https://gizmodo . com/the-ultimate-collection-of-clever-decorations-1649445688](https://gizmodo.com/the-ultimate-collection-of-clever-halloween-decorations-1649445688)
+> 原文：<https://gizmodo.com/the-ultimate-collection-of-clever-halloween-decorations-1649445688>
 
 还在为万圣节的装饰发愁吗？我们会掩护你的。我们在网上搜索了最好的万圣节美食，并为你带来了一份最棒的笑话和嘘声清单。有些是简单的、DIY 的、廉价的作品；其他人可能需要一点技巧。但都是耸人听闻。
 

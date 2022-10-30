@@ -1,6 +1,6 @@
 # 户外家居维修你完全可以自己处理
 
-> 原文:[https://life hacker . com/outdoor-home-repairs-you-can-total-handle-you-self-1702709456](https://lifehacker.com/outdoor-home-repairs-you-can-totally-handle-yourself-1702709456)
+> 原文：<https://lifehacker.com/outdoor-home-repairs-you-can-totally-handle-yourself-1702709456>
 
 现在，更干燥、更温暖的春天终于来了，是时候解决一些你可能已经推迟的讨厌的户外维修了。这里有七种常见的户外修理方法，你可以自己动手，不需要经验。
 

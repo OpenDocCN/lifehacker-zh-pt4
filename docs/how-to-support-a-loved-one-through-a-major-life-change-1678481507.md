@@ -1,6 +1,6 @@
 # 如何通过重大的生活变化来支持所爱的人
 
-> 原文:[https://life hacker . com/how-to-support-a-love-one-through-a-major-life-change-1678481507](https://lifehacker.com/how-to-support-a-loved-one-through-a-major-life-change-1678481507)
+> 原文：<https://lifehacker.com/how-to-support-a-loved-one-through-a-major-life-change-1678481507>
 
 一个人经历重大的人生转变从来都不容易。所以，当你身边的人面临巨大的变化时，你要尽你所能帮助他们。以下是你如何在生活发生重大变化时为他们提供支持。
 

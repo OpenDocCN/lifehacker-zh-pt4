@@ -1,6 +1,6 @@
 # 导航器的桌面
 
-> 原文:[https://lifehacker.com/the-navigators-desktop-1702429376](https://lifehacker.com/the-navigators-desktop-1702429376)
+> 原文：<https://lifehacker.com/the-navigators-desktop-1702429376>
 
 读者 [盐和胡椒](http://kinja.com/salt-and-pepper) 向我们的桌面展示区提交了这个漂亮、实用的桌面。边上的一些小部件和左边的工作空间，一切都完成了。这是它的制作方法。
 

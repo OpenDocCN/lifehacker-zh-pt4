@@ -1,6 +1,6 @@
 # iOS 字体、股票应用程序和键盘快捷键
 
-> 原文:[https://life hacker . com/IOs-fonts-stock-apps-and-keyboard-shortcut s-1552401426](https://lifehacker.com/ios-fonts-stock-apps-and-keyboard-shortcuts-1552401426)
+> 原文：<https://lifehacker.com/ios-fonts-stock-apps-and-keyboard-shortcuts-1552401426>
 
 读者们提供了在 iOS 中安装新字体、在 iOS 7.1 中隐藏股票应用以及在 windows 中为切换窗口分配热键的最佳技巧。
 

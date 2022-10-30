@@ -1,6 +1,6 @@
 # 如何培养一种多面手的心态，永远不再感到无聊
 
-> 原文:[https://life hacker . com/how-to-develop-a-jack-of-all-trade-mind-and-never-b-1694499746](https://lifehacker.com/how-to-develop-a-jack-of-all-trades-mindset-and-never-b-1694499746)
+> 原文：<https://lifehacker.com/how-to-develop-a-jack-of-all-trades-mindset-and-never-b-1694499746>
 
 做一个万事通意味着。这也意味着树立信心，适应能力强，成为一名优秀的领导者——但这需要正确的心态。无论你想拓展一点还是希望你能做所有的事情，这份指南将帮助你指明正确的方向。
 

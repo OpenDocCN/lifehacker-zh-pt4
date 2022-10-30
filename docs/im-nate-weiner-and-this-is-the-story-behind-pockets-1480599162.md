@@ -1,6 +1,6 @@
 # 我是内特·韦纳，这是口袋集锦背后的故事
 
-> 原文:[https://life hacker . com/im-Nate-Weiner-and-this-is-the-story-behind-the-pockets-1480599162](https://lifehacker.com/im-nate-weiner-and-this-is-the-story-behind-pockets-1480599162)
+> 原文：<https://lifehacker.com/im-nate-weiner-and-this-is-the-story-behind-pockets-1480599162>
 
 我们长期以来一直是 [Pocket](http://getpocket.com/?ep=1) 的粉丝，这是一种书签服务，可以让你保存资料供以后阅读或观看。它以其长长的功能列表、支持的设备(iOS、Android、Chrome 和 web，以及 Windows Phone、BlackBerry、WebOS 和其他设备的第三方客户端)和超过 500 个 支持的应用程序赢得了我们的支持。现在， [Pocket](https://lifehacker.com/read-later-apps-compared-pocket-vs-instapaper-vs-r-5894995) 增加了 Highlights，这是一个扫描你的保存并根据热门话题、长阅读和你的兴趣突出显示你最可能感兴趣的内容的更新。我们和 Pocket 的创始人 Nate Weiner 聊了聊这款应用的最新功能。
 

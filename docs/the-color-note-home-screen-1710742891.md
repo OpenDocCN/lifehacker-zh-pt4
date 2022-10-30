@@ -1,6 +1,6 @@
 # 彩色便笺主屏幕
 
-> 原文:[https://life hacker . com/the-color-note-home-screen-1710742891](https://lifehacker.com/the-color-note-home-screen-1710742891)
+> 原文：<https://lifehacker.com/the-color-note-home-screen-1710742891>
 
 如果你喜欢色彩的飞溅，也觉得音符很有美感，那么这个主屏幕设计至少有两样东西是你喜欢的。
 

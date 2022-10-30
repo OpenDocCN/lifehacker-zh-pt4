@@ -1,6 +1,6 @@
 # 没有鞋钉寻找器如何找到鞋钉
 
-> 原文:[https://life hacker . com/three-way-to-find-a-stud-finder-1636206760](https://lifehacker.com/three-ways-to-find-a-stud-without-a-stud-finder-1636206760)
+> 原文：<https://lifehacker.com/three-ways-to-find-a-stud-without-a-stud-finder-1636206760>
 
 我们都曾有过这样的经历:当你正在悬挂一幅画、一个架子或一个电视支架时，急切地想要找到一个壁柱。大多数螺柱发现者充其量是不一致的，我发现我越了解房子是如何建造的，就越容易通过逻辑而不是设备找到螺柱。代替购买另一个工具，这里有几个小技巧，不用任何花哨的设备就能找到一个种马。
 

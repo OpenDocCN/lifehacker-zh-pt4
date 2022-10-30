@@ -1,6 +1,6 @@
 # 在 Craigslist 上购买二手车的最佳策略
 
-> 原文:[https://life hacker . com/the-best-strategy-for-buying-a-craigslist-1657481513](https://lifehacker.com/the-best-strategy-for-buying-a-used-car-on-craigslist-1657481513)
+> 原文：<https://lifehacker.com/the-best-strategy-for-buying-a-used-car-on-craigslist-1657481513>
 
 当你想买一辆二手车时，Craigslist 可能是一个很好的资源，但你需要保持警惕，并以怀疑的态度对待所有的列表。当你亲自看到这辆车时，有几件事你应该记住，这样你才能保持安全，不被骗。
 

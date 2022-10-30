@@ -1,6 +1,6 @@
 # 在 OAuth 和 OpenID 中发现的安全缺陷，对您意味着什么
 
-> 原文:[https://life hacker . com/security-flaw-found-in-oauth-and-OpenID-heres-what-it-1570872265](https://lifehacker.com/security-flaw-found-in-oauth-and-openid-heres-what-it-1570872265)
+> 原文：<https://lifehacker.com/security-flaw-found-in-oauth-and-openid-heres-what-it-1570872265>
 
 又是一天，又一个重大互联网安全漏洞(靠边站，)。在 OpenID 和 OAuth 2.0 中发现了一个错误，这两个认证程序可以让你使用谷歌、脸书和其他主要账户登录网站。以下是您需要了解的安全缺陷。
 

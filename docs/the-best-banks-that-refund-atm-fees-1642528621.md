@@ -1,6 +1,6 @@
 # 退还自动取款机费用的最好的银行
 
-> 原文:[https://life hacker . com/the-best-banks-that-refund-ATM-fees-1642528621](https://lifehacker.com/the-best-banks-that-refund-atm-fees-1642528621)
+> 原文：<https://lifehacker.com/the-best-banks-that-refund-atm-fees-1642528621>
 
 仅仅在过去的一年里，自动取款机的费用已经增加了超过百分之五。Bankrate [最近报道](http://www.bankrate.com/finance/checking/checking-account-fees-surge-to-new-highs-1.aspx) 使用网络外 ATM 的平均成本现在是每笔交易 4.35 美元。那是昂贵的，但是有救济。许多银行对网络外的自动取款机进行报销。
 

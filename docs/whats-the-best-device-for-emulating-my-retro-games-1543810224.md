@@ -1,6 +1,6 @@
 # 模仿我的复古游戏最好的设备是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-device-for-emulating-my-retro-games-1543810224](https://lifehacker.com/whats-the-best-device-for-emulating-my-retro-games-1543810224)
+> 原文：<https://lifehacker.com/whats-the-best-device-for-emulating-my-retro-games-1543810224>
 
 亲爱的 Lifehacker，
 我想建一个复古游戏的仿真站，但是选项太多了！定制 PC、树莓 Pi、Android 平板电脑...哪个最好？各有什么利弊？

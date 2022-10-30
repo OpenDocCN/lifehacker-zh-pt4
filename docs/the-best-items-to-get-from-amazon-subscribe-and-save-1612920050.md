@@ -1,6 +1,6 @@
 # 从亚马逊获得的最佳商品订阅并保存
 
-> 原文:[https://life hacker . com/the-best-items-to-get-from-Amazon-subscribe-and-save-1612920050](https://lifehacker.com/the-best-items-to-get-from-amazon-subscribe-and-save-1612920050)
+> 原文：<https://lifehacker.com/the-best-items-to-get-from-amazon-subscribe-and-save-1612920050>
 
 像亚马逊的 [订阅和保存](http://www.amazon.com/gp/subscribe-and-save/details/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-best-items-to-get-from-amazon-subscribe-and-save-1612920050&asc_source=&tag=kinjalifehackerlink-20) 或 [目标订阅](http://www.target.com/c/target-subscriptions-ways-to-shop/-/N-55b84) 这样的服务对忙碌的人来说非常棒，他们更喜欢食品自动出现在他们的门口，而不是不得不去为他们购物。但是到底什么值得从这些服务中订购并不总是透明的。让我们把最好的东西列一个清单。
 

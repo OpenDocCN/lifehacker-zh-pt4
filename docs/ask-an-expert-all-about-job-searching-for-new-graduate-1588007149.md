@@ -1,6 +1,6 @@
 # 问专家:所有关于新毕业生找工作的问题
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-job-searching-new-graduate-1588007149](https://lifehacker.com/ask-an-expert-all-about-job-searching-for-new-graduate-1588007149)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-job-searching-for-new-graduate-1588007149>
 
 大学毕业是一个激动人心的时刻，因为你要冒险进入这个世界开始你的职业生涯。当你找工作时，也很难迈出第一步。阿曼达·奥古斯汀将为你提供帮助，她是一名职业顾问兼简历撰写者，提供求职匹配服务。
 

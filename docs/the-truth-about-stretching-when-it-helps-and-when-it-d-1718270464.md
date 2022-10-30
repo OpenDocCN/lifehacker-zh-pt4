@@ -1,6 +1,6 @@
 # 你所知道的关于拉伸的一切都是错误的
 
-> 原文:[https://life hacker . com/the-truth-about-stretching-when-it-help-and-when-it-d-1718270464](https://lifehacker.com/the-truth-about-stretching-when-it-helps-and-when-it-d-1718270464)
+> 原文：<https://lifehacker.com/the-truth-about-stretching-when-it-helps-and-when-it-d-1718270464>
 
 我们拉伸有很多原因:因为感觉很好，因为这是我们锻炼前例行公事的一部分，因为肌肉僵硬，我们认为拉伸会修复它。但是我们对拉伸的大部分了解——以及我们使用拉伸的方式——都是基于一厢情愿的想法和过时的科学。我们在为所有错误的理由伸展身体。
 

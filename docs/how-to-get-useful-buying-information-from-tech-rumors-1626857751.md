@@ -1,6 +1,6 @@
 # 如何从科技谣言中获取有用的购买信息
 
-> 原文:[https://life hacker . com/how-to-get-used-buying-information-from-tech-rumors-1626857751](https://lifehacker.com/how-to-get-useful-buying-information-from-tech-rumors-1626857751)
+> 原文：<https://lifehacker.com/how-to-get-useful-buying-information-from-tech-rumors-1626857751>
 
 下周，三星、摩托罗拉和苹果都将推出新产品。你可能已经在互联网上看到了大量相互矛盾的谣言，其中大部分可能是假的。以下是如何真正利用科技谣言做出更好的购买决定。
 

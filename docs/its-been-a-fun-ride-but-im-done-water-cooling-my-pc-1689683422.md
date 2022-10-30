@@ -1,6 +1,6 @@
 # 这是一次有趣的旅程，但我已经厌倦了用水冷却我的电脑
 
-> 原文:[https://life hacker . com/its-be-a-fun-ride-but-im-done-water-cooling-my-PC-1689683422](https://lifehacker.com/its-been-a-fun-ride-but-im-done-water-cooling-my-pc-1689683422)
+> 原文：<https://lifehacker.com/its-been-a-fun-ride-but-im-done-water-cooling-my-pc-1689683422>
 
 [Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)) : title[![](../Images/044fbadc98edfd613c34b7c809fe4420.png)](https://pcbuild.kinja.com)[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)Building your own desktop PC is a great, geeky pleasure. We'll show you how to do it and everything you need to know to keep your system properly maintained.
 

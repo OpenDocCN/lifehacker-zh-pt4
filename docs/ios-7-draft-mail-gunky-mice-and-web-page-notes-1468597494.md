@@ -1,6 +1,6 @@
 # iOS 7 草稿邮件、黏糊糊的鼠标和网页笔记
 
-> 原文:[https://life hacker . com/IOs-7-draft-mail-gunky-mice-and-web-page-notes-1468597494](https://lifehacker.com/ios-7-draft-mail-gunky-mice-and-web-page-notes-1468597494)
+> 原文：<https://lifehacker.com/ios-7-draft-mail-gunky-mice-and-web-page-notes-1468597494>
 
 读者提供了他们在 iOS 7 邮件应用程序中快速起草电子邮件、清除鼠标脚上的粘糊糊的东西以及给网页添加注释的最佳技巧。
 

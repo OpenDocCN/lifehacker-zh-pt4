@@ -1,6 +1,6 @@
 # iPhone 6 Plus 评测:我用过的最好的平板电脑
 
-> 原文:[https://gizmodo . com/iphone-6-plus-review-the-best-table t-ive-ever-used-1638638046](https://gizmodo.com/iphone-6-plus-review-the-best-tablet-ive-ever-used-1638638046)
+> 原文：<https://gizmodo.com/iphone-6-plus-review-the-best-tablet-ive-ever-used-1638638046>
 
 六年前，我坐在我女朋友的沙发上，漫不经心地把她的新 iPhone 3G 翻过来翻过去。我在想为什么有人会买 iPhone 而不是我的明显更好的 T-Mobile G1 手机。是的，我是一个安卓迷，前 Sidekick 所有者，他认为智能手机 [应该有物理键盘](http://www.theverge.com/2013/11/15/5104704/i-come-not-to-praise-qwerty-but-to-bury-it) ，并且水平放置以获得最大效果。换句话说，我想要一台适合我口袋的笔记本电脑，看起来糟透了。当我意识到她的 iPhone 甚至不能让我舒服地打字——双手握在小巧的人像键盘上——我鄙视地看着它。
 

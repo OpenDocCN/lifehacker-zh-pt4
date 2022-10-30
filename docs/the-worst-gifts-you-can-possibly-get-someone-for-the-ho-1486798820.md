@@ -1,6 +1,6 @@
 # 节日里你可能收到的最糟糕的礼物
 
-> 原文:[https://life hacker . com/the-worst-gifts-you-can-possible-get-someone for-the-ho-1486798820](https://lifehacker.com/the-worst-gifts-you-can-possibly-get-someone-for-the-ho-1486798820)
+> 原文：<https://lifehacker.com/the-worst-gifts-you-can-possibly-get-someone-for-the-ho-1486798820>
 
 不是每个礼物的想法都是好的，无论是出于实际原因还是个人原因。在你或你关心的人犯下让你负债累累的严重错误之前，在他们不了解你的情况下尝试一些非常私人的东西，或者犯下大错之前，让我们来看看这个假期你真的不应该送的一些最糟糕的礼物。
 

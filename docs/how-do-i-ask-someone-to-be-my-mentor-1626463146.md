@@ -1,6 +1,6 @@
 # 我如何请人做我的导师？
 
-> 原文:[https://life hacker . com/how-do-I-ask-someone-to-be-my-mentor-1626463146](https://lifehacker.com/how-do-i-ask-someone-to-be-my-mentor-1626463146)
+> 原文：<https://lifehacker.com/how-do-i-ask-someone-to-be-my-mentor-1626463146>
 
 亲爱的生活黑客，
 我明白 [有一个导师](https://lifehacker.com/find-a-mentor-to-take-your-career-to-the-next-level-5990246) ，或者一个我可以从其经验中受益的人是多么有用。一旦我找到了某人，我该怎么问他们呢？你只是发邮件问他们，还是有更好的方法来说明你的情况？

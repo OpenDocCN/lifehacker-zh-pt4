@@ -1,6 +1,6 @@
 # 知识与行动:阻碍你更健康的三个障碍
 
-> 原文:[https://life hacker . com/knowledge-vs-action-three-road-blocks-keying-you-from-1690430446](https://lifehacker.com/knowledge-vs-action-three-road-blocks-keeping-you-from-1690430446)
+> 原文：<https://lifehacker.com/knowledge-vs-action-three-road-blocks-keeping-you-from-1690430446>
 
 你有没有吃过明知会让你感到不舒服的下一片披萨？或者也许医生告诉你今天要锻炼 30 分钟，但你就是不能把自己从单身汉身边拉走。如果这听起来很熟悉，你并不孤单。这就是为什么知识并不总是导致行动，你可以做些什么来代替。
 

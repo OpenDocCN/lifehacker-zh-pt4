@@ -1,6 +1,6 @@
 # 自定 Mac Pro 工作区
 
-> 原文:[https://life hacker . com/the-custom-macbook-pro-workspace-1606118848](https://lifehacker.com/the-custom-macbook-pro-workspace-1606118848)
+> 原文：<https://lifehacker.com/the-custom-macbook-pro-workspace-1606118848>
 
 今天的特色工作空间是一个极简主义的家庭办公室，有一个古怪的特点:在胡桃木桌子上有一个雕刻点，用于放置圆柱形的 Mac Pro 电脑。
 

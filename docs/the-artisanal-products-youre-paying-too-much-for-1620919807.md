@@ -1,6 +1,6 @@
 # 你花太多钱买的手工制品
 
-> 原文:[https://life hacker . com/the-artisan-products-you-pay-over-that-for-1620919807](https://lifehacker.com/the-artisanal-products-youre-paying-too-much-for-1620919807)
+> 原文：<https://lifehacker.com/the-artisanal-products-youre-paying-too-much-for-1620919807>
 
 威士忌、橄榄油、松露油和肉是生活中一些美好的享受。但更多的时候，我们为产品付出了太多，结果却是一个骗局，或者更糟，与廉价的东西没什么区别。这里只是一些你可能会浪费金钱的更受欢迎的手工艺品。
 

@@ -1,6 +1,6 @@
 # 你永远不必付全价的 10 大东西
 
-> 原文:[https://life hacker . com/top-10-things-you-never-to-pay-full-price for-1460923708](https://lifehacker.com/top-10-things-you-never-have-to-pay-full-price-for-1460923708)
+> 原文：<https://lifehacker.com/top-10-things-you-never-have-to-pay-full-price-for-1460923708>
 
 谁不喜欢便宜货呢？买到划算的东西总是让人感觉很棒，而且有些东西你几乎总是可以打折买到。这里有 10 样你可以避免支付全价的东西。
 

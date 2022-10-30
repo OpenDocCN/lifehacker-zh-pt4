@@ -1,6 +1,6 @@
 # Google Play 向您展示为什么某个应用程序与您的设备不兼容
 
-> 原文:[https://life hacker . com/Google-play-shows-you-why-a-app-is-compatible-with-y-496328577](https://lifehacker.com/google-play-shows-you-why-an-app-is-incompatible-with-y-496328577)
+> 原文：<https://lifehacker.com/google-play-shows-you-why-an-app-is-incompatible-with-y-496328577>
 
 在某个时候，你会遇到一个不能在你的 Android 设备上运行的应用。如果你想找出原因，Google Play 其实会告诉你——只是有点隐藏而已。
 

@@ -1,6 +1,6 @@
 # 手机充电只需一半时间:快速充电器解释
 
-> 原文:[https://life hacker . com/charge-your-phone-in-half-time-quick-chargers-expl-1682276989](https://lifehacker.com/charge-your-phone-in-half-the-time-quick-chargers-expl-1682276989)
+> 原文：<https://lifehacker.com/charge-your-phone-in-half-the-time-quick-chargers-expl-1682276989>
 
 如果你去年买了一部手机，它可能包含了某种快速充电器，或者提供了一个作为配件。以下是它们如何用普通充电器一半的时间为你的手机充电。
 

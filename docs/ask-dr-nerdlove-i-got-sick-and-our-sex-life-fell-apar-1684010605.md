@@ -1,6 +1,6 @@
 # 去问 Nerdlove 医生:我生病了，我们的性生活破裂了
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-get-sick-and-our-sex-life-fell-APAR-1684010605](https://kotaku.com/ask-dr-nerdlove-i-got-sick-and-our-sex-life-fell-apar-1684010605)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-got-sick-and-our-sex-life-fell-apar-1684010605>
 
 你好，互联网！欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个根据第 2814 条款 g 小节注册代理的约会建议专栏
 

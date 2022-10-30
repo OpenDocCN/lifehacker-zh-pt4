@@ -1,6 +1,6 @@
 # DIY 扬声器、网站字体和网飞增强功能
 
-> 原文:[https://life hacker . com/DIY-speakers-web-site-fonts-and-网飞-enhancements-1479923337](https://lifehacker.com/diy-speakers-web-site-fonts-and-netflix-enhancements-1479923337)
+> 原文：<https://lifehacker.com/diy-speakers-web-site-fonts-and-netflix-enhancements-1479923337>
 
 读者们提供了他们的最佳建议，来制作你自己的品客罐扬声器，改变任何网站上的字体，以及在网飞获得额外的收视率和预告片。
 

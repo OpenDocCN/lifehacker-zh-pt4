@@ -1,6 +1,6 @@
 # 每一部 iPhone，排名
 
-> 原文:[https://gizmodo.com/every-iphone-ranked-1470172401](https://gizmodo.com/every-iphone-ranked-1470172401)
+> 原文：<https://gizmodo.com/every-iphone-ranked-1470172401>
 
 买 iPhone 不糊涂。你有 50%的机会做对(不像几个月前你有 100%的成功率)。但是，如果你仍然需要帮助来决定哪一款 iPhone 是最好的，下面是我们对它们的排名。
 

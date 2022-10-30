@@ -1,6 +1,6 @@
 # 如何处理老板的辞职
 
-> 原文:[https://life hacker . com/how-to-deal-your-boss-辞职-1719116525](https://lifehacker.com/how-to-deal-with-your-bosss-resignation-1719116525)
+> 原文：<https://lifehacker.com/how-to-deal-with-your-bosss-resignation-1719116525>
 
 如今，很少会遇到在整个职业生涯中一直处于同一职位的人，但尽管我们大多数人都明白，对于任何职业人士来说，转换到另一个职位几乎是必然会发生的事情，但我们往往会忘记老板也会继续前进这一事实。
 

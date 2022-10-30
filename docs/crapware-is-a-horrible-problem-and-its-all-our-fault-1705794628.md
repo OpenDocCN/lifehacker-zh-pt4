@@ -1,6 +1,6 @@
 # 垃圾软件是一个可怕的问题，这是我们的错
 
-> 原文:[https://life hacker . com/crapware-is-a-terrible-problem-and-it ' s-all-our-fault-1705794628](https://lifehacker.com/crapware-is-a-horrible-problem-and-its-all-our-fault-1705794628)
+> 原文：<https://lifehacker.com/crapware-is-a-horrible-problem-and-its-all-our-fault-1705794628>
 
 我喜欢免费的应用程序。谁不爱不劳而获呢？只有一个问题:在下载链接的另一边，每个开发者都必须选择是对他们的应用程序收费，还是免费提供，并找到其他赚钱的方法。当我们拒绝付款时，我们为他们做了决定。我们创造了对捆绑垃圾软件的需求。
 

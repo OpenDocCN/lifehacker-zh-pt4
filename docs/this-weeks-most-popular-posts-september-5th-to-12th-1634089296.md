@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:9 月 5 日至 12 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-9 月 5 日至 12 日-1634089296](https://lifehacker.com/this-weeks-most-popular-posts-september-5th-to-12th-1634089296)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-september-5th-to-12th-1634089296>
 
 这一周我们 [又换了密码](https://lifehacker.com/5-million-gmail-passwords-leaked-check-yours-now-1632983265)[了解了苹果所有的新玩意儿](http://lifehacker.com/everything-apple-announced-today-that-actually-matters-1632525592)[升级到 iOS 8](http://lifehacker.com/how-to-upgrade-to-ios-8-right-now-1632595909)[把害虫防治掌握在自己手里](http://lifehacker.com/keep-your-home-bug-free-with-these-diy-pest-control-met-1631181023) 。这里回顾一下。
 

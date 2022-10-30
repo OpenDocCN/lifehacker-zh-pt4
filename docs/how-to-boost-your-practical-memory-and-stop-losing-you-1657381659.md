@@ -1,6 +1,6 @@
 # 如何增强你的实际记忆力(并防止丢失钥匙)
 
-> 原文:[https://life hacker . com/how-to-boost-you-practical-memory-and-stop-lost-you-1657381659](https://lifehacker.com/how-to-boost-your-practical-memory-and-stop-losing-you-1657381659)
+> 原文：<https://lifehacker.com/how-to-boost-your-practical-memory-and-stop-losing-you-1657381659>
 
 当你知道如何使用它时，没有什么比你自己的记忆更有效的了，即使你认为你的记忆很缺乏。普通的记忆比你想象的要强大得多，这里有一些步骤来挖掘你记忆的力量，并在日常生活中利用它。
 

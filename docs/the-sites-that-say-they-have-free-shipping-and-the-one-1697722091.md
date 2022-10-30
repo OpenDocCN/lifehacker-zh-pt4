@@ -1,6 +1,6 @@
 # 那些声称免费送货的网站，以及那些真正免费送货的网站
 
-> 原文:[https://life hacker . com/the-sites-that-say-that-the-say-they-has-the-one-1697722091](https://lifehacker.com/the-sites-that-say-they-have-free-shipping-and-the-one-1697722091)
+> 原文：<https://lifehacker.com/the-sites-that-say-they-have-free-shipping-and-the-one-1697722091>
 
 网上订购和 [免运费](https://lifehacker.com/whats-the-best-way-to-save-on-shipping-when-i-shop-onli-5963216) ，以及免费退货，似乎是购物者的梦想。但许多在线零售商只是抬高价格，同时将这些“额外津贴”转嫁给你。以下是提供免费送货和退货的零售商的分类，以及他们与竞争对手的比较。
 

@@ -1,6 +1,6 @@
 # 让维基百科更棒的最好技巧和扩展
 
-> 原文:[https://life hacker . com/the-best-tricks-and-extensions-to-make-Wikipedia-awe som-1569461217](https://lifehacker.com/the-best-tricks-and-extensions-to-make-wikipedia-awesom-1569461217)
+> 原文：<https://lifehacker.com/the-best-tricks-and-extensions-to-make-wikipedia-awesom-1569461217>
 
 维基百科是各种各样有用的资源，但是它很难看，也不太容易定制。只需一些扩展和技巧，您就可以让它变得更加可用。
 

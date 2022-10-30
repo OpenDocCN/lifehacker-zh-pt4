@@ -1,6 +1,6 @@
 # 自动清理音乐库的最佳应用
 
-> 原文:[https://life hacker . com/the-best-apps-for-automatically-cleaning-your-music-1561265062](https://lifehacker.com/the-best-apps-for-automatically-cleaning-up-your-music-1561265062)
+> 原文：<https://lifehacker.com/the-best-apps-for-automatically-cleaning-up-your-music-1561265062>
 
 你的音乐库很珍贵。里面全是难找的曲目，撕坏的 CD，稀有的下载。也可能是一团糟。在 Spotify 上查找这些歌曲可能比享受你拥有的高质量音频文件更容易。幸运的是，有一些很棒的免费工具来清理它，并确保这种情况不会再发生。让我们看看最好的。
 

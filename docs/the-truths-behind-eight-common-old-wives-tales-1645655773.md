@@ -1,6 +1,6 @@
 # 八个常见“老妇人的故事”背后的真相
 
-> 原文:[https://life hacker . com/the-truth-behind-the-eight-common-old-wives-tales-1645655773](https://lifehacker.com/the-truths-behind-eight-common-old-wives-tales-1645655773)
+> 原文：<https://lifehacker.com/the-truths-behind-eight-common-old-wives-tales-1645655773>
 
 无论你是从朋友还是家人那里听到的，你都可能听到过一些听起来好得不像真的事情，或者完全是胡扯。这里收集了一些最受欢迎的“老妇人的故事”,这两种说法都有。
 

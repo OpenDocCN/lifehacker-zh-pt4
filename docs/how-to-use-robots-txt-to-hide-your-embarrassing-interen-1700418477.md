@@ -1,6 +1,6 @@
 # 如何使用 Robots.txt 隐藏你的哑博客
 
-> 原文:[https://gizmodo . com/how-to-use-robots-txt-hide-your-hanging-interen-1700418477](https://gizmodo.com/how-to-use-robots-txt-to-hide-your-embarrassing-interen-1700418477)
+> 原文：<https://gizmodo.com/how-to-use-robots-txt-to-hide-your-embarrassing-interen-1700418477>
 
 完全从网上删除一些东西 就像把喝醉的野鹅放出来关在笼子里:几乎不可能。但是有办法隐藏你不想让任何人看到的网页内容。你可以用搜索引擎的“禁止入内”标志隐藏各种网页:一个叫做 robots.txt 的特殊文件。
 

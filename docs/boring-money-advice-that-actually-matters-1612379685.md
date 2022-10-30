@@ -1,6 +1,6 @@
 # 无聊的理财建议其实很重要
 
-> 原文:[https://life hacker . com/boring-money-advice-that-actually-matters-1612379685](https://lifehacker.com/boring-money-advice-that-actually-matters-1612379685)
+> 原文：<https://lifehacker.com/boring-money-advice-that-actually-matters-1612379685>
 
 个人理财并不是最令人兴奋的话题。“应急基金”和“401(k)捐款”这两个词并不令人激动，但它们很重要——尽管很多人并不关注它。这里有一些你可能会忽略的无聊的理财建议，以及为什么你应该关注并遵循这些建议。
 

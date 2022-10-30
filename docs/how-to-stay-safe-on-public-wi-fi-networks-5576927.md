@@ -1,6 +1,6 @@
 # 如何在公共 Wi-Fi 网络上保持安全
 
-> 原文:[https://life hacker . com/how-to-stay-safe-on-public-wi-fi-networks-5576927](https://lifehacker.com/how-to-stay-safe-on-public-wi-fi-networks-5576927)
+> 原文：<https://lifehacker.com/how-to-stay-safe-on-public-wi-fi-networks-5576927>
 
 公共 Wi-Fi 网络——如咖啡店或酒店中的网络——远没有你想象的那么安全。即使他们有密码，你也在和成千上万的其他人共享一个网络，这意味着你的数据面临风险。以下是如何在外出时保持安全的方法。
 

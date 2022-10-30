@@ -1,6 +1,6 @@
 # 烹饪完美汉堡和热狗的十大秘诀
 
-> 原文:[https://life hacker . com/top-10-tips-to-cooking the 完美汉堡和热狗-1718666048](https://lifehacker.com/top-10-tips-for-cooking-the-perfect-burgers-and-hot-dog-1718666048)
+> 原文：<https://lifehacker.com/top-10-tips-for-cooking-the-perfect-burgers-and-hot-dog-1718666048>
 
 现在是做汉堡和热狗的黄金时间，无论你是把它们扔到烤架上还是在室内烹饪。通过我们的 10 大汉堡和热狗小贴士，将这些经典食物推向新的高度。
 

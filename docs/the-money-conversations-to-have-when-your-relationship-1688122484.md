@@ -1,6 +1,6 @@
 # 当你们的关系变得严肃时，关于金钱的对话
 
-> 原文:[https://life hacker . com/the-money-conversations-to-have-when-your-relationship-1688122484](https://lifehacker.com/the-money-conversations-to-have-when-your-relationship-1688122484)
+> 原文：<https://lifehacker.com/the-money-conversations-to-have-when-your-relationship-1688122484>
 
 夫妻吵架更多的是为了钱。你和你的伴侣在各方面都很和谐，但是当涉及到钱的时候，火花四溅。在财务上达成共识可能会很困难。为了让事情变得简单，当关系开始变得严肃时，谈论一些重要的话题。
 

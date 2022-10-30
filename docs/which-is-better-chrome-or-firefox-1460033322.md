@@ -1,6 +1,6 @@
 # Chrome 和 Firefox 哪个好？
 
-> 原文:[https://life hacker . com/chrome 和 firefox 哪个更好-1460033322](https://lifehacker.com/which-is-better-chrome-or-firefox-1460033322)
+> 原文：<https://lifehacker.com/which-is-better-chrome-or-firefox-1460033322>
 
 浏览器大战并不新鲜。如今，浏览世界的两大巨头是 Firefox 和 Chrome，这两个浏览器都很棒。但是我们想听听你的意见。让它有价值，因为下周我们会发表一篇后续文章，提供双方最好的论点。
 

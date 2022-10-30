@@ -1,6 +1,6 @@
 # 哪里可以学到家装技巧？
 
-> 原文:[https://life hacker . com/where-can-I-learn-home-improvement-skills-1535195959](https://lifehacker.com/where-can-i-learn-home-improvement-skills-1535195959)
+> 原文：<https://lifehacker.com/where-can-i-learn-home-improvement-skills-1535195959>
 
 亲爱的 Lifehacker，我刚刚搬进自己的住处！这是我的第一个家，我很兴奋。然而，我知道有些修理工作我必须自己去做，我也想做一些改进。问题是，我不知道从哪里开始。我如何使用这些工具，我从哪里得到它们？我如何确保我的工作是安全的，不会损坏我的家？有人给新房主提供培训什么的吗？
 

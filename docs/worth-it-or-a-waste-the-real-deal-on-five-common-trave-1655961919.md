@@ -1,6 +1,6 @@
 # 值得还是浪费？五种常见旅行升级的真实交易
 
-> 原文:[https://life hacker . com/worth-it-or-a-waste-the-real-deal-on-five-common-trave-1655961919](https://lifehacker.com/worth-it-or-a-waste-the-real-deal-on-five-common-trave-1655961919)
+> 原文：<https://lifehacker.com/worth-it-or-a-waste-the-real-deal-on-five-common-trave-1655961919>
 
 无论你是一个出差在外的时间比在家多的出差族，还是一个只享受快乐的人，你可能都在争论某些旅行津贴是否会让你的旅行更愉快。以下是一些值得额外付费的升级，以及一些不值得的升级。
 

@@ -1,6 +1,6 @@
 # 金钱会停止拖延，现在就开始处理
 
-> 原文:[https://life hacker . com/the-money-moves-to-stop-drafting-and-take-care-o-1682672113](https://lifehacker.com/the-money-moves-to-stop-procrastinating-and-take-care-o-1682672113)
+> 原文：<https://lifehacker.com/the-money-moves-to-stop-procrastinating-and-take-care-o-1682672113>
 
 54%的美国人计划制定 2015 年的财务计划。根据银行储户的一项新的民意调查 显示，存钱、偿还债务和增加支出继续高居榜首。鉴于只有 8%的人真正实现了他们的决心，也许是时候改变一下了。
 

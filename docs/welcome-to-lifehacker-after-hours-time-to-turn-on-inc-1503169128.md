@@ -1,6 +1,6 @@
 # 欢迎来到生活骇客，下班后:是时候开启隐姓埋名模式了
 
-> 原文:[https://life hacker . com/welcome-to-life hacker-after-hours-time-to-turn-on-Inc-1503169128](https://lifehacker.com/welcome-to-lifehacker-after-hours-time-to-turn-on-inc-1503169128)
+> 原文：<https://lifehacker.com/welcome-to-lifehacker-after-hours-time-to-turn-on-inc-1503169128>
 
 在 Lifehacker，我们认为自己是乐于助人、注重实践和富有成效的人的大本营...我们从来没有你所说的“急躁”我们从未偏离我们更保守的本性太远。今天，我们正在改变这种情况。
 

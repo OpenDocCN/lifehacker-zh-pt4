@@ -1,6 +1,6 @@
 # 我们在与长辈沟通时犯的错误(以及如何改正)
 
-> 原文:[https://life hacker . com/the-errors-we-make-communication-with-elders-and-how-1575782036](https://lifehacker.com/the-mistakes-we-make-communicating-with-elders-and-how-1575782036)
+> 原文：<https://lifehacker.com/the-mistakes-we-make-communicating-with-elders-and-how-1575782036>
 
 有效的沟通需要你为你的听众量身定做你的信息。当谈到老年人时，我们许多人倾向于把他们当成孩子或残疾人。以下是我们都会犯的最常见的错误，以及如何避免它们。
 

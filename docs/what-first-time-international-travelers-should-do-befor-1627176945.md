@@ -1,6 +1,6 @@
 # 第一次出国旅行的人在出发前应该做什么
 
-> 原文:[https://life hacker . com/what-first-time-international-travelers-before-1627176945](https://lifehacker.com/what-first-time-international-travelers-should-do-befor-1627176945)
+> 原文：<https://lifehacker.com/what-first-time-international-travelers-should-do-befor-1627176945>
 
 第一次离开这个国家，想想可能会有点害怕，但一点点准备就能大有帮助。在你出发之前，有一些事情需要考虑，这样你就可以为冒险做好准备。
 

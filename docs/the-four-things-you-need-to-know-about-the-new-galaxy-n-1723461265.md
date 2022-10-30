@@ -1,6 +1,6 @@
 # 关于新款 Galaxy Note 5 你需要知道的四件事
 
-> 原文:[https://gizmodo . com/the-four-things-you-need-to-know-the-things-the-new-galaxy-n-1723461265](https://gizmodo.com/the-four-things-you-need-to-know-about-the-new-galaxy-n-1723461265)
+> 原文：<https://gizmodo.com/the-four-things-you-need-to-know-about-the-new-galaxy-n-1723461265>
 
  [https://gizmodo.com/embed/inset/iframe?id=youtube-video-mzK6b6QpAHw&start=0](https://gizmodo.com/embed/inset/iframe?id=youtube-video-mzK6b6QpAHw&start=0) 
 

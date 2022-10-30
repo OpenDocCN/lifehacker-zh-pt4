@@ -1,6 +1,6 @@
 # 这是 Lifehacker 2014 最精彩的部分
 
-> 原文:[https://life hacker . com/this-is-the-best-of-life hacker-2014-1676404275](https://lifehacker.com/this-is-the-best-of-lifehacker-2014-1676404275)
+> 原文：<https://lifehacker.com/this-is-the-best-of-lifehacker-2014-1676404275>
 
 每年年底，我们都会回顾一下我们最受欢迎的帖子，以供回忆(并帮助你抓住任何你可能错过的东西)。让我们最后看一下 2014 年的最佳帖子。
 

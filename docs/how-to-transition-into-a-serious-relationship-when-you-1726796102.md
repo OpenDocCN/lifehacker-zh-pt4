@@ -1,6 +1,6 @@
 # 当你习惯单身时，如何过渡到一段感情
 
-> 原文:[https://life hacker . com/how-to-transition-to-a-serious-relationship-when-you-1726796102](https://lifehacker.com/how-to-transition-into-a-serious-relationship-when-you-1726796102)
+> 原文：<https://lifehacker.com/how-to-transition-into-a-serious-relationship-when-you-1726796102>
 
 似乎人们总是在寻找爱情，但是单身生活也可以很棒。你很独立，不需要妥协，习惯了 100%按自己的方式做事。当然，当你最终遇到合适的人时，这可能会让你很难适应一段关系。困难，但不是不可能。
 

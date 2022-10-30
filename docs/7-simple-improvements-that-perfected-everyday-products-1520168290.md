@@ -1,6 +1,6 @@
 # 7 项简单的改进完善了日常产品
 
-> 原文:[https://gizmodo . com/7-简单-改进-完善-日常用品-1520168290](https://gizmodo.com/7-simple-improvements-that-perfected-everyday-products-1520168290)
+> 原文：<https://gizmodo.com/7-simple-improvements-that-perfected-everyday-products-1520168290>
 
 一个好东西真的很难改进。但是每隔一段时间，一个你已经知道并喜爱了很长时间的产品会得到重新设计或调整，这是简单的天才之处。以下是我们认为理所当然的七个产品示例，最近通过一个小小的改变变得更加完美:
 

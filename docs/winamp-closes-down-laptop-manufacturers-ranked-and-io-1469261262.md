@@ -1,6 +1,6 @@
 # Winamp 倒闭，笔记本电脑厂商排名，iOS 控制器
 
-> 原文:[https://life hacker . com/winamp-closes-down-laptop-manufacturers-ranked-and-io-1469261262](https://lifehacker.com/winamp-closes-down-laptop-manufacturers-ranked-and-io-1469261262)
+> 原文：<https://lifehacker.com/winamp-closes-down-laptop-manufacturers-ranked-and-io-1469261262>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-mhaMlK-Refk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-mhaMlK-Refk&start=0) 
 

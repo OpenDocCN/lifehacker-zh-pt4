@@ -1,6 +1,6 @@
 # 哪种推理风格最能描述你的思维方式？
 
-> 原文:[https://gizmodo . com/which-reasoning-style-best-descriming-the-way-you-think-1713447931](https://gizmodo.com/which-reasoning-style-best-describes-the-way-you-think-1713447931)
+> 原文：<https://gizmodo.com/which-reasoning-style-best-describes-the-way-you-think-1713447931>
 
 你到底有多理性？这个由[ClearerThinking.org](http://www.clearerthinking.org)主持的综合在线测试不仅会给你答案，还会告诉你属于 16 种推理风格中的哪一种，你的优势在哪里，以及如何提高你的思维技巧。
 

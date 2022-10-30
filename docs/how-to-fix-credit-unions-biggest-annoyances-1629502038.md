@@ -1,6 +1,6 @@
 # 如何解决信用社最大的烦恼
 
-> 原文:[https://life hacker . com/how-to-fix-credit-unions-maximum-angioness-1629502038](https://lifehacker.com/how-to-fix-credit-unions-biggest-annoyances-1629502038)
+> 原文：<https://lifehacker.com/how-to-fix-credit-unions-biggest-annoyances-1629502038>
 
 出于许多理所应当的原因，银行受到了相当糟糕的指责。信用合作社是一个 [有吸引力的选择](https://lifehacker.com/how-do-i-switch-from-my-bank-to-a-credit-union-5857091) ，但这并不意味着你一定会过上轻松的生活。以下是信用合作社的一些最大问题，以及如何解决它们。
 

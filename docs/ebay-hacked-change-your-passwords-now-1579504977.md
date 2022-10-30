@@ -1,6 +1,6 @@
 # 易贝黑了，现在改变你的密码
 
-> 原文:[https://life hacker . com/ebay-hacked-change-your-passwords-now-1579504977](https://lifehacker.com/ebay-hacked-change-your-passwords-now-1579504977)
+> 原文：<https://lifehacker.com/ebay-hacked-change-your-passwords-now-1579504977>
 
 如果你有一个易贝帐户，是时候改变你的密码了。该公司今天发布了一份声明，称他们的内部和客户数据库在今年早些时候遭到破坏，从今天开始，他们将提示每个人更改密码。
 

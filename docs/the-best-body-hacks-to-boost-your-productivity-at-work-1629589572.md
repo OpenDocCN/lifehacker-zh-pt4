@@ -1,6 +1,6 @@
 # 提高工作效率的最佳身体训练
 
-> 原文:[https://life hacker . com/the-best-body-hacks-to-boost-your-productivity of-work-1629589572](https://lifehacker.com/the-best-body-hacks-to-boost-your-productivity-at-work-1629589572)
+> 原文：<https://lifehacker.com/the-best-body-hacks-to-boost-your-productivity-at-work-1629589572>
 
 人体是奇妙的。如果你知道如何 [利用其内置的超能力](https://lifehacker.com/learn-the-built-in-superpowers-of-your-brain-and-body-t-5911636) ，你可以比现在做得更多。用这些小技巧成为一个更有效率的工作者。
 

@@ -1,6 +1,6 @@
 # 如何从人生中最大的五次金融危机中恢复过来
 
-> 原文:[https://life hacker . com/how-to-bounce-from the five-life-maximum-financia-1533268358](https://lifehacker.com/how-to-bounce-back-from-five-of-lifes-biggest-financia-1533268358)
+> 原文：<https://lifehacker.com/how-to-bounce-back-from-five-of-lifes-biggest-financia-1533268358>
 
 生活就是改变。一些你计划并张开双臂欢迎的改变。别人会找到你，不管你是否准备好了——重点是*而不是*。无论是被淹的地下室带来的麻烦，还是家人去世带来的破坏，对于生活中的一些意外事件，无论是情感上还是经济上，都很难做好 100%的准备。
 

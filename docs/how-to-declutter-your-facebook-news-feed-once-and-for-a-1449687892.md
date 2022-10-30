@@ -1,6 +1,6 @@
 # 如何一劳永逸地清理您的脸书新闻提要
 
-> 原文:[https://life hacker . com/how-to-declutter-your-Facebook-news-feed-once-and-for-a-1449687892](https://lifehacker.com/how-to-declutter-your-facebook-news-feed-once-and-for-a-1449687892)
+> 原文：<https://lifehacker.com/how-to-declutter-your-facebook-news-feed-once-and-for-a-1449687892>
 
 你上一次看你的脸书视频，并真正喜欢上你看到的一切是什么时候？对于脸书所有的 [花式算法](https://lifehacker.com/how-facebook-is-using-you-to-annoy-your-friends-and-ho-5987248) ，它永远无法为你创造完美的饲料。以下是如何一劳永逸地清除订阅源，只查看您感兴趣的内容。
 

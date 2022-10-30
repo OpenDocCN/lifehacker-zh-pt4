@@ -1,6 +1,6 @@
 # 如何管理你的冬季害虫问题
 
-> 原文:[https://life hacker . com/how-to-manage-your-winter-pest-problem-1479822833](https://lifehacker.com/how-to-manage-your-winter-pest-problem-1479822833)
+> 原文：<https://lifehacker.com/how-to-manage-your-winter-pest-problem-1479822833>
 
 如果你认为 [夏天害虫吸](https://lifehacker.com/the-complete-guide-to-managing-your-summer-pest-problem-1183885737) ，那就等到冬天来临吧。唯一比冬天虫子大量涌入更糟糕的事情是啮齿动物的游行。当冬天来临的时候，你温暖的家对害虫变得格外有吸引力。以下是如何最大限度地减少一些更恼人的害虫问题。
 

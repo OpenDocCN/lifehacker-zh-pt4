@@ -1,6 +1,6 @@
 # 如何找到一个值得信赖的保姆
 
-> 原文:[https://life hacker . com/how-to-find-a-trust-house sitter-1655300565](https://lifehacker.com/how-to-find-a-trustworthy-housesitter-1655300565)
+> 原文：<https://lifehacker.com/how-to-find-a-trustworthy-housesitter-1655300565>
 
 当你离开很长一段时间，你可能需要有人照看你的房子、植物或宠物。找到一个你可以信任的好保姆很难，但很关键。下面是怎么做的。
 

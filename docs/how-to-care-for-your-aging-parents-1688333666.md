@@ -1,6 +1,6 @@
 # 如何照顾年迈的父母
 
-> 原文:[https://life hacker . com/how-to-care-for-your-aging-parents-1688333666](https://lifehacker.com/how-to-care-for-your-aging-parents-1688333666)
+> 原文：<https://lifehacker.com/how-to-care-for-your-aging-parents-1688333666>
 
 有一天，我们的父母将不能开车，不能爬楼梯，甚至不能自己换衣服或自己吃饭。尽管想到这一点可能会很痛苦，但我们需要做好准备，帮助他们在生命的最后阶段感到舒适和安全。以下是需要考虑的事项。
 

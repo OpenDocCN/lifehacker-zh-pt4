@@ -1,6 +1,6 @@
 # 最好的智能温控器是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-smart-themostat-1716630351](https://lifehacker.com/whats-the-best-smart-themostat-1716630351)
+> 原文：<https://lifehacker.com/whats-the-best-smart-themostat-1716630351>
 
 我们已经谈论了智能恒温器的一些好处 ，以及它们如何能帮你省钱，了解你的习惯，让你保持舒适。这个星期，我们想知道你认为哪些型号是最好的。
 

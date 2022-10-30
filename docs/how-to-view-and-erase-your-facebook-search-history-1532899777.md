@@ -1,6 +1,6 @@
 # 如何查看(和删除)您的脸书搜索历史
 
-> 原文:[https://life hacker . com/how-to-view-and-erase-your-Facebook-search-history-1532899777](https://lifehacker.com/how-to-view-and-erase-your-facebook-search-history-1532899777)
+> 原文：<https://lifehacker.com/how-to-view-and-erase-your-facebook-search-history-1532899777>
 
 每当你在脸书上搜索某样东西时，你的搜索词都会存储在你的活动日志中。以下是如何查看它(如果你愿意，也可以删除)。
 

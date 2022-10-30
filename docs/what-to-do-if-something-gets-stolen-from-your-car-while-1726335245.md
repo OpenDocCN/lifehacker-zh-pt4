@@ -1,6 +1,6 @@
 # 如果你的车在商店里被偷了，该怎么办
 
-> 原文:[https://jalopnik . com/1726335245](https://jalopnik.com/what-to-do-if-something-gets-stolen-from-your-car-while-1726335245)
+> 原文：<https://jalopnik.com/what-to-do-if-something-gets-stolen-from-your-car-while-1726335245>
 
 我以前写过如果你的车在维修时损坏了该怎么办。 [车库管理员责任法案](http://www.legislature.mi.gov/%28S%28fdqnxqv4udzt0t55ltl3rvzs%29%29/documents/mcl/pdf/mcl-act-391-of-1919.pdf) 是密歇根州的一部法律，该法律将你的车在被他们占用期间发生损坏的责任转移给商店，许多州也有类似的法规。但是当你的车在他们手中时被偷的东西呢？
 

@@ -1,6 +1,6 @@
 # Android 的最佳应用卸载程序
 
-> 原文:[https://life hacker . com/the-best-app-uninstaller-for-Android-1715911428](https://lifehacker.com/the-best-app-uninstaller-for-android-1715911428)
+> 原文：<https://lifehacker.com/the-best-app-uninstaller-for-android-1715911428>
 
 在 Android 上安装应用程序很容易。如此简单，以至于随着时间的推移，你可能会得到一大堆你不需要的东西。我们建议使用简易卸载程序，而不是单调乏味地翻阅每个应用程序来一个一个卸载它们。这个应用程序允许你一次卸载几个应用程序，按大小排序，甚至清理任何留下的垃圾文件。
 

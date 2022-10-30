@@ -1,6 +1,6 @@
 # 根与非根 Android:你最好的论据
 
-> 原文:[https://life hacker . com/root-vs-un root-Android-your-best-arguments-1599101019](https://lifehacker.com/rooted-vs-unrooted-android-your-best-arguments-1599101019)
+> 原文：<https://lifehacker.com/rooted-vs-unrooted-android-your-best-arguments-1599101019>
 
 安卓。是用 root 权限更好，还是不用它也行？在威瑞森，有人能真正快乐吗？还是自由需要牺牲？我们问过你。以下是你最好的支持和反对理由！—给你的手机找根。
 

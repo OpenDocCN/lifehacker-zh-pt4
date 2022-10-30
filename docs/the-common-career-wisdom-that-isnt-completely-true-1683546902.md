@@ -1,6 +1,6 @@
 # 不完全正确的职业常识
 
-> 原文:[https://life hacker . com/the-common-career-wisdom-that-fully-true-1683546902](https://lifehacker.com/the-common-career-wisdom-that-isnt-completely-true-1683546902)
+> 原文：<https://lifehacker.com/the-common-career-wisdom-that-isnt-completely-true-1683546902>
 
 找到你的第一份“真正的”工作可能会让人焦虑、紧张，并且极度困惑。尽管原则可能是正确的，但许多经典建议并不完全是具体的真理。这里有一些你应该考虑重温的职业智慧。
 

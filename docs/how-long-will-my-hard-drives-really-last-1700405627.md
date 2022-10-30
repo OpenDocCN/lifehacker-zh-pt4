@@ -1,6 +1,6 @@
 # 我的硬盘真正能用多久？
 
-> 原文:[https://life hacker . com/how-long-will-my-hard-drives-really-last-1700405627](https://lifehacker.com/how-long-will-my-hard-drives-really-last-1700405627)
+> 原文：<https://lifehacker.com/how-long-will-my-hard-drives-really-last-1700405627>
 
 亲爱的 Lifehacker，
 我知道硬盘可能会出故障，但它们真的能用多久？如果我不经常使用它们，它们会持续更长时间吗？

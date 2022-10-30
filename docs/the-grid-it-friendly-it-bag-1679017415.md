@@ -1,6 +1,6 @@
 # 网格-It 友好型 It 包
 
-> 原文:[https://life hacker . com/the-grid-it-friendly-it-bag-1679017415](https://lifehacker.com/the-grid-it-friendly-it-bag-1679017415)
+> 原文：<https://lifehacker.com/the-grid-it-friendly-it-bag-1679017415>
 
 一个井井有条的包有一些特别之处。读者杰西卡·海耶斯分享了她用于 IT 工作的包，几乎所有的东西都很好地组织到一对夫妇的网格中。
 

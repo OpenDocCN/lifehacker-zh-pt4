@@ -1,6 +1,6 @@
 # 你现在就可以实施的十大简单减肥方法
 
-> 原文:[https://life hacker . com/top-10-simple-weight-loss-hacks-you-can-implement-right-1695542566](https://lifehacker.com/top-10-simple-weight-loss-hacks-you-can-implement-right-1695542566)
+> 原文：<https://lifehacker.com/top-10-simple-weight-loss-hacks-you-can-implement-right-1695542566>
 
 减肥并不容易(如果是，我们就不会有十亿种不同的饮食计划和产品来浪费我们的钱)。但是，当谈到坚持你的饮食或减肥计划时，即使是最小的减肥技巧或头脑风暴也会产生很大的影响。这里有 10 个这样的技巧，你今天可以很容易地把它们结合起来。
 

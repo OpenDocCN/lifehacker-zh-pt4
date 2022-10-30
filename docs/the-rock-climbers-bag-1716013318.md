@@ -1,6 +1,6 @@
 # 攀岩者的包
 
-> 原文:[https://lifehacker.com/the-rock-climbers-bag-1716013318](https://lifehacker.com/the-rock-climbers-bag-1716013318)
+> 原文：<https://lifehacker.com/the-rock-climbers-bag-1716013318>
 
 攀岩者有他们自己的特殊装备。举个例子，Everday Carry 采访了职业攀岩者斯蒂芬妮·戴维斯，看看她在冒险中会带些什么。
 

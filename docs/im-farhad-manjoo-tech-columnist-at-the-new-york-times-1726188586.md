@@ -1,6 +1,6 @@
 # 我是《纽约时报》的科技专栏作家法尔哈德·曼朱，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Farhad-man joo-tech-column ist-at-the-new-York-times-1726188586](https://lifehacker.com/im-farhad-manjoo-tech-columnist-at-the-new-york-times-1726188586)
+> 原文：<https://lifehacker.com/im-farhad-manjoo-tech-columnist-at-the-new-york-times-1726188586>
 
 法尔哈德有些东西。科技记者会很快对他们的工作感到厌倦和愤世嫉俗，但法尔哈德·曼朱在讨论科技如何影响我们的生活时，他清晰的文字没有任何不必要的讽刺感。虽然当我谈论法尔哈德的写作时，我实际上是在谈论他的。
 

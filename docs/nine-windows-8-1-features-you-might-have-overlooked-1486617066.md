@@ -1,6 +1,6 @@
 # 你可能忽略的 9 项 Windows 8.1 功能
 
-> 原文:[https://life hacker . com/nine-windows-8-1-features-you-may-happed-notified-1486617066](https://lifehacker.com/nine-windows-8-1-features-you-might-have-overlooked-1486617066)
+> 原文：<https://lifehacker.com/nine-windows-8-1-features-you-might-have-overlooked-1486617066>
 
 *我们已经谈论了很多关于*[*Windows 8.1*](http://lifehacker.com/tag/windows-81)*的新功能——比如开始按钮的回归——但有一些功能和变化几乎被忽略了。博客和微软出版社的作者 Ciprian Rusen 分享了九个鲜为人知的功能和变化，这些功能和变化将影响你使用 Windows 8.1 的方式。有些你会喜欢的...有些人不会。*
 

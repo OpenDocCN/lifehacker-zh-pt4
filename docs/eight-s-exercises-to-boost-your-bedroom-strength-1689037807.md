@@ -1,6 +1,6 @@
 # 增强你卧室力量的八个练习
 
-> 原文:[https://life hacker . com/eight-s-exercises-to-boost-your bedroom-strength-1689037807](https://lifehacker.com/eight-s-exercises-to-boost-your-bedroom-strength-1689037807)
+> 原文：<https://lifehacker.com/eight-s-exercises-to-boost-your-bedroom-strength-1689037807>
 
 不管我们愿不愿意承认，运动和性有着千丝万缕的联系。我们锻炼是为了让自己看起来更好，感觉更好(当然还有其他原因)，希望这能转化为更多的性爱。但是你也可以通过锻炼来获得更好的性生活。考虑到这一点，这里有一些练习可以帮助你更好地利用你的卧室时间。
 

@@ -1,6 +1,6 @@
 # Twitter 获得双重认证，现在就启用它
 
-> 原文:[https://life hacker . com/Twitter-gets-two-factor-authentic ation-enable-it-now-509354499](https://lifehacker.com/twitter-gets-two-factor-authentication-enable-it-now-509354499)
+> 原文：<https://lifehacker.com/twitter-gets-two-factor-authentication-enable-it-now-509354499>
 
 Twitter 最终增加了双因素认证，你应该马上启用它。我们可能不需要告诉你为什么，但以防你忘记了 [社会工程黑客](https://lifehacker.com/how-can-i-protect-against-social-engineering-hacks-5933296) 你想启用这个功能来保护自己。
 

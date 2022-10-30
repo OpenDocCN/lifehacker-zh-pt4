@@ -1,6 +1,6 @@
 # 如何在没有邀请的情况下进入高级派对和俱乐部
 
-> 原文:[https://life hacker . com/how-to-get-into-exclusive-parties-and-club-without-an-1453378483](https://lifehacker.com/how-to-get-into-exclusive-parties-and-clubs-without-an-1453378483)
+> 原文：<https://lifehacker.com/how-to-get-into-exclusive-parties-and-clubs-without-an-1453378483>
 
 参加没有被邀请的活动听起来很有趣，但这不是电影。无论你是想与贵宾建立关系网，还是只想享受一段美好时光，进入一个高级夜总会或派对都要归结于社会工程学:以这种或那种方式从人们那里获得你需要的结果的艺术。下面是怎么做的。
 

@@ -1,6 +1,6 @@
 # 没有理由不备份你的电脑。现在就做。
 
-> 原文:[https://life hacker . com/theres-no-托辞不备份你的电脑-do-1547987206](https://lifehacker.com/theres-no-excuse-for-not-backing-up-your-computer-do-1547987206)
+> 原文：<https://lifehacker.com/theres-no-excuse-for-not-backing-up-your-computer-do-1547987206>
 
 至少一个月一次，一些朋友或家人问我如何从故障硬盘恢复数据。我尽我所能帮助他们，但在我的脑海里，我的答案总是一样的:“回到过去，像你知道的那样备份你的电脑。”
 

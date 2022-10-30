@@ -1,6 +1,6 @@
 # 传统汽车租赁的最佳选择
 
-> 原文:[https://life hacker . com/the-best-alternatives-to-the-traditional-car-learning-1640639954](https://lifehacker.com/the-best-alternatives-to-traditional-car-rentals-1640639954)
+> 原文：<https://lifehacker.com/the-best-alternatives-to-traditional-car-rentals-1640639954>
 
 众所周知，传统的租车流程有其挫折，从 [失去预订](https://lifehacker.com/avoid-being-stranded-by-overbooked-hotel-and-car-reserv-5928369) 到 [不透明费用](https://lifehacker.com/save-on-car-rentals-by-skipping-the-airport-counter-1587156490) 。这里有几个传统汽车租赁的替代品。
 

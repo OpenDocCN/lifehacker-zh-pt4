@@ -1,6 +1,6 @@
 # 消费者一直听到的关于维修的愚蠢论点
 
-> 原文:[https://jalopnik . com/the-dumb-argument-consumers-heard-all-the-time-about-rep-1716987553](https://jalopnik.com/the-dumb-argument-consumers-hear-all-the-time-about-rep-1716987553)
+> 原文：<https://jalopnik.com/the-dumb-argument-consumers-hear-all-the-time-about-rep-1716987553>
 
 23 年来，我一直在就缺陷汽车提起诉讼——包括柠檬法和其他法律。有一件事一直没有改变:我一遍又一遍地听到来自制造商和经销商的愚蠢的争论。
 

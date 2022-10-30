@@ -1,6 +1,6 @@
 # 请教专家:关于健身训练的一切
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-fitness-training-1575053691](https://lifehacker.com/ask-an-expert-all-about-fitness-training-1575053691)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-fitness-training-1575053691>
 
 随着夏天即将来临，也许是时候重温你遗忘已久的新年健身目标了。无论你是刚刚开始锻炼，还是正在寻找完美的健身计划，或者已经是健身房的常客， [米歇尔·多佐伊斯](http://www.fitnessglo.com/teacher-36-Michelle-Dozois.html) 都将助你一臂之力。
 

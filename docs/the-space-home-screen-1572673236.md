@@ -1,6 +1,6 @@
 # 太空主屏幕
 
-> 原文:[https://lifehacker.com/the-space-home-screen-1572673236](https://lifehacker.com/the-space-home-screen-1572673236)
+> 原文：<https://lifehacker.com/the-space-home-screen-1572673236>
 
 Android:如果你一直痴迷于新的宇宙系列，或者你只是第一百万次玩传送门 2[，一个太空主题的主屏幕不会出错。我的彩屏用户T5】佩德罗盖利](https://www.youtube.com/watch?v=4Th_3IM1XJw)T7】已经把你覆盖了。
 

@@ -1,6 +1,6 @@
 # 最好的图书推荐服务是什么？
 
-> 原文:[https://life hacker . com/best-book-recommendation-service-1576603841](https://lifehacker.com/best-book-recommendation-service-1576603841)
+> 原文：<https://lifehacker.com/best-book-recommendation-service-1576603841>
 
 在找新的读物吗？许多优秀的服务向你推荐书籍，要么基于你的兴趣，要么基于一大群读者的兴趣。本周，我们想知道你使用哪些服务来跟踪你喜欢的书籍，并找出值得尝试的新书。
 

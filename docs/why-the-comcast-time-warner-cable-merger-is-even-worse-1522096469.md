@@ -1,6 +1,6 @@
 # 为什么康卡斯特和时代华纳有线电视的合并比你想象的还要糟糕
 
-> 原文:[https://gizmodo . com/why-the-Comcast-time-warner-cable-merger-is-even-worse-1522096469](https://gizmodo.com/why-the-comcast-time-warner-cable-merger-is-even-worse-1522096469)
+> 原文：<https://gizmodo.com/why-the-comcast-time-warner-cable-merger-is-even-worse-1522096469>
 
 仅仅提到康卡斯特和时代华纳 [联手](https://gizmodo.com/comcast-is-buying-time-warner-cable-to-make-big-cable-e-1521883329) 组成一个破旧的超级集团就足以让你 [奔向干草叉](http://gizmodo.com/the-40-best-tweets-about-the-comcast-time-warner-cable-1522034013) 。但是这个邪恶的联盟——如果它通过监管的话——比垄断更深入。
 

@@ -1,6 +1,6 @@
 # 停止冷藏你的黄油
 
-> 原文:[https://gizmodo . com/stop-refrigerating-your-butter-1624023431](https://gizmodo.com/stop-refrigerating-your-butter-1624023431)
+> 原文：<https://gizmodo.com/stop-refrigerating-your-butter-1624023431>
 
 你把黄油放在冰箱里吗？真的吗？别说了。马上停下来。你在破坏你的黄油体验，让你的烤面包尝起来像失败。让我告诉你为什么。
 

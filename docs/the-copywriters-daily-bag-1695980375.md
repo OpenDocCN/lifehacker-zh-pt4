@@ -1,6 +1,6 @@
 # 文案的日常包
 
-> 原文:[https://lifehacker.com/the-copywriters-daily-bag-1695980375](https://lifehacker.com/the-copywriters-daily-bag-1695980375)
+> 原文：<https://lifehacker.com/the-copywriters-daily-bag-1695980375>
 
 如果你的工作只是偶尔去办公室，你不需要太多。当她需要去办公室的时候，文案和每日邮报的读者希瑟分享她的包。
 

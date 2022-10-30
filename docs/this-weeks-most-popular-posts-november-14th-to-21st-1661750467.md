@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:11 月 14 日至 21 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-11 月 14 日至 21 日-1661750467](https://lifehacker.com/this-weeks-most-popular-posts-november-14th-to-21st-1661750467)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-november-14th-to-21st-1661750467>
 
 本周我们学习了从酒店房间里可以带走的东西，手机对脊椎的影响，在美国最难生活的地方是，谷歌推荐给软件工程师的技术技能。这里回顾一下。
 

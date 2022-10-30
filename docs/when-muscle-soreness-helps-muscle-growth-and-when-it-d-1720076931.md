@@ -1,6 +1,6 @@
 # 肌肉酸痛什么时候有助于肌肉生长(什么时候没有)
 
-> 原文:[https://life hacker . com/when-muscle-sorense-helps-muscle-growth-and-when-it-d-1720076931](https://lifehacker.com/when-muscle-soreness-helps-muscle-growth-and-when-it-d-1720076931)
+> 原文：<https://lifehacker.com/when-muscle-soreness-helps-muscle-growth-and-when-it-d-1720076931>
 
 剧烈运动后，伴随肌肉酸痛而来的是某种自豪感——就好像你如此用力地推动你的身体，以至于你仍然能感觉到运动在发挥它的魔力。这很好，但 [酸痛可能不是](https://vitals.lifehacker.com/why-your-muscles-get-sore-and-what-you-can-do-about-it-1680937155) 肌肉增长的最佳指标。我们的意思是。
 

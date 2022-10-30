@@ -1,6 +1,6 @@
 # 红色的大桌面
 
-> 原文:[https://lifehacker.com/the-big-red-desktop-1609873040](https://lifehacker.com/the-big-red-desktop-1609873040)
+> 原文：<https://lifehacker.com/the-big-red-desktop-1609873040>
 
 有时候简单是最好的方式，虽然我们的很多桌面都有漂亮的壁纸和漂亮的外观，但这一款采用了简单的主题，并与它融为一体。它只显示最基本的信息，这就是 DeviantArt 用户 [sharmander3](http://sharmander3.deviantart.com/) 的全部需求。这是所有设置的方式。
 

@@ -1,6 +1,6 @@
 # 10 部可以帮助你理解精神疾病的漫画
 
-> 原文:[https://gizmodo . com/10-comics-the-can-help-you-understand-mental-disease-1576917503](https://gizmodo.com/10-comics-that-can-help-you-understand-mental-illness-1576917503)
+> 原文：<https://gizmodo.com/10-comics-that-can-help-you-understand-mental-illness-1576917503>
 
 当涉及到描绘精神疾病时，漫画并不总是有最好的记录。在超级英雄的故事中，精神疾病通常与暴力和邪恶联系在一起。然而，也有一些其他的，通常是个人化的漫画，可以让你看到精神疾病患者的真实经历。
 

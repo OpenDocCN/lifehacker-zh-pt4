@@ -1,6 +1,6 @@
 # Scrivener 如何帮助我组织我所有的写作
 
-> 原文:[https://life hacker . com/how-scrivener-help-me-organize-all-my-writing-1599446028](https://lifehacker.com/how-scrivener-helped-me-organize-all-my-writing-1599446028)
+> 原文：<https://lifehacker.com/how-scrivener-helped-me-organize-all-my-writing-1599446028>
 
 Scrivener 是一个在写作圈里经常被使用的名字，但是现在还不清楚它有什么用。随后，我回避了好几年。然后最近心血来潮查了一下，现在想不出没有它写什么东西。以下是我在有生之年学到的东西。
 

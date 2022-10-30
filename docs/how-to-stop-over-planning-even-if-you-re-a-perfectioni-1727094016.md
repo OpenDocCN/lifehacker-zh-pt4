@@ -1,6 +1,6 @@
 # 如何停止过度计划(即使你是一个完美主义者)
 
-> 原文:[https://life hacker . com/how-to-stop-over-planning-even-if-re-a-perfection oni-1727094016](https://lifehacker.com/how-to-stop-over-planning-even-if-you-re-a-perfectioni-1727094016)
+> 原文：<https://lifehacker.com/how-to-stop-over-planning-even-if-you-re-a-perfectioni-1727094016>
 
 如果做得好，每天和每周的计划仪式可以帮助你以一种平和的、有目的的方式优雅地度过一生。但有时，过度计划你的活动会让你成为一个神经质、压力大的人，觉得如果你一开始就没有计划，你会过得更好。
 

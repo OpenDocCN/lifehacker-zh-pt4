@@ -1,6 +1,6 @@
 # 国税局储蓄者的信用就像雇主对你的退休缴款的匹配
 
-> 原文:[https://life hacker . com/the-IRS-savers-credit-is-like-a-employer-match-on-your-1724158735](https://lifehacker.com/the-irs-savers-credit-is-like-an-employer-match-on-your-1724158735)
+> 原文：<https://lifehacker.com/the-irs-savers-credit-is-like-an-employer-match-on-your-1724158735>
 
 没有人会拒绝免费的钱，对不对？但这正是许多人在拒绝雇主的 401(k)匹配 时所做的。同样，如果你在收入限额内，你可以从国税局获得高达 2000 美元的退休缴款抵免。
 

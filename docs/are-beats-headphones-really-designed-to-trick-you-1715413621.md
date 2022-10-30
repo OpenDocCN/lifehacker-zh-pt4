@@ -1,6 +1,6 @@
 # Beats 耳机真的是为了骗你而设计的吗？
 
-> 原文:[https://gizmodo . com/are-beats-headphones-true-design-to-trick-you-1715413621](https://gizmodo.com/are-beats-headphones-really-designed-to-trick-you-1715413621)
+> 原文：<https://gizmodo.com/are-beats-headphones-really-designed-to-trick-you-1715413621>
 
 上个月，Beats by Dre 耳机在互联网上进行了一次彻底的造渣，在这个 here 博客 上的 [，在拆除华而不实的易拉罐的基础上。这项由专注于硬件初创公司的风险投资机构 Bolt 进行的测试似乎证明了耳机是假的。原来，拆卸本身是基于一个骗局:耳机是假冒的。但正如我们自己拆下的我们非常确定是合法的一对 Beats 所揭示的那样，Bolt 对这些设备的质量没有错。](http://gizmodo.com/how-beats-tricks-you-into-thinking-it-makes-a-premium-p-1712319045#_ga=1.108570626.1425775626.1429542769)
 

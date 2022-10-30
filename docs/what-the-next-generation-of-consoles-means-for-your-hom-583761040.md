@@ -1,6 +1,6 @@
 # PlayStation 4、Xbox One 和 Wii U 对您的家庭影院意味着什么
 
-> 原文:[https://life hacker . com/what-the-next-generation-of-consoles-means-for-your-hom-583761040](https://lifehacker.com/what-the-next-generation-of-consoles-means-for-your-hom-583761040)
+> 原文：<https://lifehacker.com/what-the-next-generation-of-consoles-means-for-your-hom-583761040>
 
 视频游戏机不仅仅是为了玩游戏。他们还制作了很棒的机顶盒，可以将视频和音乐传输到我们的客厅，新的 Xbox One 和 PlayStation 4 也不例外。每台游戏机都带来了一些不同的东西，所以现在它们都在这里，让我们看看它们如何将除了视频游戏以外的娱乐带到你的客厅。
 

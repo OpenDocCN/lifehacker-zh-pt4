@@ -1,6 +1,6 @@
 # 2014 年最受欢迎的 Hive Fives
 
-> 原文:[https://life hacker . com/most-popular-hive-fives-of-2014-1665891516](https://lifehacker.com/most-popular-hive-fives-of-2014-1665891516)
+> 原文：<https://lifehacker.com/most-popular-hive-fives-of-2014-1665891516>
 
 Hive Five 系列是我们最受欢迎的系列之一，今年对它来说是很棒的一年。我们收集了几乎每个可能类别的最佳选项，从硬件到软件到小工具和外围设备。以下是我们过去一年的最佳表现。
 

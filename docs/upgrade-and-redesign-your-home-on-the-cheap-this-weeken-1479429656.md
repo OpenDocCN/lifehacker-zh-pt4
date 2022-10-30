@@ -1,6 +1,6 @@
 # 这个周末，以低廉的价格升级和重新设计你的家
 
-> 原文:[https://life hacker . com/upgrade-and-design-your-home-on-the-chief-the-week en-1479429656](https://lifehacker.com/upgrade-and-redesign-your-home-on-the-cheap-this-weeken-1479429656)
+> 原文：<https://lifehacker.com/upgrade-and-redesign-your-home-on-the-cheap-this-weeken-1479429656>
 
 你没必要为了让房子看起来更好一点的借口而把它卖掉。在新房间里刷一层新漆，一些自己动手做的家具项目，以及一些小的装饰都可以让一切变得不同。这个周末留出一些时间让你的家看起来更棒一点。
 

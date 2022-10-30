@@ -1,6 +1,6 @@
 # 剃掉或修剪我的阴毛最好的方法是什么？
 
-> 原文:[https://life hacker . com/what ' s-best-way to-shave or-trim-my-阴毛-1538150367](https://lifehacker.com/whats-the-best-way-to-shave-or-trim-my-pubic-hair-1538150367)
+> 原文：<https://lifehacker.com/whats-the-best-way-to-shave-or-trim-my-pubic-hair-1538150367>
 
 亲爱的生活黑客(下班后)，
 修剪我的，呃，私人区域的最好方法是什么？我曾经使用不带附件的普通理发器，但在一次小的(但非常血腥的)事故后，我正在寻找更安全的替代品。

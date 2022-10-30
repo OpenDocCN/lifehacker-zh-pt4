@@ -1,6 +1,6 @@
 # 你可能永远也不会喜欢锻炼(但无论如何都要去做)
 
-> 原文:[https://life hacker . com/you-powery-never-love-exercise-but-do it-anyway-1709747876](https://lifehacker.com/you-might-never-love-exercise-but-do-it-anyway-1709747876)
+> 原文：<https://lifehacker.com/you-might-never-love-exercise-but-do-it-anyway-1709747876>
 
 似乎有一种文化共识，那就是你必须热爱健身。人们会告诉你，如果你不喜欢锻炼，那只是因为你还没有找到你喜欢的东西，或者你做得不够频繁，以至于不能进行 [正反馈循环](http://vitals.lifehacker.com/why-eat-less-move-more-is-the-least-helpful-diet-adv-1686146359) 。作为一名健身作家和教练，十多年来一直坚持训练，我可以自信地说，我不喜欢锻炼，这没关系。
 

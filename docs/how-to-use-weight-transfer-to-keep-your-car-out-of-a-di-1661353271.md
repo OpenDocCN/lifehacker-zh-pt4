@@ -1,6 +1,6 @@
 # 这个冬天如何利用重量转移让你的车不出沟
 
-> 原文:[https://jalopnik . com/how-to-use-weight-transfer-to-keep-your-car-out-of-a-di-1661353271](https://jalopnik.com/how-to-use-weight-transfer-to-keep-your-car-out-of-a-di-1661353271)
+> 原文：<https://jalopnik.com/how-to-use-weight-transfer-to-keep-your-car-out-of-a-di-1661353271>
 
 你知道没有足够的牵引力来过这个弯。太紧了。雪太多了。如果你只是转弯，车会开得很宽。但你不能就这么睡了。你放松油门，踩下刹车，感觉车头陷进去了。你使用简单的重量转移艺术。
 

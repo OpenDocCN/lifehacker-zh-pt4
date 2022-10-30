@@ -1,6 +1,6 @@
 # Windows 8 有改进吗？
 
-> 原文:[https://lifehacker.com/has-windows-8-improved-1589314066](https://lifehacker.com/has-windows-8-improved-1589314066)
+> 原文：<https://lifehacker.com/has-windows-8-improved-1589314066>
 
 亲爱的 Lifehacker，
 我不是微软用 Windows 8 做的事情的粉丝，所以它出来的时候我没有升级。过去两年我一直坚持使用 Windows 7，但我需要一台新的笔记本电脑(不是平板电脑)，它们都配有 Windows 8。有好转吗？我能避免使用愚蠢的地铁界面吗？

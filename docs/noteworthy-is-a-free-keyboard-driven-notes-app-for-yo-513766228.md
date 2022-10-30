@@ -1,6 +1,6 @@
 # 值得注意的+是一个免费的键盘驱动的笔记应用程序
 
-> 原文:[https://life hacker . com/noteful-is-a-free-keyboard-driven-notes-app-for-yo-513766228](https://lifehacker.com/noteworthy-is-a-free-keyboard-driven-notes-app-for-yo-513766228)
+> 原文：<https://lifehacker.com/noteworthy-is-a-free-keyboard-driven-notes-app-for-yo-513766228>
 
 Mac:你不会发现各种形状和大小的 Mac 笔记应用程序的短缺。值得注意的+并没有那么不同，但它位于菜单栏中，带有方便的键盘快捷键，并且完全免费。
 

@@ -1,6 +1,6 @@
 # 你能从摇滚明星身上学到的最好的生产力技巧
 
-> 原文:[https://life hacker . com/the-best-productivity-tricks-you-can-learn-from-rock-ST-1612709803](https://lifehacker.com/the-best-productivity-tricks-you-can-learn-from-rock-st-1612709803)
+> 原文：<https://lifehacker.com/the-best-productivity-tricks-you-can-learn-from-rock-st-1612709803>
 
 除了性、毒品和摇滚，音乐家们都在拼命工作。你在舞台上看到的或在 iPod 上听到的都是多年努力的结晶。自然，他们有很多经验教训，我们都可以从中学习，以提高工作效率。这里有几个。
 

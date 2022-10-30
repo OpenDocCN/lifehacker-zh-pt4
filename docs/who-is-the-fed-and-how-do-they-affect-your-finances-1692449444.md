@@ -1,6 +1,6 @@
 # 谁是“美联储”，它如何影响你的财务？
 
-> 原文:[https://life hacker . com/谁是美联储，他们如何影响你的财务-1692449444](https://lifehacker.com/who-is-the-fed-and-how-do-they-affect-your-finances-1692449444)
+> 原文：<https://lifehacker.com/who-is-the-fed-and-how-do-they-affect-your-finances-1692449444>
 
 美联储经常占据财经头条，昨天的 [也不例外](http://www.forbes.com/sites/billconerly/2015/03/19/the-federal-reserves-new-monetary-policy-statement-interest-rate-hike-to-be-postponed/)——但他们的声明往往看起来像是在说一种不同的语言。美联储是什么，为什么这么多人这么关注它？更重要的是，它会影响你的财务生活吗？
 

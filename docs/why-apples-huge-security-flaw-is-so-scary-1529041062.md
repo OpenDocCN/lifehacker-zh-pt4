@@ -1,6 +1,6 @@
 # 为什么苹果最近的安全漏洞如此可怕
 
-> 原文:[https://gizmodo . com/why-apple-huge-security-flaw-is-so-terrible-1529041062](https://gizmodo.com/why-apples-huge-security-flaw-is-so-scary-1529041062)
+> 原文：<https://gizmodo.com/why-apples-huge-security-flaw-is-so-scary-1529041062>
 
 周五，苹果悄悄发布了 iOS 7.0.6，在一份简短的发布说明中解释说，它修复了一个漏洞，即“具有特权网络地位的攻击者可能会在受 SSL/TLS 保护的会话中捕获或修改数据。”那是低调的版本。换种说法？现在就更新你的 iPhone*。*
 

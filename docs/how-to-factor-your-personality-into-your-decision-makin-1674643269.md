@@ -1,6 +1,6 @@
 # 如何在决策中考虑你的个性
 
-> 原文:[https://life hacker . com/how-to-factor-your-personality to-your-decision making-1674643269](https://lifehacker.com/how-to-factor-your-personality-into-your-decision-makin-1674643269)
+> 原文：<https://lifehacker.com/how-to-factor-your-personality-into-your-decision-makin-1674643269>
 
 你在做决定的时候有多少逻辑，你的个性总是会影响你做出选择的方式。结合成熟度和阅历，个人性格是必然因素，但主动的自我认知可以帮助你权衡自己的决策过程受个性影响的程度。
 

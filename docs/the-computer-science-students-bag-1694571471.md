@@ -1,6 +1,6 @@
 # 计算机科学学生的书包
 
-> 原文:[https://life hacker . com/the-computer-science-students-bag-1694571471](https://lifehacker.com/the-computer-science-students-bag-1694571471)
+> 原文：<https://lifehacker.com/the-computer-science-students-bag-1694571471>
 
 作为一名学生，意味着你需要把你的包包保持得尽可能小，同时仍然拥有你一天所需的一切。Lifehacker 的读者 Gavin Porter 分享了他用来做事情的袋子。
 

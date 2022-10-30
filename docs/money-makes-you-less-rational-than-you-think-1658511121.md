@@ -1,6 +1,6 @@
 # 金钱让你比你想象的更不理智
 
-> 原文:[https://gizmodo . com/money-makes you less-rational than-you-think-1658511121](https://gizmodo.com/money-makes-you-less-rational-than-you-think-1658511121)
+> 原文：<https://gizmodo.com/money-makes-you-less-rational-than-you-think-1658511121>
 
 我们中的许多人认为，金钱会激发我们算计的一面，激发我们做出理性利己的决定。但是新的证据表明，金钱起了相反的作用，导致了像毒品一样的精神状态和毫无理性的选择。
 

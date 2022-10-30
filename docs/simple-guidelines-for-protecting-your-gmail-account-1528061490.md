@@ -1,6 +1,6 @@
 # 保护您的 Gmail 帐户的简单指南
 
-> 原文:[https://life hacker . com/simple-guidelines-for-protecting-your-Gmail-account-1528061490](https://lifehacker.com/simple-guidelines-for-protecting-your-gmail-account-1528061490)
+> 原文：<https://lifehacker.com/simple-guidelines-for-protecting-your-gmail-account-1528061490>
 
 如果你和我们一样，你生活的钥匙就藏在 Gmail 的墙壁里。遵循一些简单的准则，确保它们是安全的。网络应用专家在[*Stack Exchange*](http://webapps.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=webapps-106)*提供一些必须遵循的提示。*
 

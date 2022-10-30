@@ -1,6 +1,6 @@
 # 用漏勺过滤掉谷物粉末
 
-> 原文:[https://life hacker . com/用漏勺过滤谷物粉-509857566](https://lifehacker.com/filter-out-cereal-dust-with-a-colander-509857566)
+> 原文：<https://lifehacker.com/filter-out-cereal-dust-with-a-colander-509857566>
 
 当你倒早餐麦片的时候，你可能不希望盒子底部聚集的灰尘混入你的牛奶中。如果你只想把整块放在碗里，就用漏勺。
 

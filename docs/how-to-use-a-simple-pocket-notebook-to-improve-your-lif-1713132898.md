@@ -1,6 +1,6 @@
 # 如何用一个简单的袖珍笔记本改善你的生活
 
-> 原文:[https://life hacker . com/how-to-use-a-simple-pocket-notebook-to-improve-your-lif-1713132898](https://lifehacker.com/how-to-use-a-simple-pocket-notebook-to-improve-your-lif-1713132898)
+> 原文：<https://lifehacker.com/how-to-use-a-simple-pocket-notebook-to-improve-your-lif-1713132898>
 
 这真的很难相信，但我不得不说，在过去的几年里，我的生活中最深刻的变化之一，可能是最深刻的变化，就是开始随身携带一个袖珍笔记本和一支笔。除非我在交换一本完成的笔记本或其他东西时犯了一个精神上的错误，否则我不会离开家，除非我的袖珍笔记本放在我的臀部口袋或衬衫口袋里，旁边放着一支可靠的笔，用来记笔记。
 

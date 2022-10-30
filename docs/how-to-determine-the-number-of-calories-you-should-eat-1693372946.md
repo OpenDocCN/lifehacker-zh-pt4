@@ -1,6 +1,6 @@
 # 如何确定减肥应该吃多少卡路里
 
-> 原文:[https://life hacker . com/how-to-determine-the-number of the-calories-you-should-eat-1693372946](https://lifehacker.com/how-to-determine-the-number-of-calories-you-should-eat-1693372946)
+> 原文：<https://lifehacker.com/how-to-determine-the-number-of-calories-you-should-eat-1693372946>
 
 当你开始节食时， [决定吃多少](https://lifehacker.com/how-to-lose-weight-without-counting-calories-1691715560) 会觉得有点像玩卡路里轮盘赌。许多人求助于卡路里计算器，但他们可能会大大高估你减肥所需的食物量。以下是如何计算自己的目标。
 

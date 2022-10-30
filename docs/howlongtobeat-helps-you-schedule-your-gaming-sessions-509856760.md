@@ -1,6 +1,6 @@
 # 多长时间能帮助您安排游戏时间
 
-> 原文:[https://life hacker . com/howlongtobeat-help-you-schedule-you-gaming-sessions-509856760](https://lifehacker.com/howlongtobeat-helps-you-schedule-your-gaming-sessions-509856760)
+> 原文：<https://lifehacker.com/howlongtobeat-helps-you-schedule-your-gaming-sessions-509856760>
 
 有那么多优秀的视频游戏，却没有时间去玩。HowLongToBeat 是一个基于社区的网站，它可以预测你需要多长时间来玩完各种视频游戏，以帮助你更好地计划接下来玩哪个游戏。
 

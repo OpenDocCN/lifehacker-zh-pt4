@@ -1,6 +1,6 @@
 # DIY 阁楼床工作空间
 
-> 原文:[https://life hacker . com/the-DIY-loft-bed-workspace-1711730619](https://lifehacker.com/the-diy-loft-bed-workspace-1711730619)
+> 原文：<https://lifehacker.com/the-diy-loft-bed-workspace-1711730619>
 
 床和桌子的组合对学生或任何空间不足的人来说都很棒。今天的特色工作区是一个令人印象深刻的 DIY 项目，结合了宽敞的工作场所和房间 [午睡](https://lifehacker.com/how-long-to-nap-for-the-biggest-brain-benefits-1251546669) 或睡觉。
 

@@ -1,6 +1,6 @@
 # 如何像电影一样生活来激励自己
 
-> 原文:[https://life hacker . com/how-to-promote-by-like-a-mov-1662568064](https://lifehacker.com/how-to-motivate-yourself-by-living-your-life-like-a-mov-1662568064)
+> 原文：<https://lifehacker.com/how-to-motivate-yourself-by-living-your-life-like-a-mov-1662568064>
 
 每个人都喜欢电影，很多人希望他们的生活也像电影一样。电影让我们兴奋，给我们一个思考的机会，甚至可以激励我们过上更好的生活。你是你生活中的主角，你现在正在拍摄你的故事。有了正确的心态，你就可以用这种哲学去处理任何出现在你面前的场景。
 

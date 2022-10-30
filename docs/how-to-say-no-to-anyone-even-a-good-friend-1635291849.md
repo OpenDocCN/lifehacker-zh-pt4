@@ -1,6 +1,6 @@
 # 如何对任何人说不(即使是好朋友)
 
-> 原文:[https://life hacker . com/how-to-say-no-to-任何人，甚至是好朋友-1635291849](https://lifehacker.com/how-to-say-no-to-anyone-even-a-good-friend-1635291849)
+> 原文：<https://lifehacker.com/how-to-say-no-to-anyone-even-a-good-friend-1635291849>
 
 有时候，与你关心的人交谈最难的部分是说不。他们可能需要帮助或贷款，或者只是搭车，但你不可能总是能帮助每个人。以下是我从自己的经历中学到的如何对好朋友说不。
 

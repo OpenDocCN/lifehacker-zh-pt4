@@ -1,6 +1,6 @@
 # 为什么创意副业对你有好处
 
-> 原文:[https://life hacker . com/why-creative-side-projects-is-good-for-you-1612792201](https://lifehacker.com/why-creative-side-projects-are-good-for-you-1612792201)
+> 原文：<https://lifehacker.com/why-creative-side-projects-are-good-for-you-1612792201>
 
 在任何时候，我都有一个兼职项目在运行。通常是一个新的博客、一本书或一份时事通讯。有时候我会尝试设计 WordPress 主题。其他时候我尝试摄影。还有一个好消息:副业改善了你生活的其他方面。
 

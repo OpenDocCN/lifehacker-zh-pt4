@@ -1,6 +1,6 @@
 # 我是 Ryan Carson，Treehouse 的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Ryan-Carson-the-tree house-and-this-is-how-I-wo-1552026859](https://lifehacker.com/im-ryan-carson-ceo-of-treehouse-and-this-is-how-i-wo-1552026859)
+> 原文：<https://lifehacker.com/im-ryan-carson-ceo-of-treehouse-and-this-is-how-i-wo-1552026859>
 
 瑞安·卡森一周只工作四天。事实上，所有的 [树屋](http://teamtreehouse.com/) 一周只工作四天，没有任何经理，然而它仍然是一个快速增长的在线编码学校，为大众带来技术教育。在联合创始人兼首席执行官瑞安的指导下，Treehouse 是一个学习如何建立网站、编写应用程序等的蓬勃发展的场所。他一周只工作四天，怎么能完成任何事情呢？我们请 Ryan 分享他的建议，并了解他是如何工作的。
 

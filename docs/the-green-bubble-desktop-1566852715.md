@@ -1,6 +1,6 @@
 # 绿色泡泡桌面
 
-> 原文:[https://lifehacker.com/the-green-bubble-desktop-1566852715](https://lifehacker.com/the-green-bubble-desktop-1566852715)
+> 原文：<https://lifehacker.com/the-green-bubble-desktop-1566852715>
 
 马特·波拉德 的桌面有一个符合我们心意的配色方案——绿色和黑色，里面放满了工具和工作空间。这里是他如何设置这一切，你也可以。
 

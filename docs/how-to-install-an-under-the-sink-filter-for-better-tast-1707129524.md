@@ -1,6 +1,6 @@
 # 如何安装一个水槽下的过滤器来更好地品尝自来水
 
-> 原文:[https://life hacker . com/how-to-install-an-under-the-sink-filter-for-better tast-1707129524](https://lifehacker.com/how-to-install-an-under-the-sink-filter-for-better-tast-1707129524)
+> 原文：<https://lifehacker.com/how-to-install-an-under-the-sink-filter-for-better-tast-1707129524>
 
 在美国，自来水通常是安全的，但在某些地区会有一种难闻的味道。自来水也可能含有微量的杀虫剂、挥发性有机化合物、铅和灰尘，所有这些你都不想摄入，无论数量有多少。在水槽下安装一个滤水器，以改善水的味道并去除许多杂质。
 

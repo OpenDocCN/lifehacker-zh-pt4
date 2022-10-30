@@ -1,6 +1,6 @@
 # 不要再拿自己和社交媒体比较，开心点
 
-> 原文:[https://life hacker . com/stop-comparison-to-social-media-and-be-happer-1544008888](https://lifehacker.com/stop-comparing-yourself-to-social-media-and-be-happier-1544008888)
+> 原文：<https://lifehacker.com/stop-comparing-yourself-to-social-media-and-be-happier-1544008888>
 
 如果你对自己感觉有点低落，关掉所有的社交媒体。心理学家 Ramani Durvasula 说，人们只在脸书和推特上发布他们生活中最美好的部分，这将社会比较带到了一个全新的水平。
 

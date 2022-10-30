@@ -1,6 +1,6 @@
 # 10 月份你应该采取的财务行动
 
-> 原文:[https://life hacker . com/the-financial-moves-you-should-make-in-1440227288](https://lifehacker.com/the-financial-moves-you-should-make-in-october-1440227288)
+> 原文：<https://lifehacker.com/the-financial-moves-you-should-make-in-october-1440227288>
 
 离万圣节只有 T-29 天了，但是世界上所有咯咯叫的女巫和邪恶的妖精都不会比在我们的财务待办清单上落后的想法更让我们害怕。你也是吗？那么不要担心，我们是来帮忙的。
 

@@ -1,6 +1,6 @@
 # Lifehacker Faceoff:最佳密码管理器，比较
 
-> 原文:[https://life hacker . com/life hacker-face off-the-best-password-managers-compare-1682443320](https://lifehacker.com/lifehacker-faceoff-the-best-password-managers-compare-1682443320)
+> 原文：<https://lifehacker.com/lifehacker-faceoff-the-best-password-managers-compare-1682443320>
 
 对于密码管理器，您有很多选择，但是当涉及到您的安全时，您需要最好的工具。让我们来看看一些最流行的密码管理器，并对它们进行比较，这样你就可以选择一个适合你的。
 

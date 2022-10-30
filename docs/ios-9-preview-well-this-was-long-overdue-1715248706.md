@@ -1,6 +1,6 @@
 # iOS 9 预览版:这是期待已久的
 
-> 原文:[https://gizmodo . com/IOs-9-preview-well-this-was-long-outside-1715248706](https://gizmodo.com/ios-9-preview-well-this-was-long-overdue-1715248706)
+> 原文：<https://gizmodo.com/ios-9-preview-well-this-was-long-overdue-1715248706>
 
 今年苹果移动操作系统的更新并不是一个充满争议设计的重磅炸弹；其实今年最大的 iOS 更新，Apple Music， [已经出了](http://gizmodo.com/apple-music-first-look-wait-do-i-like-alternative-1714926632) 。但这并不意味着你应该放弃 iOS 9。
 

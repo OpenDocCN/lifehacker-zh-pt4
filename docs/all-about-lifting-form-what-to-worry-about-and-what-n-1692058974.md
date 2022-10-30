@@ -1,6 +1,6 @@
 # “良好的举重姿势”到底意味着什么(以及什么时候重要)
 
-> 原文:[https://life hacker . com/all-about-lifting-form-what-to-worry-and-what-n-1692058974](https://lifehacker.com/all-about-lifting-form-what-to-worry-about-and-what-n-1692058974)
+> 原文：<https://lifehacker.com/all-about-lifting-form-what-to-worry-about-and-what-n-1692058974>
 
 除非你喜欢受伤，否则你应该在健身房保持良好的状态。但是“好的形式”到底是什么意思，有多大的区别呢？首先说一下形式的目的。为此，我们求助于乔丹·西雅特(Jordan Syatt)，一位世界纪录强力举重运动员和西区认证杠铃教练。乔丹认为，形式有三个主要目的:
 

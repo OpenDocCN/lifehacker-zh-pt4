@@ -1,6 +1,6 @@
 # Nexus 9 点评:谷歌旗舰平板没什么特别的
 
-> 原文:[https://gizmodo . com/nexus-9-review-Google-旗舰-平板-虚无-spe-1654016772](https://gizmodo.com/nexus-9-review-googles-flagship-tablet-is-nothing-spe-1654016772)
+> 原文：<https://gizmodo.com/nexus-9-review-googles-flagship-tablet-is-nothing-spe-1654016772>
 
 一支新 Nexii 舰队在这里；一个 [手机](http://gizmodo.com/nexus-6-hands-on-so-big-so-beautiful-1652190815) ，一个 [平板](http://gizmodo.com/nexus-9-hands-on-androids-ipad-air-is-a-looker-not-a-1649988586) ，一个 [机顶盒](http://gizmodo.com/nexus-player-hands-on-this-is-no-nexus-q-thank-goodne-1652225465) 。第一个落地的是 Nexus 9，这是谷歌第二次试图制造一款可以与 iPad 挂在一起的大型 Nexus 平板电脑。这不是完全的错误，但也不是全垒打。
 

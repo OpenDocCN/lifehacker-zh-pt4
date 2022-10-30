@@ -1,6 +1,6 @@
 # 电子秤、磨刀器和立式办公桌
 
-> 原文:[https://life hacker . com/digital-scales-knife-sharpeners-and-standing-desks-1472848490](https://lifehacker.com/digital-scales-knife-sharpeners-and-standing-desks-1472848490)
+> 原文：<https://lifehacker.com/digital-scales-knife-sharpeners-and-standing-desks-1472848490>
 
 读者提供了他们的最佳建议，让您从数字秤中获得更多，创建一个 DIY 磨刀器，并建立一个预算的立式办公桌。
 

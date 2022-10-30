@@ -1,6 +1,6 @@
 # 讨人喜欢的人如何学会更经常地说“不”
 
-> 原文:[https://life hacker . com/how-people-pleasers-can-learn-to-say-no-more-only-1524324151](https://lifehacker.com/how-people-pleasers-can-learn-to-say-no-more-often-1524324151)
+> 原文：<https://lifehacker.com/how-people-pleasers-can-learn-to-say-no-more-often-1524324151>
 
 无论是在工作中还是在家里，说“是”都很容易，以至于你会忘记自己在对什么说“是”。学习如何说“不”是一项强大的技能。作者 Scott Fetters 解释了为什么你应该更经常地说这句话(以及如何做得更好)。
 

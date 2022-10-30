@@ -1,6 +1,6 @@
 # 春季大扫除的 10 个懒惰但聪明的方法
 
-> 原文:[https://life hacker . com/top-10-lazy-yet-smart-ways-to-spring-clean-your-home-1698662777](https://lifehacker.com/top-10-lazy-yet-smart-ways-to-spring-clean-your-home-1698662777)
+> 原文：<https://lifehacker.com/top-10-lazy-yet-smart-ways-to-spring-clean-your-home-1698662777>
 
 这是春季大扫除的时间。即使你有从上到下打扫房间的冲动，也许你天生的懒惰正在阻止你开始。别担心，这里有 10 种简单的方法可以让你的家焕然一新。
 

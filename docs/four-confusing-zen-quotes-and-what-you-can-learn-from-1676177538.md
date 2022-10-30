@@ -1,6 +1,6 @@
 # 四个“令人困惑”的禅宗语录以及你能从中学到什么
 
-> 原文:[https://life hacker . com/four-foaming-Zen-quotes-and-what-you-can-learn-from-1676177538](https://lifehacker.com/four-confusing-zen-quotes-and-what-you-can-learn-from-1676177538)
+> 原文：<https://lifehacker.com/four-confusing-zen-quotes-and-what-you-can-learn-from-1676177538>
 
 [禅](http://en.wikipedia.org/wiki/Zen) 是佛教的一个分支，大约在公元 6 世纪产生于中国。所以它已经存在一段时间了。许多教导和引语找到了它们进入事物的方式，但它们有时会被理解为听起来晦涩的无意义的短语。然而，这些名言背后是有意义的，许多教训今天仍然有用。
 

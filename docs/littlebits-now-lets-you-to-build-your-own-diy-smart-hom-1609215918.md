@@ -1,6 +1,6 @@
 # LittleBits 现在可以让你建立自己的 DIY 智能家居
 
-> 原文:[https://gizmodo . com/little bits-now-let-you-build-you-own-DIY-smart-hom-1609215918](https://gizmodo.com/littlebits-now-lets-you-to-build-your-own-diy-smart-hom-1609215918)
+> 原文：<https://gizmodo.com/littlebits-now-lets-you-to-build-your-own-diy-smart-hom-1609215918>
 
 我们知道并喜欢 littleBits 已经有一段时间了，现在，随着 cloudBit 的引入，它们变得更加有用。CloudBit 是一个模块，也称为 Bit，它可以将互联网连接到任何东西。有了 littleBit 库的其余部分，你现在可以有效地创建自己的物联网， [无需花哨的谷歌产品](http://gizmodo.com/the-8-coolest-new-tricks-your-nest-can-do-1595037056) 。
 

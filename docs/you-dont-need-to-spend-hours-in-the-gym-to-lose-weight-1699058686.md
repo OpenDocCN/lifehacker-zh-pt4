@@ -1,6 +1,6 @@
 # 你不需要在健身房花几个小时来减肥
 
-> 原文:[https://life hacker . com/you-dont-need-to-speed-hours in-gym-to-weight-1699058686](https://lifehacker.com/you-dont-need-to-spend-hours-in-the-gym-to-lose-weight-1699058686)
+> 原文：<https://lifehacker.com/you-dont-need-to-spend-hours-in-the-gym-to-lose-weight-1699058686>
 
 谈到减肥，人们通常认为你需要在健身房花无数个小时，一边在跑步机上猛踩，一边看《我是如何遇见你母亲》的重播。你不仅不需要在健身房花太多时间，把时间花在其他地方可能更好。原因如下。
 

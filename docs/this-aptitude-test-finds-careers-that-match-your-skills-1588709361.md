@@ -1,6 +1,6 @@
 # 这种能力倾向测试寻找与你的技能和兴趣相匹配的职业
 
-> 原文:[https://life hacker . com/this-aptitude-test-finds-careers-that-match-your-skills-1588709361](https://lifehacker.com/this-aptitude-test-finds-careers-that-match-your-skills-1588709361)
+> 原文：<https://lifehacker.com/this-aptitude-test-finds-careers-that-match-your-skills-1588709361>
 
 我们大多数人都有各种各样的技能和兴趣，这使得选择职业道路变得棘手。拉斯姆森学院的免费在线职业能力倾向测试让你对自己的技能或兴趣进行排名，然后建议匹配的职业。
 

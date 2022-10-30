@@ -1,6 +1,6 @@
 # 自行车间歇跑可以让你跑得更快
 
-> 原文:[https://life hacker . com/bike-intervals-can-make-you-a-faster-runner-1725401944](https://lifehacker.com/bike-intervals-can-make-you-a-faster-runner-1725401944)
+> 原文：<https://lifehacker.com/bike-intervals-can-make-you-a-faster-runner-1725401944>
 
 寻找变化，或者只是想离开你的脚来恢复受伤？根据一项新的研究，在固定自行车上进行短暂的间歇训练可以帮助你提高跑步速度。
 

@@ -1,6 +1,6 @@
 # 今年送我们喜欢的礼物
 
-> 原文:[https://life hacker . com/give-the-give-the-gift-of-this-we-like-this-year-1472659253](https://lifehacker.com/give-the-gift-of-stuff-we-like-this-year-1472659253)
+> 原文：<https://lifehacker.com/give-the-gift-of-stuff-we-like-this-year-1472659253>
 
 你已经检查了 [我们的应用](https://lifehacker.com/give-the-gift-of-better-apps-this-year-1471095888) ，你已经打包了 [你的小工具](http://lifehacker.com/give-the-gift-of-better-gadgets-this-year-1471162483) ，但是你在树下仍然有一点空间。这就是其他一切的来源！这里是你分享(和发现)所有非电子组织工具、家居用品和其他我们喜欢的东西的地方。
 

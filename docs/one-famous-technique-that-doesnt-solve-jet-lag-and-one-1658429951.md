@@ -1,6 +1,6 @@
 # 一个著名的技术不能解决时差，一个可以
 
-> 原文:[https://gizmodo . com/one-namely-technique-that-solve-jet lag-one-1658429951](https://gizmodo.com/one-famous-technique-that-doesnt-solve-jet-lag-and-one-1658429951)
+> 原文：<https://gizmodo.com/one-famous-technique-that-doesnt-solve-jet-lag-and-one-1658429951>
 
 这个假期去旅游？以下是如何让你的身体为时区转换带来的极度疲惫做好准备。
 

@@ -1,6 +1,6 @@
 # 我们在金钱问题上欺骗自己最常见的方式
 
-> 原文:[https://life hacker . com/the-most-common-ways-we-follow-you-pough our-pough yourself-on money-1566079910](https://lifehacker.com/the-most-common-ways-we-fool-ourselves-about-money-1566079910)
+> 原文：<https://lifehacker.com/the-most-common-ways-we-fool-ourselves-about-money-1566079910>
 
 金钱确实让人感觉是一件理性的事情:你赚到它，你花掉它，希望你能存下一些。但是，如果你知道你也可能做出很多不理智的决定，你会感到惊讶吗？这里有一些我们可能会陷入的常见心理陷阱，以及如何帮助你智取大脑。
 

@@ -1,6 +1,6 @@
 # 你可能错过的最好的博物馆津贴
 
-> 原文:[https://life hacker . com/the-best-benefits-of-museum-you-may-not-known-a-1585311185](https://lifehacker.com/the-best-benefits-of-museums-you-might-not-have-known-a-1585311185)
+> 原文：<https://lifehacker.com/the-best-benefits-of-museums-you-might-not-have-known-a-1585311185>
 
 当我们大多数人想到博物馆时，我们会回想起实地考察，在那里我们静静地走过精心制作的、有时是乏味的展览大厅。然而，博物馆还有很多公众可能不知道的东西。这里只是你在当地博物馆能找到的一些令人惊奇的服务。
 

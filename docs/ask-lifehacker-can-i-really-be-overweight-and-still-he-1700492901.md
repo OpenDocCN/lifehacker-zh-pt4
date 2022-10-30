@@ -1,6 +1,6 @@
 # 我超重了还能保持健康吗？
 
-> 原文:[https://life hacker . com/ask-life hacker-can-I-really-be-weight-and-still-he-1700492901](https://lifehacker.com/ask-lifehacker-can-i-really-be-overweight-and-still-he-1700492901)
+> 原文：<https://lifehacker.com/ask-lifehacker-can-i-really-be-overweight-and-still-he-1700492901>
 
 亲爱的生活黑客，我是一个超重的人，一生都在努力减肥。我的医生告诉我，我的身体质量指数属于“超重类别”说实话，我对自己的身材很满意。我没有任何健康问题，我尽可能健康地生活。有可能超重但仍然健康吗？
 

@@ -1,6 +1,6 @@
 # 我们如何工作，2015 年:戴夫·格林鲍姆的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-2015-Dave-green Baum-s-gear-and-productivi-1685711919](https://lifehacker.com/how-we-work-2015-dave-greenbaum-s-gear-and-productiv-1685711919)
+> 原文：<https://lifehacker.com/how-we-work-2015-dave-greenbaum-s-gear-and-productiv-1685711919>
 
 每周，我们都会问一些有趣的人他们是如何工作的。本周，我们将回答自己关于人们如何完成工作的问题。毕竟，不要问你自己都不愿意回答的问题。现在轮到我了。
 

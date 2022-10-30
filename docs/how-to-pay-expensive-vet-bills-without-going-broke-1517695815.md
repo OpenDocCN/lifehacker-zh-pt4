@@ -1,6 +1,6 @@
 # 如何在不破产的情况下支付昂贵的兽医费用
 
-> 原文:[https://life hacker . com/how-to-pay-highly-vet-bills-without-to-broken-1517695815](https://lifehacker.com/how-to-pay-expensive-vet-bills-without-going-broke-1517695815)
+> 原文：<https://lifehacker.com/how-to-pay-expensive-vet-bills-without-going-broke-1517695815>
 
 人们的医疗费用并不是唯一上涨的医疗费用。对我们宠物的兽医护理也在增加。高额的兽医费用不仅会让家庭预算吃紧，还会迫使我们做出艰难的选择。我们是继续为我们心爱的宠物做挽救生命的手术，还是决定费用太高？
 

@@ -1,6 +1,6 @@
 # 与汽车经销商谈判的最佳技巧
 
-> 原文:[https://life hacker . com/the-best-techniques-for-discharge-1649443251](https://lifehacker.com/the-best-techniques-for-negotiating-with-car-dealership-1649443251)
+> 原文：<https://lifehacker.com/the-best-techniques-for-negotiating-with-car-dealership-1649443251>
 
 汽车销售人员以试图从客户身上榨取每一分钱而闻名，他们通常非常擅长自己的工作。他们是有经验的谈判者，你需要知道如何找到有利条件来达成对你有利的交易。
 

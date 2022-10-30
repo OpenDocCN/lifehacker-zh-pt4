@@ -1,6 +1,6 @@
 # 为什么试图在工作中“真实”可能会阻碍你
 
-> 原文:[https://life hacker . com/why-try-to-be-authentic-in-work-may-be-holding-you-1705334528](https://lifehacker.com/why-trying-to-be-authentic-at-work-may-be-holding-you-1705334528)
+> 原文：<https://lifehacker.com/why-trying-to-be-authentic-at-work-may-be-holding-you-1705334528>
 
 你可能被问到“你长大后想做什么？”小时候无数次。年轻人经常被建议尽早做出职业决定，然后追求这个想法，在多年听到同样的建议后，你可能已经想象了你未来的职业生活——你会有什么样的工作，你会成为什么样的领导者——现在你正在倒退，以获得你梦想了很久的梦寐以求的生活。但是这个思考过程可能是一个职业陷阱，限制了你的可能性。
 

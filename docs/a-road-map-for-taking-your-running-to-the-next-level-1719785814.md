@@ -1,6 +1,6 @@
 # 让你的跑步更上一层楼的路线图
 
-> 原文:[https://life hacker . com/a-road-map-for-taking your-running-to-the-next-level-1719785814](https://lifehacker.com/a-road-map-for-taking-your-running-to-the-next-level-1719785814)
+> 原文：<https://lifehacker.com/a-road-map-for-taking-your-running-to-the-next-level-1719785814>
 
 当你第一次系鞋带时，你可能有一个短期目标:完成这次跑步。很快再做一次。也许可以进行一场短距离比赛。但是如果你喜欢跑步，你将需要一张路线图，带你走向更远的未来。以下是如何弄清楚那个目标是什么——然后到达那里。
 

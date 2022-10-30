@@ -1,6 +1,6 @@
 # 芝加哥冬季主屏幕
 
-> 原文:[https://life hacker . com/the-Chicago-winter-home-screen-1681234472](https://lifehacker.com/the-chicago-winter-home-screen-1681234472)
+> 原文：<https://lifehacker.com/the-chicago-winter-home-screen-1681234472>
 
 冬天可能会冷得要命，但昏暗、柔和的颜色可能会让人平静和愉快。这是我的彩屏用户的设计灵感。
 

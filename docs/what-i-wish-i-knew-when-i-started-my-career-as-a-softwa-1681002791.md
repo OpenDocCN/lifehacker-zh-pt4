@@ -1,6 +1,6 @@
 # 当我开始我的软件开发职业生涯时，我希望我知道什么
 
-> 原文:[https://life hacker . com/what-I-wish-I-know-when-I-start-my-career-a-a-softwa-1681002791](https://lifehacker.com/what-i-wish-i-knew-when-i-started-my-career-as-a-softwa-1681002791)
+> 原文：<https://lifehacker.com/what-i-wish-i-knew-when-i-started-my-career-as-a-softwa-1681002791>
 
 当你在任何领域开始你的职业生涯时，你可能会有很高的期望，但并不知道该期待什么。你应该低着头做别人告诉你的事情，还是应该只瞄准雄心勃勃的项目？以下是我作为软件开发人员所学到的经验。
 

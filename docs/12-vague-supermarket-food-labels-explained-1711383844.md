@@ -1,6 +1,6 @@
 # 12 模糊的超市食品标签，解释
 
-> 原文:[https://life hacker . com/12-vague-supermarket-food-labels-explained-1711383844](https://lifehacker.com/12-vague-supermarket-food-labels-explained-1711383844)
+> 原文：<https://lifehacker.com/12-vague-supermarket-food-labels-explained-1711383844>
 
 杂货店里到处都是模糊的食品标签，比如“工匠”、“新鲜的”和“人道饲养的”。这些术语中的一些可能会被设计误导，但它们并非完全没有意义。这里有一些你会在超市里发现的最容易混淆的术语，以及它们的真正含义。
 

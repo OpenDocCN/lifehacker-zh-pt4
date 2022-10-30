@@ -1,6 +1,6 @@
 # 加州新的智能手机关机法律将如何影响你
 
-> 原文:[https://life hacker . com/how-californias-new-smart phone-kill-switch-law-will-aff-1627397108](https://lifehacker.com/how-californias-new-smartphone-kill-switch-law-will-aff-1627397108)
+> 原文：<https://lifehacker.com/how-californias-new-smartphone-kill-switch-law-will-aff-1627397108>
 
 本周，加州通过了一项新的法律，要求在该州出售的任何智能手机都必须包括防盗措施。它很可能对加州以外的地方产生影响。这就是它对你的意义。
 

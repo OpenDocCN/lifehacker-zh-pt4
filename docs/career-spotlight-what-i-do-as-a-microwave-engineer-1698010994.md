@@ -1,6 +1,6 @@
 # 职业聚焦:我作为微波工程师做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-a-microwave-engineer-1698010994](https://lifehacker.com/career-spotlight-what-i-do-as-a-microwave-engineer-1698010994)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-microwave-engineer-1698010994>
 
 我们很少想到使无线通信成为规范的技术，但是将电磁波谱的不可见波长投入使用需要大量晦涩难懂的工程。
 

@@ -1,6 +1,6 @@
 # Steam 现在提供退款
 
-> 原文:[https://kotaku.com/steam-is-now-offering-refunds-1708492000](https://kotaku.com/steam-is-now-offering-refunds-1708492000)
+> 原文：<https://kotaku.com/steam-is-now-offering-refunds-1708492000>
 
 Steam 终于有了一个合适的退款系统。从今天开始，Valve PC 平台的用户将能够在 [上以任何理由获得任何游戏](http://store.steampowered.com/steam_refunds) 的全额退款，前提是自购买以来不到 14 天，并且他们玩游戏的时间不超过两个小时。
 

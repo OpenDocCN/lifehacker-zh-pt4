@@ -1,6 +1,6 @@
 # 亚马逊消防电视棒审查:少了一点速度少了很多钱
 
-> 原文:[https://gizmodo . com/Amazon-fire-TV-stick-review-a-lot-less-money-for-a-lit-1661131301](https://gizmodo.com/amazon-fire-tv-stick-review-a-lot-less-money-for-a-lit-1661131301)
+> 原文：<https://gizmodo.com/amazon-fire-tv-stick-review-a-lot-less-money-for-a-lit-1661131301>
 
 亚马逊 Fire 电视棒是亚马逊超快速语音搜索功能 Fire 电视的廉价版本。HDMI 版本当然牺牲了许多让 Fire TV 变得伟大的东西，但这种讨价还价值得吗？绝对的。
 

@@ -1,6 +1,6 @@
 # 我是维罗妮卡·贝尔蒙特，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Veronica-bel mont-and-this-is-how-I-work-1716018350](https://lifehacker.com/im-veronica-belmont-and-this-is-how-i-work-1716018350)
+> 原文：<https://lifehacker.com/im-veronica-belmont-and-this-is-how-i-work-1716018350>
 
 即使你只是粗略地关注一下网上的科技文化，维罗妮卡·贝尔蒙特也可能是一张熟悉的面孔。近十年来，维罗妮卡一直与 CNET 一起主持和制作播客和视频，包括 Revision3 的 [Tekzilla](http://revision3.com/tekzilla/) ，以及现在 Engadget 的 [亲爱的维罗妮卡](http://www.engadget.com/dear-veronica/)——还有十几个其他项目。
 

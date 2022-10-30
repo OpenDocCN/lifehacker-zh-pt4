@@ -1,6 +1,6 @@
 # 高速互联网的最佳状态
 
-> 原文:[https://life hacker . com/the-best-States-for-high-speed-internet-1617702644](https://lifehacker.com/the-best-states-for-high-speed-internet-1617702644)
+> 原文：<https://lifehacker.com/the-best-states-for-high-speed-internet-1617702644>
 
 互联网几乎已经成为日常生活中必不可少的一部分。如果你正计划创业或搬家，并且网速对你来说是一个重要因素，这个列表显示了所有 50 个州的平均网速。
 

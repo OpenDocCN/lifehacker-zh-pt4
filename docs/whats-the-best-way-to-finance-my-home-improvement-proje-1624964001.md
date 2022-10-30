@@ -1,6 +1,6 @@
 # 为我的家庭装修项目融资的最佳方式是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-way to finance-my-home-improvement-proje-1624964001](https://lifehacker.com/whats-the-best-way-to-finance-my-home-improvement-proje-1624964001)
+> 原文：<https://lifehacker.com/whats-the-best-way-to-finance-my-home-improvement-proje-1624964001>
 
 亲爱的生活黑客，我有几个想尽快完成的改造项目，但我不确定如何支付所有费用。“零利率”贷款或信用卡优惠对此合适吗？或者我应该申请新的房屋贷款，如房屋净值贷款或信贷额度？所有这些融资方案之间有什么区别？
 

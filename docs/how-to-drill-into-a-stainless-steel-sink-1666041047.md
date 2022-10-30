@@ -1,6 +1,6 @@
 # 如何钻入不锈钢水槽
 
-> 原文:[https://life hacker . com/how-to-drill-into-a-不锈钢-sink-1666041047](https://lifehacker.com/how-to-drill-into-a-stainless-steel-sink-1666041047)
+> 原文：<https://lifehacker.com/how-to-drill-into-a-stainless-steel-sink-1666041047>
 
 在不锈钢上钻孔可能很棘手，但这是安装皂液机或过滤水龙头时的唯一选择。以下是如何在不刮伤不锈钢表面和损坏好钻头的情况下做到这一点。
 

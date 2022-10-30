@@ -1,6 +1,6 @@
 # Flix Plus:在网飞隐藏剧透、显示分级等
 
-> 原文:[https://life hacker . com/flix-plus-customizes-网飞-to-your-hearts-desire-1640968001](https://lifehacker.com/flix-plus-customizes-netflix-to-your-hearts-desire-1640968001)
+> 原文：<https://lifehacker.com/flix-plus-customizes-netflix-to-your-hearts-desire-1640968001>
 
 Chrome: Flix Plus 是我们在 Lifehacker 开发的新扩展，为 Netflix.com 增加了新的功能和调整，让你可以过滤它的推荐，删除剧透，使用键盘快捷键，等等。
 

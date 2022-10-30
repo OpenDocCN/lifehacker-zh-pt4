@@ -1,6 +1,6 @@
 # 我对舒适入耳式耳机的不懈追求
 
-> 原文:[https://life hacker . com/my-never-ending-search-for-comfort-in-ear-headphone-1679696172](https://lifehacker.com/my-never-ending-search-for-comfortable-in-ear-headphone-1679696172)
+> 原文：<https://lifehacker.com/my-never-ending-search-for-comfortable-in-ear-headphone-1679696172>
 
 我是一个耳机迷。我有各种形状和尺寸的耳机，但有一个小问题:我不喜欢那些深入耳朵的东西，大多数传统入耳式耳机都是这样。所以我开始寻找更舒适的选择...比我想象的要复杂。
 

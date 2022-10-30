@@ -1,6 +1,6 @@
 # 使用免费且廉价的软件构建您自己的 Adobe Creative Suite
 
-> 原文:[https://life hacker . com/build-your-own-adobe-creative-suite-with-free-and-cheap-5976725](https://lifehacker.com/build-your-own-adobe-creative-suite-with-free-and-cheap-5976725)
+> 原文：<https://lifehacker.com/build-your-own-adobe-creative-suite-with-free-and-cheap-5976725>
 
 Adobe 的 Creative Suite 对于专业人士来说是最好的软件包之一，但对于大多数人来说，该套件过于昂贵。如果你不能放弃现金，你仍然可以通过免费或廉价的软件获得类似的体验。以下是如何建立自己的创意套件。
 

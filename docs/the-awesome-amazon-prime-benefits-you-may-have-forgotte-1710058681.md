@@ -1,6 +1,6 @@
 # 你可能已经忘记了的令人敬畏的亚马逊优惠
 
-> 原文:[https://life hacker . com/the-awesome-Amazon-prime-benefits-you-may-have-forgotte-1710058681](https://lifehacker.com/the-awesome-amazon-prime-benefits-you-may-have-forgotte-1710058681)
+> 原文：<https://lifehacker.com/the-awesome-amazon-prime-benefits-you-may-have-forgotte-1710058681>
 
 如果你在网上购物，亚马逊 Prime 会员的价格是 [很容易就能抵得上](https://lifehacker.com/is-amazon-prime-worth-it-1038496234) 两天的免费运费。但这并不是一个主要会员能给你的全部。这里有一些你可能已经忘记的额外津贴。
 

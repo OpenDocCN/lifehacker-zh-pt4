@@ -1,6 +1,6 @@
 # 如何停止憎恨自己，开始走向自尊
 
-> 原文:[https://life hacker . com/how-to-stop-hate-yourself-start-down-the-path-to-1688096718](https://lifehacker.com/how-to-stop-hating-yourself-and-start-down-the-path-to-1688096718)
+> 原文：<https://lifehacker.com/how-to-stop-hating-yourself-and-start-down-the-path-to-1688096718>
 
 我们都有偶尔自我厌恶的倾向，有时这是一条只会变得更糟的黑暗之路。谢天谢地，如果你能让自己处于正确的心态，反击并不太难。
 

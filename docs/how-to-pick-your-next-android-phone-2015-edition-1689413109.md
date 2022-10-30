@@ -1,6 +1,6 @@
 # 如何挑选你的下一部安卓手机:2015 版
 
-> 原文:[https://life hacker . com/how-to-pick-your-next-Android-phone-2015-edition-1689413109](https://lifehacker.com/how-to-pick-your-next-android-phone-2015-edition-1689413109)
+> 原文：<https://lifehacker.com/how-to-pick-your-next-android-phone-2015-edition-1689413109>
 
 有趣的事实:地球上每个人大约有七部不同型号的安卓手机。虽然这种说法实际上并不正确，但似乎很接近。既然你有事情要做，那么在购买一部新的 Android 手机时，以下是一些重要的事情。
 

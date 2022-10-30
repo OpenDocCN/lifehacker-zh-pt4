@@ -1,6 +1,6 @@
 # Lifehacker 重点介绍:你真正关心的 CES 新闻
 
-> 原文:[https://life hacker . com/life hacker-highlights-the-ces-news-you-actually-care-a-1678483682](https://lifehacker.com/lifehacker-highlights-the-ces-news-you-actually-care-a-1678483682)
+> 原文：<https://lifehacker.com/lifehacker-highlights-the-ces-news-you-actually-care-a-1678483682>
 
 消费电子展(CES)已经举办了多年，展示了科技行业最酷的新 [蒸汽产品](http://gizmodo.com/the-best-new-vaporware-5875570) 。不过，偶尔会发布一些很酷的东西。作为生活黑客，你可能会对今年的节目感兴趣。
 

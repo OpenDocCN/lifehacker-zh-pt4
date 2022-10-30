@@ -1,6 +1,6 @@
 # 五本最佳个人理财书籍
 
-> 原文:[https://life hacker . com/five-best-personal-finance-books-1682899925](https://lifehacker.com/five-best-personal-finance-books-1682899925)
+> 原文：<https://lifehacker.com/five-best-personal-finance-books-1682899925>
 
 理财建议很容易找到，但是好的理财建议——你可以使用并牢记在心的建议——就比较棘手了。当然，预算和管理钱看起来很容易，但如果是这样的话，每个人都会很熟悉。本周，我们将根据你的提名，来看看一些最好的个人理财书籍，以帮助你理清账目。
 

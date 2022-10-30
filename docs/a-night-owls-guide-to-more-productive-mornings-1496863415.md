@@ -1,6 +1,6 @@
 # 夜猫子如何更有效率地度过早晨
 
-> 原文:[https://life hacker . com/a-night-owls-guide-to-more-productive-morning-1496863415](https://lifehacker.com/a-night-owls-guide-to-more-productive-mornings-1496863415)
+> 原文：<https://lifehacker.com/a-night-owls-guide-to-more-productive-mornings-1496863415>
 
 早晨是艰难的，尤其是如果你不是那种从床上跳起来准备开始新的一天的人。尽管如此，不管你是否在乎早上的时间，太阳还是会升起。所以，如果你绝不是一个早起的人，无论如何你都要起床，这里有一个指南，让你充分利用这些时间，开始新的一天。
 

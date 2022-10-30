@@ -1,6 +1,6 @@
 # “编程训练营”能帮我找到编码工作吗？
 
-> 原文:[https://life hacker . com/will-a-programming-boot-camp-help-me-get-a-coding-job-1695422265](https://lifehacker.com/will-a-programming-boot-camp-help-me-get-a-coding-job-1695422265)
+> 原文：<https://lifehacker.com/will-a-programming-boot-camp-help-me-get-a-coding-job-1695422265>
 
 亲爱的 Lifehacker，
 我对找一份程序员的工作很感兴趣，但我没有接受过任何正式的培训。我听说新兵训练营能让我在几个月内找到一份工作。不过，它们似乎很激烈，也很昂贵。他们值得吗？

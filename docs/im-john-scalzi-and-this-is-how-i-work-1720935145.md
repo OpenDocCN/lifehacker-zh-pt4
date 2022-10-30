@@ -1,6 +1,6 @@
 # 我是约翰·斯卡尔齐，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-John-scalzi-and-this-is-how-I-work-1720935145](https://lifehacker.com/im-john-scalzi-and-this-is-how-i-work-1720935145)
+> 原文：<https://lifehacker.com/im-john-scalzi-and-this-is-how-i-work-1720935145>
 
 约翰·斯卡尔齐是一位获得雨果奖的科幻小说作家。他还是一个偶尔的专栏作家、一个定期的(经常是令人捧腹的)博客作者、一个活跃的推特用户(T2)、电视顾问等等。而当人们提到斯卡齐的名字时，后面通常会跟着“他怎么写这么多？”
 

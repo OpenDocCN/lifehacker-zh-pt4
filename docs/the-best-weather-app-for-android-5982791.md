@@ -1,6 +1,6 @@
 # Android 的最佳天气应用
 
-> 原文:[https://life hacker . com/the-best-weather-app-for-Android-5982791](https://lifehacker.com/the-best-weather-app-for-android-5982791)
+> 原文：<https://lifehacker.com/the-best-weather-app-for-android-5982791>
 
 Android 似乎有十亿种不同的天气应用程序可用，但当涉及到以易于阅读的方式获取基本信息时，我们更喜欢 1Weather。
 

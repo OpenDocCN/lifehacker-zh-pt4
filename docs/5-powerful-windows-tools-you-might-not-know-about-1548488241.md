@@ -1,6 +1,6 @@
 # 你可能不知道的五个强大的内置 Windows 工具
 
-> 原文:[https://life hacker . com/5-powerful-windows-tools-you-may-not-know-on-1548488241](https://lifehacker.com/5-powerful-windows-tools-you-might-not-know-about-1548488241)
+> 原文：<https://lifehacker.com/5-powerful-windows-tools-you-might-not-know-about-1548488241>
 
 即使您生活在 Windows 中，您可能会惊讶地发现，它包括一些相当强大的内置工具，用于帮助您监控您的系统并在出现问题时进行故障排除。我们已经看过了 Windows 的 [黑暗角落](https://lifehacker.com/de-mystifying-the-dark-corners-of-windows-the-registry-5880876) 以及一些你可能已经忘记的 [的令人敬畏的功能](http://lifehacker.com/7-awesome-features-youve-forgotten-about-in-windows-7-5932456) 。这里有几个我们最喜欢的被忽视的 Windows 工具。
 

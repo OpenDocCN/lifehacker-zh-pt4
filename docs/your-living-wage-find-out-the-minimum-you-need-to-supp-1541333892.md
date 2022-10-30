@@ -1,6 +1,6 @@
 # 生活工资计算器发现你需要什么来支持你的家庭
 
-> 原文:[https://life hacker . com/your-living-wage-find-the-minimum-you-need-supp-1541333892](https://lifehacker.com/your-living-wage-find-out-the-minimum-you-need-to-supp-1541333892)
+> 原文：<https://lifehacker.com/your-living-wage-find-out-the-minimum-you-need-to-supp-1541333892>
 
 有没有想过多少钱才够维持生活？麻省理工学院的这个计算器告诉你，根据你所在地区的典型支出，你需要赚多少钱才能在没有政府援助的情况下养活自己和家人。
 

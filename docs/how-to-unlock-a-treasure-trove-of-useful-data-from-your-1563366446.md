@@ -1,6 +1,6 @@
 # 如何从您的汽车中打开有用数据的宝库
 
-> 原文:[https://life hacker . com/how-to-unlock-a-treasury-trove-of-your-1563366446](https://lifehacker.com/how-to-unlock-a-treasure-trove-of-useful-data-from-your-1563366446)
+> 原文：<https://lifehacker.com/how-to-unlock-a-treasure-trove-of-useful-data-from-your-1563366446>
 
 这是 2014 年。难道你的车不应该像你的手机一样智能吗？事实上，它是。你的汽车产生了大量的数据，而我们大多数人都没有意识到这一点。有了合适的硬件和应用程序，你可以使用这些数据来节省汽油，找到你停车的地方，甚至诊断那些讨厌的检查引擎灯。
 

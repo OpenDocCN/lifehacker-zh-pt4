@@ -1,6 +1,6 @@
 # 墨菲床工作区
 
-> 原文:[https://lifehacker.com/the-murphy-bed-workspace-1655084238](https://lifehacker.com/the-murphy-bed-workspace-1655084238)
+> 原文：<https://lifehacker.com/the-murphy-bed-workspace-1655084238>
 
 如果你有一间兼作临时客房的办公室，这是个好主意:用一张一体式折叠床来掩饰床的部分。
 

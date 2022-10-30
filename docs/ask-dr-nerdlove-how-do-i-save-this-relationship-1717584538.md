@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:我该如何挽救这段感情？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-save-this-relationship-1717584538](https://kotaku.com/ask-dr-nerdlove-how-do-i-save-this-relationship-1717584538)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-save-this-relationship-1717584538>
 
 你好，互联网！欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个相信不明飞行物、星体投射、精神心灵感应、超感官知觉、超视力、精神摄影、心灵遥感运动、完全恍惚灵媒、尼斯湖水怪和亚特兰蒂斯理论的约会专栏。
 

@@ -1,6 +1,6 @@
 # 如何平衡有趣的生活和你的财务目标
 
-> 原文:[https://life hacker . com/how-to-balance-a fun-life-your financial-goals-1631646345](https://lifehacker.com/how-to-balance-a-fun-life-with-your-financial-goals-1631646345)
+> 原文：<https://lifehacker.com/how-to-balance-a-fun-life-with-your-financial-goals-1631646345>
 
 当你在偿还债务或实现其他财务目标时，你通常不得不减少餐馆、电影和其他有趣的东西。过了一段时间，那就变老了。但是努力达到你的财务目标并不意味着你不能享受生活。你只需要找到一个平衡点。
 

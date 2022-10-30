@@ -1,6 +1,6 @@
 # 谈成了一笔交易:如何在这些主要零售商那里谈判
 
-> 原文:[https://life hacker . com/talk-your-way-to-a-deal-how-to-these-majo-1636412021](https://lifehacker.com/talk-your-way-to-a-deal-how-to-negotiate-at-these-majo-1636412021)
+> 原文：<https://lifehacker.com/talk-your-way-to-a-deal-how-to-negotiate-at-these-majo-1636412021>
 
 你可能会觉得在大型零售商那里讨价还价有点愚蠢，但是越来越多的商店提供价格匹配政策和其他保证，让你可以谈低价格。这里有六个主要的零售商，在那里你可以讨价还价，省下一美元。
 

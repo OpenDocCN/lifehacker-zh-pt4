@@ -1,6 +1,6 @@
 # 工作场所遗失的坦诚艺术
 
-> 原文:[https://life hacker . com/the-lost-art-of-candor-in-workplace-1632438847](https://lifehacker.com/the-lost-art-of-candor-in-the-workplace-1632438847)
+> 原文：<https://lifehacker.com/the-lost-art-of-candor-in-the-workplace-1632438847>
 
 在管理世界中，对于一个组织应该如何运作，很难找到普遍一致的意见。但是，如果有一个自古以来一直重复的真理，那就是伟大的工作取决于接受评判的意愿。
 

@@ -1,6 +1,6 @@
 # 良好的“情绪卫生”对你心理健康的重要性
 
-> 原文:[https://life hacker . com/the-importance-of-good-emotional-health-for-your-men-1687555184](https://lifehacker.com/the-importance-of-good-emotional-hygiene-for-your-men-1687555184)
+> 原文：<https://lifehacker.com/the-importance-of-good-emotional-hygiene-for-your-men-1687555184>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-F2hc2FLOdhI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-F2hc2FLOdhI&start=0) 
 

@@ -1,6 +1,6 @@
 # 你不敢问的十个汽车问题的答案
 
-> 原文:[https://jalopnik . com/answers-to-the-ten-car-questions-you-too-fear-to-1638075660](https://jalopnik.com/answers-to-the-ten-car-questions-you-were-too-afraid-to-1638075660)
+> 原文：<https://jalopnik.com/answers-to-the-ten-car-questions-you-were-too-afraid-to-1638075660>
 
 每个汽车爱好者都有一些他们认为太愚蠢而不能问的问题，所以他们没有回答。直到现在，那是。
 

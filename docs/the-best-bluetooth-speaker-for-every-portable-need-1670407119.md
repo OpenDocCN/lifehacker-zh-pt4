@@ -1,6 +1,6 @@
 # 满足所有便携需求的最佳蓝牙扬声器
 
-> 原文:[https://gizmodo . com/the-best-bluetooth-speaker-for-every-portable-need-1670407119](https://gizmodo.com/the-best-bluetooth-speaker-for-every-portable-need-1670407119)
+> 原文：<https://gizmodo.com/the-best-bluetooth-speaker-for-every-portable-need-1670407119>
 
 你的普通廉价便携式蓝牙音箱是垃圾——这一类别中的垃圾质量比是荒谬的。但在过去的几个月里，我梳理了一大堆 200 美元以下的音箱，发现了四个确实不错的。
 

@@ -1,6 +1,6 @@
 # 买房子或公寓的最佳时间是什么时候？
 
-> 原文:[https://life hacker . com/when ' s-best-time-to-shop for a house or-apartment-1519888581](https://lifehacker.com/whens-the-best-time-to-shop-for-a-house-or-apartment-1519888581)
+> 原文：<https://lifehacker.com/whens-the-best-time-to-shop-for-a-house-or-apartment-1519888581>
 
 亲爱的生活黑客，我打算很快找到自己的住处，我对何时搬家有很大的弹性。我听说我应该等到春天才开始买房子，但如果我要租房，我应该等到秋天。那是怎么回事？有没有去找房子的最佳时间？
 

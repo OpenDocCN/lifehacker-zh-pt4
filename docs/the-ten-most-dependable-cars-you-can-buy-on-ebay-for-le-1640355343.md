@@ -1,6 +1,6 @@
 # 你可以在易贝用不到 5000 美元买到的十款最可靠的汽车
 
-> 原文:[https://jalopnik . com/the-ten-of-most-reliable-cars-you-can-buy-on-le-1640355343](https://jalopnik.com/the-ten-most-dependable-cars-you-can-buy-on-ebay-for-le-1640355343)
+> 原文：<https://jalopnik.com/the-ten-most-dependable-cars-you-can-buy-on-ebay-for-le-1640355343>
 
 在我问你节俭，节俭，我敢说，便宜很多到 [给我最可靠的汽车价格低于一辆新车的首付](http://carbuying.jalopnik.com/ebay-challenge-the-most-dependable-cars-for-under-500-1639496464) 后，你用一些令人吃惊的确凿例子来回答。以下是易贝最可靠的汽车，价格不到 5000 美元。
 

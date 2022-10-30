@@ -1,6 +1,6 @@
 # 关于为非营利组织工作，你需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-work-for-a-non-pro-1542939888](https://lifehacker.com/everything-you-need-to-know-about-working-for-a-non-pro-1542939888)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-working-for-a-non-pro-1542939888>
 
 千禧一代最常见的批评之一是声称我们自私和浅薄，我一直无法理解这一点。毕竟，这一代人见证了“走向绿色”成为一种基本期望，也让“社会公正”等术语变得司空见惯。
 

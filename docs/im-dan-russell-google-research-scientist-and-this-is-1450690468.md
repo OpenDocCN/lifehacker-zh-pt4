@@ -1,6 +1,6 @@
 # 我是丹·拉塞尔，谷歌研究科学家，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Dan-Russell-Google-research-scientist-and-this-is-1450690468](https://lifehacker.com/im-dan-russell-google-research-scientist-and-this-is-1450690468)
+> 原文：<https://lifehacker.com/im-dan-russell-google-research-scientist-and-this-is-1450690468>
 
 你的谷歌搜索历史可能比网上其他任何东西都更能揭示你的情况(不管是好是坏)。丹·罗素 研究我们到底是如何与谷歌搜索互动的:是什么让我们点击一个结果？为什么有些人使用搜索的次数远远超过其他人？怎样才算成功的查询？丹和他的团队还专注于 [教育](http://www.google.com/insidesearch/searcheducation/index.html) ，教人们成为有效搜索者所需的技能。我们采访了这位谷歌大师，讨论了阅读清单、睡眠规律、记笔记的艺术等等。
 

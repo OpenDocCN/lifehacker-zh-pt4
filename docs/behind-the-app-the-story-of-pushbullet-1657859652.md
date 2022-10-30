@@ -1,6 +1,6 @@
 # 应用背后:推推的故事
 
-> 原文:[https://life hacker . com/behind-the-app-the-story-of-push bullet-1657859652](https://lifehacker.com/behind-the-app-the-story-of-pushbullet-1657859652)
+> 原文：<https://lifehacker.com/behind-the-app-the-story-of-pushbullet-1657859652>
 
 当我们的目光从手机转移到笔记本电脑和平板电脑时，我们都生活在多个屏幕之间。当你的数字生活像凌乱的办公室里的文书工作一样杂乱无章时，你如何让自己保持有序？ [推推](https://www.pushbullet.com/) 正在朝着一个答案努力。
 

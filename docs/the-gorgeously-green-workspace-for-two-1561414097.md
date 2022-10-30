@@ -1,6 +1,6 @@
 # 华丽的绿色双人工作空间
 
-> 原文:[https://life hacker . com/the-glorifully-green-workspace-for-two-1561414097](https://lifehacker.com/the-gorgeously-green-workspace-for-two-1561414097)
+> 原文：<https://lifehacker.com/the-gorgeously-green-workspace-for-two-1561414097>
 
 一些家庭办公室不会让你觉得被困在室内，而是有一个开放，微风习习的氛围，这要归功于照明，浅色墙壁和天然材料。两株植物、编织椅和一张自制的双人木桌构成了这个令人振奋的工作空间。
 

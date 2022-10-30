@@ -1,6 +1,6 @@
 # 请教专家:所有的记忆技巧
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-memoring-techniques-1692680356](https://lifehacker.com/ask-an-expert-all-about-memorization-techniques-1692680356)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-memorization-techniques-1692680356>
 
 你能训练自己有更好的记忆力吗？在某些方面，是的。你应该以一种健康的怀疑态度对待“”大脑游戏，但当涉及到记忆时，练习各种技巧实际上可以帮助你提高回忆能力。
 

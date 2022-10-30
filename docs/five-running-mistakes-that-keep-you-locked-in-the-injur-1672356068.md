@@ -1,6 +1,6 @@
 # 让你陷入伤病循环的五个跑步错误
 
-> 原文:[https://life hacker . com/five-running-errors-the-keep-you-locked-in-the-injury-1672356068](https://lifehacker.com/five-running-mistakes-that-keep-you-locked-in-the-injur-1672356068)
+> 原文：<https://lifehacker.com/five-running-mistakes-that-keep-you-locked-in-the-injur-1672356068>
 
 你的身体不是一台机器，即使你认为你可以“挺过去”，你也不应该把它当成一台机器你需要像训练时一样关注和考虑你的恢复。以下是一些常见的跑步错误，它们会加重你身体的压力。
 

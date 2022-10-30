@@ -1,6 +1,6 @@
 # 如何在短短 30 分钟内进行家庭能源审计
 
-> 原文:[https://life hacker . com/how-to-conduct-a-home-energy-audit-in-just-30-minutes-1498146559](https://lifehacker.com/how-to-conduct-a-home-energy-audit-in-just-30-minutes-1498146559)
+> 原文：<https://lifehacker.com/how-to-conduct-a-home-energy-audit-in-just-30-minutes-1498146559>
 
 采取措施节约能源可以每年减少 600 美元的电费。不信？仅通风一项就可以损失高达 30%的家庭能源使用量！做一次家庭能源审计，找出今年冬天减少水电费的最佳方法。
 

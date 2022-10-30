@@ -1,6 +1,6 @@
 # 如何和孩子谈论种族
 
-> 原文:[https://life hacker . com/how-to-talk-about-the-race-with-your-kids-1681298311](https://lifehacker.com/how-to-talk-about-race-with-your-kids-1681298311)
+> 原文：<https://lifehacker.com/how-to-talk-about-race-with-your-kids-1681298311>
 
 如果你能对孩子们说，“人们可能看起来不同，来自不同的地方，但我们都是平等的，应该受到同样的对待”，然后就此打住，那就太好了。但是，如果最近的新闻教会了我们什么，那就是现实并不那么简单，我们需要直面种族和种族主义的话题。
 

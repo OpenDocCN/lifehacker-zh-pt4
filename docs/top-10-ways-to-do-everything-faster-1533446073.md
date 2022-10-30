@@ -1,6 +1,6 @@
 # 加快做事速度的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-do-everything-faster-1533446073](https://lifehacker.com/top-10-ways-to-do-everything-faster-1533446073)
+> 原文：<https://lifehacker.com/top-10-ways-to-do-everything-faster-1533446073>
 
 有些事情需要太长时间。如果你想在日常生活中更有效率，这里有 10 个小贴士可以让你像闪电侠一样生活。
 

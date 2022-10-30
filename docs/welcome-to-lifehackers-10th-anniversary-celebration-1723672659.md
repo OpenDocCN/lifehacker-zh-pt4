@@ -1,6 +1,6 @@
 # 欢迎来到 Lifehacker 的十周年庆典
 
-> 原文:[https://life hacker . com/welcome-to-life hacker-10 周年庆典-1723672659](https://lifehacker.com/welcome-to-lifehackers-10th-anniversary-celebration-1723672659)
+> 原文：<https://lifehacker.com/welcome-to-lifehackers-10th-anniversary-celebration-1723672659>
 
 今年，Lifehacker 满 10 岁了。让我们通过回顾过去十年中我们最喜欢的技巧和指南来庆祝一下。
 

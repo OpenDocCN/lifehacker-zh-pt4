@@ -1,6 +1,6 @@
 # 购买二手电子游戏和游戏机的最佳地点是哪里？
 
-> 原文:[https://life hacker . com/whats-the-best-place to-buy-used-video-games-and-consol-1636073179](https://lifehacker.com/whats-the-best-place-to-buy-used-video-games-and-consol-1636073179)
+> 原文：<https://lifehacker.com/whats-the-best-place-to-buy-used-video-games-and-consol-1636073179>
 
 想玩游戏吗？好了，我们已经谈论了 PC 游戏 的最佳资源 [，但是本周我们想要谈论各种游戏的交易，特别是二手游戏。你去哪里买到最便宜的二手游戏？有很多选择，但本周我们对最好的感兴趣。](https://lifehacker.com/five-best-resources-for-pc-games-1567864346)
 

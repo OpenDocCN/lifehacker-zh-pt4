@@ -1,6 +1,6 @@
 # 为了省钱，购买电子产品时，关注你的日常需求
 
-> 原文:[https://life hacker . com/focus-on-your ' s daily-needs-when-buying-to-sa-1593348215](https://lifehacker.com/focus-on-your-daily-needs-when-buying-electronics-to-sa-1593348215)
+> 原文：<https://lifehacker.com/focus-on-your-daily-needs-when-buying-electronics-to-sa-1593348215>
 
 很多人购买高端设备，因为他们认为“有一天”他们可能会需要它们的功能，但如果你只专注于你实际需要做的事情，你可能会节省很多钱。毕竟，你的电子产品不是终身购买的。
 

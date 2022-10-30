@@ -1,6 +1,6 @@
 # 八月最好买的东西
 
-> 原文:[https://life hacker . com/the-best-things-to-buy-in-August-5931448](https://lifehacker.com/the-best-things-to-buy-in-august-5931448)
+> 原文：<https://lifehacker.com/the-best-things-to-buy-in-august-5931448>
 
 随着返校季开始升温，你会发现很多相关商品的超值优惠。以下是这个月最值得买的东西。
 

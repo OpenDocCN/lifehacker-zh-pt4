@@ -1,6 +1,6 @@
 # 我应该如何摆脱一只被粘住的老鼠？
 
-> 原文:[https://life hacker . com/how-should-I-get-off-a-a-mouse-that-sticked-in-a-glue-1456789231](https://lifehacker.com/how-should-i-get-rid-of-a-mouse-thats-stuck-in-a-glue-1456789231)
+> 原文：<https://lifehacker.com/how-should-i-get-rid-of-a-mouse-thats-stuck-in-a-glue-1456789231>
 
 不，你不能只扔掉蠕动的害虫。如果你骄傲地拥有一只粘在粘鼠夹上的老鼠，那么你就遇到了让它脱离痛苦的问题。 [*栈交换*](http://diy.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=diy-91) *的 DIY 伙计们都来帮忙了。*
 

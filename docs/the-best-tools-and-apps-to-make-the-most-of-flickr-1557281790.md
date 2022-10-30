@@ -1,6 +1,6 @@
 # 充分利用 Flickr 的最佳工具和应用
 
-> 原文:[https://life hacker . com/the-best-tools-and-apps-to-make-the-most-of-Flickr-1557281790](https://lifehacker.com/the-best-tools-and-apps-to-make-the-most-of-flickr-1557281790)
+> 原文：<https://lifehacker.com/the-best-tools-and-apps-to-make-the-most-of-flickr-1557281790>
 
 Flickr 是一个很棒的工具，可以整理你的照片并与世界分享。此外，自从 [Flickr 进行了一次大修并获得了大量免费空间](http://lifehacker.com/flickr-offers-1tb-of-free-space-for-your-photos-50-ye-508972406/all) ，它也是备份照片的好地方。尽管如此，如果有一些来自用户社区的有用工具，它甚至会更好。这里有一些最好的。
 

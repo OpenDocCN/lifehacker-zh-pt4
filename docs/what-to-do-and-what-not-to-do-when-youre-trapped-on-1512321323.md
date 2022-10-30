@@ -1,6 +1,6 @@
 # 当你被困在高速公路上时，该做什么(和不该做什么)
 
-> 原文:[https://jalopnik . com/1512321323](https://jalopnik.com/what-to-do-and-what-not-to-do-when-youre-trapped-on-1512321323)
+> 原文：<https://jalopnik.com/what-to-do-and-what-not-to-do-when-youre-trapped-on-1512321323>
 
 每个人都知道你应该为恶劣的天气做好准备，在你的汽车里准备好物资，并密切关注天气预报。但是如果你意外地被卡在你的车里，你该怎么办？以下是让你保持冷静和安全的十大注意事项。
 

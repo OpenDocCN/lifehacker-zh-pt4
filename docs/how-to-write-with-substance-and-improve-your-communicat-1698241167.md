@@ -1,6 +1,6 @@
 # 如何写出有内容的文章并提高你的沟通能力
 
-> 原文:[https://life hacker . com/how-to-write-with-substance-and-improve-your-communication-1698241167](https://lifehacker.com/how-to-write-with-substance-and-improve-your-communicat-1698241167)
+> 原文：<https://lifehacker.com/how-to-write-with-substance-and-improve-your-communicat-1698241167>
 
 没有什么比用太多的文字传播好的想法更拖累写作的了。随着通信和支持通信的文本变得越来越不可分割，击键变得越来越重要。
 

@@ -1,6 +1,6 @@
 # 如何隐藏电脑上的文件
 
-> 原文:[https://life hacker . com/how-to-hide-files-on-your-computer-1642112044](https://lifehacker.com/how-to-hide-files-on-your-computer-1642112044)
+> 原文：<https://lifehacker.com/how-to-hide-files-on-your-computer-1642112044>
 
 有时候，你需要在你的电脑上保存一些你不想让其他人看到的文件。无论是礼物清单还是色情收藏，隐藏文件都很容易。下面是怎么做的。
 

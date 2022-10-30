@@ -1,6 +1,6 @@
 # 最好的室内空中高清天线是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-室内无线高清天线-1512049452](https://lifehacker.com/whats-the-best-indoor-over-the-air-hd-antenna-1512049452)
+> 原文：<https://lifehacker.com/whats-the-best-indoor-over-the-air-hd-antenna-1512049452>
 
 越来越多的人切断电线，放弃有线电视，但这并不意味着你必须放弃电视。除了流媒体视频，在大多数地区，空中高清广播都是免费的，只要你有天线接收它们。本周我们想知道你认为哪些室内 OTA 天线最好。
 

@@ -1,6 +1,6 @@
 # 每个精打细算的人都应该拥有的厨房电器
 
-> 原文:[https://life hacker . com/the-kitchen-appliances-every-on-a-budget-should-has-1470774699](https://lifehacker.com/the-kitchen-appliances-everyone-on-a-budget-should-have-1470774699)
+> 原文：<https://lifehacker.com/the-kitchen-appliances-everyone-on-a-budget-should-have-1470774699>
 
 你知道有一种器具的唯一用途是做墨西哥薄饼吗？听说过专门的早餐三明治加热器吗？那也存在。事实上，你可以买一个专门用来制作和保温早餐三明治的设备。市场上有大量的厨房用具。随之而来的是无处不在的机会，在你可能并不真正需要的电器上超支。
 

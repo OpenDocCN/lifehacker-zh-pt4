@@ -1,6 +1,6 @@
 # 已婚人士税务入门指南
 
-> 原文:[https://life hacker . com/a-初学者税务指南-再婚时-1655474301](https://lifehacker.com/a-beginner-s-guide-to-taxes-when-you-re-married-1655474301)
+> 原文：<https://lifehacker.com/a-beginner-s-guide-to-taxes-when-you-re-married-1655474301>
 
 税收已经够让人困惑的了，但是当你结婚的时候，规则会变得更加复杂。这里有一些已婚夫妇，不管是同性还是异性，都应该知道的关于税收的基本信息。
 

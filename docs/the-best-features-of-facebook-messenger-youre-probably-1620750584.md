@@ -1,6 +1,6 @@
 # Facebook Messenger 最好的功能你可能没有使用
 
-> 原文:[https://life hacker . com/the-best-features-of-Facebook-messenger-you-possible-1620750584](https://lifehacker.com/the-best-features-of-facebook-messenger-youre-probably-1620750584)
+> 原文：<https://lifehacker.com/the-best-features-of-facebook-messenger-youre-probably-1620750584>
 
 脸书因强制要求其独立的 Messenger 应用程序而饱受批评。许多人(包括我在内)认为没有必要为信息开发一个独立的应用程序。即便如此，这并不意味着它是一个糟糕的应用，或者说没有自己的用处。以下是 Facebook Messenger 值得使用的一些最佳功能。
 

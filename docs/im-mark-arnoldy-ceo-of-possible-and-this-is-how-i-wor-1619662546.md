@@ -1,6 +1,6 @@
 # 我是马克·阿诺迪，可能性公司的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-mark-arnoldy-CEO-of-possible-and-this-is-how-I-wor-1619662546](https://lifehacker.com/im-mark-arnoldy-ceo-of-possible-and-this-is-how-i-wor-1619662546)
+> 原文：<https://lifehacker.com/im-mark-arnoldy-ceo-of-possible-and-this-is-how-i-wor-1619662546>
 
 在尼泊尔农村的山上，当马克·阿诺迪坐下来工作时，一头奶牛从医院的窗户旁边经过。他的公司 [Possible](http://possiblehealth.org/) 是一家非营利组织，致力于为医疗用品和专业知识是无价资源的偏远地区带来负担得起的医疗保健。
 

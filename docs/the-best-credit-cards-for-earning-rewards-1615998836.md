@@ -1,6 +1,6 @@
 # 获得奖励的最佳信用卡
 
-> 原文:[https://life hacker . com/the-best-the-credit-cards-for-earning-rewards-1615998836](https://lifehacker.com/the-best-credit-cards-for-earning-rewards-1615998836)
+> 原文：<https://lifehacker.com/the-best-credit-cards-for-earning-rewards-1615998836>
 
 许多人真的很喜欢信用卡奖励游戏。他们用信用卡支付日常开支，每月付清余额，然后享受从返现到免费度假的丰厚奖励。我们决定收集一些最好的信用卡来获得奖励。
 

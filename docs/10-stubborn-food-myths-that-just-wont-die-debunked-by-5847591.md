@@ -1,6 +1,6 @@
 # 被科学揭穿的 10 个顽固不化的食物神话
 
-> 原文:[https://life hacker . com/10-concerned-food-myths-that-only-wont-die-拆穿-by-5847591](https://lifehacker.com/10-stubborn-food-myths-that-just-wont-die-debunked-by-5847591)
+> 原文：<https://lifehacker.com/10-stubborn-food-myths-that-just-wont-die-debunked-by-5847591>
 
 每隔一周，新的研究声称一种食物比另一种更好，或者一些成分产生令人难以置信的新的健康益处。再加上一些你父母传下来的老掉牙的故事，每次你点起炉子或者坐下来吃一顿健康的饭，就很难把食物事实和虚构分开。我们与一组营养学家进行了交谈，请他们分享他们认为最令人恼火的食物神话，并解释为什么人们坚持吃这些食物。他们是这样说的。
 

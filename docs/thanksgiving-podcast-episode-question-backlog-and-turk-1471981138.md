@@ -1,6 +1,6 @@
 # 感恩节播客插曲:问题积压和火鸡技巧
 
-> 原文:[https://life hacker . com/thanksgiving-podcast-episode-question-backlog-and-Turk-1471981138](https://lifehacker.com/thanksgiving-podcast-episode-question-backlog-and-turk-1471981138)
+> 原文：<https://lifehacker.com/thanksgiving-podcast-episode-question-backlog-and-turk-1471981138>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-9SN69MybHcw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-9SN69MybHcw&start=0) 
 

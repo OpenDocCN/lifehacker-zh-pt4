@@ -1,6 +1,6 @@
 # 昂贵的创造性 Mac 软件的廉价替代品
 
-> 原文:[https://life hacker . com/cheap-alternatives-to-friendly-creative-MAC-software-1497726450](https://lifehacker.com/cheap-alternatives-to-expensive-creative-mac-software-1497726450)
+> 原文：<https://lifehacker.com/cheap-alternatives-to-expensive-creative-mac-software-1497726450>
 
 OS X 提供了大量的创意软件，但大多数流行的软件价格都很高。如果你不需要太多的功能，你也许可以用一个仍然非常强大、更便宜的替代品。这里有一些最好的。
 

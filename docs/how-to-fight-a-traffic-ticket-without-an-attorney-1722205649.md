@@ -1,6 +1,6 @@
 # 如何在没有律师的情况下对抗交通罚单
 
-> 原文:[https://jalopnik . com/how-to-fight-a-traffic-ticket-without-a-律师费-1722205649](https://jalopnik.com/how-to-fight-a-traffic-ticket-without-an-attorney-1722205649)
+> 原文：<https://jalopnik.com/how-to-fight-a-traffic-ticket-without-an-attorney-1722205649>
 
 很多收到交通罚单的人会直接交钱。他们在驾照上得到分数，继续他们的生活。如果你不想这样做，你可以聘请律师为你打官司，但你也可以不聘请律师而成功打官司。这里没有保证，但这是它如何工作。
 

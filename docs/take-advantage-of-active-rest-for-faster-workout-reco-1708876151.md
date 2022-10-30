@@ -1,6 +1,6 @@
 # 利用“积极休息”加快锻炼恢复
 
-> 原文:[https://life hacker . com/take-advantage-of-active-rest-for-fast-workout-reco-1708876151](https://lifehacker.com/take-advantage-of-active-rest-for-faster-workout-reco-1708876151)
+> 原文：<https://lifehacker.com/take-advantage-of-active-rest-for-faster-workout-reco-1708876151>
 
 说到休息恢复，有两类。第一种是被动休息——“什么都不做”的方法，在这种方法中，你抽出时间放松，避免任何类似训练的事情。相比之下，主动休息是一种旨在帮助你恢复的技术，通过完成锻炼的动作，但降低强度或音量。
 

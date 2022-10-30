@@ -1,6 +1,6 @@
 # 我是汉克·德里斯基尔，大英雄 6 的技术主管，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-hank-driskill-tech-supervisor-of-big-hero-6-and-th-1660146151](https://lifehacker.com/im-hank-driskill-tech-supervisor-of-big-hero-6-and-th-1660146151)
+> 原文：<https://lifehacker.com/im-hank-driskill-tech-supervisor-of-big-hero-6-and-th-1660146151>
 
 拍一部电影需要一支军队——尤其是一部动画电影，它的每一个方面都是从零开始的。当代动画往往与它背后的技术紧密相连。华特·迪士尼动画公司的最新电影《大英雄 6》[是故事和技术之间共生关系的最好例子。](http://movies.disney.com/big-hero-6/)
 

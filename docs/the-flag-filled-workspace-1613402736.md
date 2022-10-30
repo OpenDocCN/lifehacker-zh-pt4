@@ -1,6 +1,6 @@
 # 充满标志的工作区
 
-> 原文:[https://lifehacker.com/the-flag-filled-workspace-1613402736](https://lifehacker.com/the-flag-filled-workspace-1613402736)
+> 原文：<https://lifehacker.com/the-flag-filled-workspace-1613402736>
 
 Flickr 用户 Terry Landers(又名 Lordgort141)当然喜欢旗帜...和监视器。他的工作区已经布置好了，所以到处都是屏幕和旗帜。
 

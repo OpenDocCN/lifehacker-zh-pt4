@@ -1,6 +1,6 @@
 # 如何在不去的情况下体验你最喜欢的音乐节
 
-> 原文:[https://life hacker . com/how-to-experience-your-favorite-music-festivals-without-1702016838](https://lifehacker.com/how-to-experience-your-favorite-music-festivals-without-1702016838)
+> 原文：<https://lifehacker.com/how-to-experience-your-favorite-music-festivals-without-1702016838>
 
 温暖的天气意味着音乐节的季节，所有你喜欢的乐队都会为一群和你一样喜欢他们的狂欢者表演。当然，唯一的缺点是票价、人群和去的麻烦。以下是如何把这种体验带回家，让你舒舒服服地躺在沙发上。
 

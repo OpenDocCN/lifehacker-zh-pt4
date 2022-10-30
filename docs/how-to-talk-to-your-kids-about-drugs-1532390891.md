@@ -1,6 +1,6 @@
 # 如何和你的孩子谈论毒品
 
-> 原文:[https://life hacker . com/how-to-talk-to-your-kids-on-drugs-1532390891](https://lifehacker.com/how-to-talk-to-your-kids-about-drugs-1532390891)
+> 原文：<https://lifehacker.com/how-to-talk-to-your-kids-about-drugs-1532390891>
 
 毒品。对你的孩子来说，这是一个难以驾驭的话题。新闻里到处都是关于毒品的故事，孩子们互相谈论毒品，大众媒体把毒品描绘成从解放到毁灭的一切。那么，你应该如何与你的孩子讨论这样一个大而有争议的话题呢？
 

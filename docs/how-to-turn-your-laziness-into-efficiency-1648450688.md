@@ -1,6 +1,6 @@
 # 如何将你的懒惰转化为效率
 
-> 原文:[https://life hacker . com/how-to-turn-your-lazy-into-efficiency-1648450688](https://lifehacker.com/how-to-turn-your-laziness-into-efficiency-1648450688)
+> 原文：<https://lifehacker.com/how-to-turn-your-laziness-into-efficiency-1648450688>
 
 人们说需要是发明之母，但如果真是这样，懒惰一定是发明之父。毕竟，懒惰的好处在于你宁愿做你想做的事情——即使那没什么——而不是工作。让我们驾驭这种渴望，并利用它来提高效率——当然，这样你就有更多的时间放松了。
 

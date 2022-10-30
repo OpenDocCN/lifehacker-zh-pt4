@@ -1,6 +1,6 @@
 # 如何为旅途中可能出现的一切问题做准备
 
-> 原文:[https://life hacker . com/how-to-prepare-for-everything-can-possible-go-wron-1652103000](https://lifehacker.com/how-to-prepare-for-everything-that-can-possibly-go-wron-1652103000)
+> 原文：<https://lifehacker.com/how-to-prepare-for-everything-that-can-possibly-go-wron-1652103000>
 
 当你旅行的时候，你希望一切都很完美，但是事情几乎从来不会。这里有一些你的旅行可能出轨的常见方式，以及你可以为它们做些什么准备。
 

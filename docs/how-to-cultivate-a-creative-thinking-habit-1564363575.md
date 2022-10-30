@@ -1,6 +1,6 @@
 # 如何培养创造性思维习惯
 
-> 原文:[https://life hacker . com/how-to-culture-a-创造性思维习惯-1564363575](https://lifehacker.com/how-to-cultivate-a-creative-thinking-habit-1564363575)
+> 原文：<https://lifehacker.com/how-to-cultivate-a-creative-thinking-habit-1564363575>
 
 想想你最常见的习惯，你脑海中会浮现出那些常见的罪魁祸首——咬指甲、深夜吃零食、掰指关节。做一件事足够多次，它就会成为你几乎不由自主的行为模式。但是创造力有什么不同吗？
 

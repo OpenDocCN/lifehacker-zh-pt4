@@ -1,6 +1,6 @@
 # 经典的皮革日常包
 
-> 原文:[https://life hacker . com/the-classy-leather-daily-bag-1700456449](https://lifehacker.com/the-classy-leather-everyday-bag-1700456449)
+> 原文：<https://lifehacker.com/the-classy-leather-everyday-bag-1700456449>
 
 有时你需要在形式和实用性之间找到完美的平衡。读者尼克·克鲁森就是这样做的，他的皮公文包里装满了一吨有用的日常携带物品。
 

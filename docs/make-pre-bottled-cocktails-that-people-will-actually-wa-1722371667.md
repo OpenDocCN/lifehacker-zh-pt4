@@ -1,6 +1,6 @@
 # 制作人们真正想喝的瓶装鸡尾酒
 
-> 原文:[https://life hacker . com/make-pre-bottled-cocktails-the-people-will-actually-wa-1722371667](https://lifehacker.com/make-pre-bottled-cocktails-that-people-will-actually-wa-1722371667)
+> 原文：<https://lifehacker.com/make-pre-bottled-cocktails-that-people-will-actually-wa-1722371667>
 
 假设你要去参加一个家庭聚会(或野餐，或车尾野餐)，你想带一点含酒精的东西。啤酒和葡萄酒是一个安全、简单的赌注，但一瓶你最喜欢的手工制作的鸡尾酒会说“我试过了”,不用太努力。预瓶装鸡尾酒很少那么好，所以为什么不自己做呢？制作美味、新鲜的预瓶装酒其实很容易，你只需要知道并遵循一些简单的规则。
 

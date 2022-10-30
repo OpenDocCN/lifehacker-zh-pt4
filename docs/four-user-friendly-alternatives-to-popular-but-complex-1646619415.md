@@ -1,6 +1,6 @@
 # 流行(但复杂)的 Android 应用程序的四个用户友好的替代品
 
-> 原文:[https://life hacker . com/four-user-friendly-alternatives-to-popular-but-complex-1646619415](https://lifehacker.com/four-user-friendly-alternatives-to-popular-but-complex-1646619415)
+> 原文：<https://lifehacker.com/four-user-friendly-alternatives-to-popular-but-complex-1646619415>
 
 有很多优秀的应用程序，但并不是每个优秀的应用程序都很好看。虽然粉丝的最爱很棒，但这里有一些学习曲线最陡的应用程序的替代品。
 

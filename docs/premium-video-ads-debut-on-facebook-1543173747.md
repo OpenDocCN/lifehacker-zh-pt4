@@ -1,6 +1,6 @@
 # 脸书现在为每个人提供自动播放视频广告
 
-> 原文:[https://life hacker . com/premium-video-ads-亮相 facebook-1543173747](https://lifehacker.com/premium-video-ads-debut-on-facebook-1543173747)
+> 原文：<https://lifehacker.com/premium-video-ads-debut-on-facebook-1543173747>
 
 早在去年 12 月，脸书就开始测试自动播放视频广告，视频广告在你的订阅源中开始播放，无需你点击播放。今天，他们正在向脸书各地的用户介绍这些广告。
 

@@ -1,6 +1,6 @@
 # 将你的真实生活经历变成科幻小说的 10 种方法
 
-> 原文:[https://gizmodo . com/10-将你的现实生活经历转化为科学的方法-1672787624](https://gizmodo.com/10-ways-to-turn-your-real-life-experiences-into-science-1672787624)
+> 原文：<https://gizmodo.com/10-ways-to-turn-your-real-life-experiences-into-science-1672787624>
 
 除非你曾指挥过一艘星际飞船，击退过外星人入侵或在一场全球性灾难中幸存，否则你的人生经历可能不会太科幻。但是，最有震撼力的故事往往植根于真实发生的事情。以下是将你的个人真实故事变成科幻小说的 10 个技巧。
 

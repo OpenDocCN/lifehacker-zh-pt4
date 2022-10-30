@@ -1,6 +1,6 @@
 # 明确你的应急基金的用途，以免不小心花掉
 
-> 原文:[https://life hacker . com/define-what-your-emergency-fund-for-before-you-save-1652251717](https://lifehacker.com/define-what-your-emergency-fund-is-for-before-you-save-1652251717)
+> 原文：<https://lifehacker.com/define-what-your-emergency-fund-is-for-before-you-save-1652251717>
 
 有一个应急基金是普遍接受的(而且很好！)建议。何时花掉它很少被提及。为了使决定何时使用它变得简单，首先定义它的用途。
 

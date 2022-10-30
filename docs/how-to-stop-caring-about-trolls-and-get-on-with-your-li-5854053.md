@@ -1,6 +1,6 @@
 # 如何停止关心巨魔，继续你的生活
 
-> 原文:[https://life hacker . com/how-to-stop-care-on-your-Li-5854053](https://lifehacker.com/how-to-stop-caring-about-trolls-and-get-on-with-your-li-5854053)
+> 原文：<https://lifehacker.com/how-to-stop-caring-about-trolls-and-get-on-with-your-li-5854053>
 
 你在网上到处都能看到他们:匿名用户无话可说，除了粗鲁、跑题或恼人的评论，这些评论旨在让你生气。唯一的治疗方法就是停止关心，虽然说起来容易做起来难，但是这些建议应该可以帮助你克服它们的魔咒。
 

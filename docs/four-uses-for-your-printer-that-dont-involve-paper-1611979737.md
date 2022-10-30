@@ -1,6 +1,6 @@
 # 打印机的四种用途(除了基本纸张)
 
-> 原文:[https://life hacker . com/four-uses-for-your-printer-that-contain-paper-1611979737](https://lifehacker.com/four-uses-for-your-printer-that-dont-involve-paper-1611979737)
+> 原文：<https://lifehacker.com/four-uses-for-your-printer-that-dont-involve-paper-1611979737>
 
 你可以在几乎每一个拥有电脑的家庭中找到一台打印机，但是这些机器能够在普通复印纸之外的东西上打印。这里有一些你可以用打印机做的最好的非普通复印纸。
 

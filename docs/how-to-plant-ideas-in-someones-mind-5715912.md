@@ -1,6 +1,6 @@
 # 如何在某人的头脑中植入想法
 
-> 原文:[https://life hacker . com/how-to-plant-ideas-in-someones-mind-5715912](https://lifehacker.com/how-to-plant-ideas-in-someones-mind-5715912)
+> 原文：<https://lifehacker.com/how-to-plant-ideas-in-someones-mind-5715912>
 
 如果你曾经被销售人员说服，认为你真的想要一件产品，本能地做了一些事情，或者做出了看起来完全不符合自己性格的选择，那么你已经有了一个想法。这是怎么做的。
 

@@ -1,6 +1,6 @@
 # 五款最佳桌面话筒
 
-> 原文:[https://life hacker . com/five-best-desktop-microphones-1558732156](https://lifehacker.com/five-best-desktop-microphones-1558732156)
+> 原文：<https://lifehacker.com/five-best-desktop-microphones-1558732156>
 
 无论你只是通过 Skype 或 Hangouts 进行大量视频通话，录制播客，制作音乐，还是你是 YouTube 上的一个新兴名人，你都需要一个像样的麦克风放在你的桌面上——一个比任何已经内置的麦克风都好的麦克风。本周我们将根据你们的提名选出五位最佳选手。
 

@@ -1,6 +1,6 @@
 # 如何快速学习终端命令？
 
-> 原文:[https://life hacker . com/how-can-I-quick-learn-terminal-commands-1494082178](https://lifehacker.com/how-can-i-quickly-learn-terminal-commands-1494082178)
+> 原文：<https://lifehacker.com/how-can-i-quickly-learn-terminal-commands-1494082178>
 
 在 Ubuntu 中，鼠标点击只能让你到此为止。对于认真使用“另一个操作系统”的人来说，学习终端命令是重要的一步专家们在 [*询问 Ubuntu*](http://ubuntu.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=ubuntu-99) *提供学习“shell”的最佳方法*
 

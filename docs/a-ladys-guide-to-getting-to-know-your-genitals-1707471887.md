@@ -1,6 +1,6 @@
 # 了解你的生殖器的女性指南
 
-> 原文:[https://life hacker . com/a-ladys-guide-to-get-know-your-phrases-1707471887](https://lifehacker.com/a-ladys-guide-to-getting-to-know-your-genitals-1707471887)
+> 原文：<https://lifehacker.com/a-ladys-guide-to-getting-to-know-your-genitals-1707471887>
 
 我的女性客户中大约有 30%的人从来没有好好看过她们两腿之间的东西 。大约 75%的人对他们的生殖器有一些错误的信息或不准确的看法。事实上，我所有的客户都对自己身体最私密部位的某些方面感到不安全或羞愧。以下是你打破这些统计数据，与你的胯部成为朋友的指南。
 

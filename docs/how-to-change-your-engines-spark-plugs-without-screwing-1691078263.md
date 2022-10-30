@@ -1,6 +1,6 @@
 # 如何在不严重出错的情况下更换发动机的火花塞
 
-> 原文:[https://jalopnik . com/how-to-change-your-engines-spark-plugs-without-screw-1691078263](https://jalopnik.com/how-to-change-your-engines-spark-plugs-without-screwing-1691078263)
+> 原文：<https://jalopnik.com/how-to-change-your-engines-spark-plugs-without-screwing-1691078263>
 
 发动机的火花塞对于发动机的长寿和清洁运行至关重要。这就是为什么他们需要定期更换，并妥善。以下是如何做到这一点，而不把事情弄得一团糟。
 

@@ -1,6 +1,6 @@
 # 你付多少租金？
 
-> 原文:[https://life hacker . com/how-do-much-do-you-pay-1617581747](https://lifehacker.com/how-much-do-you-pay-for-rent-1617581747)
+> 原文：<https://lifehacker.com/how-much-do-you-pay-for-rent-1617581747>
 
 租金价格无处不在(没有双关语的意思)。有些地区比其他地区更实惠，但总的来说，租金价格在全国范围内上涨。*你*付多少房租？
 

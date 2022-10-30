@@ -1,6 +1,6 @@
 # 我是史蒂文·范·威尔，Karma 的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Steven-van-wel-CEO-of-karma-and-this-is-how-I-work-1635388374](https://lifehacker.com/im-steven-van-wel-ceo-of-karma-and-this-is-how-i-work-1635388374)
+> 原文：<https://lifehacker.com/im-steven-van-wel-ceo-of-karma-and-this-is-how-i-work-1635388374>
 
 这个 [Karma](https://yourkarma.com/) 是一个非常有用的小工具——一个预付费移动热点，无论你在哪里都能让你上网。这是 [附近最受欢迎的 Wi-Fi 热点](https://lifehacker.com/five-best-mobile-hotspots-1523254435) 之一，已经让不少博客免于网络中断和酒店 Wi-Fi 连接不稳定的困扰。
 

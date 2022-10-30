@@ -1,6 +1,6 @@
 # 除了水，你什么都不用就能再生的厨房垃圾
 
-> 原文:[https://life hacker . com/kitchen-scrap-you-can-re grow-with nothing-but-water-1531011995](https://lifehacker.com/kitchen-scraps-you-can-regrow-with-nothing-but-water-1531011995)
+> 原文：<https://lifehacker.com/kitchen-scraps-you-can-regrow-with-nothing-but-water-1531011995>
 
 因为它们便宜而且是散装的，我们往往会在厨房里浪费很多蔬菜和香草。如果你想减少一点，一些厨房主食很容易再生，不需要一个完整的花园。事实上，这些甚至不需要泥土。
 

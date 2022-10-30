@@ -1,6 +1,6 @@
 # 如何用“心理彩排”让自己的神经平静下来，度过任何事情
 
-> 原文:[https://life hacker . com/how-to-California-your-neurance-with-mental-prediction-and-get 1705202829](https://lifehacker.com/how-to-calm-your-nerves-with-mental-rehearsal-and-get-1705202829)
+> 原文：<https://lifehacker.com/how-to-calm-your-nerves-with-mental-rehearsal-and-get-1705202829>
 
 他们说担心对你没有好处，但是富有成效地担心实际上可以让你度过任何事情——无论是要求加薪还是参加一场大型比赛。“心理排练”是一种技术，运动员、音乐家、医生、士兵、 [甚至宇航员](https://lifehacker.com/an-astronauts-guide-to-life-on-earth-how-to-prepare-fo-1675987801) 都使用这种技术为最坏的情况做准备——并以最佳状态表演。以下是使用方法。
 

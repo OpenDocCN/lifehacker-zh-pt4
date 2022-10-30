@@ -1,6 +1,6 @@
 # 零售商利用优惠券欺骗你多花钱的许多方法
 
-> 原文:[https://life hacker . com/the-many-way-retailers-use-coupons-to-trick-you-into-s-1695116793](https://lifehacker.com/the-many-ways-retailers-use-coupons-to-trick-you-into-s-1695116793)
+> 原文：<https://lifehacker.com/the-many-ways-retailers-use-coupons-to-trick-you-into-s-1695116793>
 
 达成一笔大买卖的兴奋感常常会让我们看不到形势的实际数字。以下是零售商和品牌利用优惠券和交易让你花更多钱的一些方法。
 

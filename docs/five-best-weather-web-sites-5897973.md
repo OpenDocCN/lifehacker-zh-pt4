@@ -1,6 +1,6 @@
 # 五个最佳天气网站
 
-> 原文:[https://lifehacker.com/five-best-weather-web-sites-5897973](https://lifehacker.com/five-best-weather-web-sites-5897973)
+> 原文：<https://lifehacker.com/five-best-weather-web-sites-5897973>
 
 无论你是在镇上闲逛还是计划一次长途旅行，你可能都想知道当你到达目的地时——或者当天晚些时候——的天气情况。一个好的、可靠的气象网站或服务可以用有用的、准确的术语告诉你，本周我们根据你的提名来看看五个最好的。
 

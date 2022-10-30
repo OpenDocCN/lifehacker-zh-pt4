@@ -1,6 +1,6 @@
 # 可能阻碍你发展的五个职业错误
 
-> 原文:[https://life hacker . com/five-career-missions-the-may-the-hold you-1596535994](https://lifehacker.com/five-career-mistakes-that-might-be-holding-you-back-1596535994)
+> 原文：<https://lifehacker.com/five-career-mistakes-that-might-be-holding-you-back-1596535994>
 
 你准时出现在办公室，你从来没有错过项目的截止日期，你总是在完成后重新装满咖啡壶——但之后升职与你擦肩而过。你可能做错了什么？
 

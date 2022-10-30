@@ -1,6 +1,6 @@
 # 如何淋浴做爱而不伤害自己
 
-> 原文:[https://life hacker . com/how-to-have-shower-sex-without-伤害自己-1693239880](https://lifehacker.com/how-to-have-shower-sex-without-hurting-yourself-1693239880)
+> 原文：<https://lifehacker.com/how-to-have-shower-sex-without-hurting-yourself-1693239880>
 
 淋浴性爱相当火辣...理论上。但是在身高差异，肥皂放在错误的地方，滑倒和跌倒之间，这里有一些如何在没有挫败感的情况下互相帮助的方法。
 

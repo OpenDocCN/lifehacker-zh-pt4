@@ -1,6 +1,6 @@
 # 如何在 4 到 6 小时的睡眠周期中保持高效
 
-> 原文:[https://life hacker . com/how-to-stay-productive-on-a-4-6 小时睡眠周期-1477407799](https://lifehacker.com/how-to-stay-productive-on-a-4-to-6-hour-sleep-cycle-1477407799)
+> 原文：<https://lifehacker.com/how-to-stay-productive-on-a-4-to-6-hour-sleep-cycle-1477407799>
 
 作为一名企业家，我的工作时间表与标准的朝九晚五的工作有很大不同。我愿意认为我的生活方式是独一无二的，但我知道有成千上万的其他人分享我的深夜忙碌。
 

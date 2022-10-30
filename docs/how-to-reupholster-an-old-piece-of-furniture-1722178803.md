@@ -1,6 +1,6 @@
 # 如何更换一件旧家具
 
-> 原文:[https://life hacker . com/how-to-repholster-an-old-piece-of-a-piece-a-furniture-1722178803](https://lifehacker.com/how-to-reupholster-an-old-piece-of-furniture-1722178803)
+> 原文：<https://lifehacker.com/how-to-reupholster-an-old-piece-of-furniture-1722178803>
 
 能够在家装饰东西是一项非常有用的技能。一旦你学会了更换椅子，你就可以把旧货店的各种废弃物品变成有用的、好看的家具。
 

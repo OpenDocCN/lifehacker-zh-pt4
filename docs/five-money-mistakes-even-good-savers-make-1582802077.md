@@ -1,6 +1,6 @@
 # 即使是优秀的储户也会犯的五个金钱错误
 
-> 原文:[https://life hacker . com/five-money-errors-even-good-savers-make-1582802077](https://lifehacker.com/five-money-mistakes-even-good-savers-make-1582802077)
+> 原文：<https://lifehacker.com/five-money-mistakes-even-good-savers-make-1582802077>
 
 坚持存钱需要纪律和努力，甚至那些试图负责任地存钱的人也会犯一些常见的错误。你的策略可能比把所有积蓄藏在床垫下更好，但通常还有更好的方法来存钱。
 

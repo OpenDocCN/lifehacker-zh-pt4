@@ -1,6 +1,6 @@
 # 两种简单易行的方法将牛排烹制得美味完美
 
-> 原文:[https://gizmodo . com/two-simple-fool-proof-methods-cook-a-perfect-awe som-1586186079](https://gizmodo.com/two-simple-fool-proof-methods-to-cook-a-perfect-awesom-1586186079)
+> 原文：<https://gizmodo.com/two-simple-fool-proof-methods-to-cook-a-perfect-awesom-1586186079>
 
 阿尔顿·布朗给你另一个简单易行的食谱，让你做出完美美味的东西:炭火烤牛排。使用他的方法你绝对不会失败——这将为你整个夏天带来快乐和幸福。
 

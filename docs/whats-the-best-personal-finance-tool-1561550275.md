@@ -1,6 +1,6 @@
 # 最好的个人理财工具是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-personal-finance-tool-1561550275](https://lifehacker.com/whats-the-best-personal-finance-tool-1561550275)
+> 原文：<https://lifehacker.com/whats-the-best-personal-finance-tool-1561550275>
 
 管理你的钱，掌握你的财务状况是很重要的。本周，我们想知道你使用哪些应用和服务来跟踪你的账户，了解你的钱去了哪里，并关注你的财务健康状况。
 

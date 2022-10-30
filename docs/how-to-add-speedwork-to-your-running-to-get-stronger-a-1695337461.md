@@ -1,6 +1,6 @@
 # 如何在你的跑步中增加速度，让你变得更强更快
 
-> 原文:[https://life hacker . com/how-to-add-speed work-to-your running-to-get-strong-a-1695337461](https://lifehacker.com/how-to-add-speedwork-to-your-running-to-get-stronger-a-1695337461)
+> 原文：<https://lifehacker.com/how-to-add-speedwork-to-your-running-to-get-stronger-a-1695337461>
 
 你想跑得更快吗？太好了！让我们今天跑得更快。然后我们稍微休息一下。然后我们会跑得更快更多次。跑步者称之为“速度训练”的间歇训练有一个完整的系列，每周一次左右可以帮助你在以后达到更快的比赛时间。
 

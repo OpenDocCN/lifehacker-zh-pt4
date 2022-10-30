@@ -1,6 +1,6 @@
 # 职业聚焦:我作为一名飞行员做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-a-a-airline-pilot-1678983694](https://lifehacker.com/career-spotlight-what-i-do-as-an-airline-pilot-1678983694)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-an-airline-pilot-1678983694>
 
 我们已经从过去一个世纪的航空工程壮举和试飞中走了出来，这些成就和试飞使航空旅行成为日常生活中安全的一部分，然而飞行员仍然保持着某种神秘感。我们仍然觉得前面可能是查克·叶格，当他上升到云层中时调整他的色调。
 

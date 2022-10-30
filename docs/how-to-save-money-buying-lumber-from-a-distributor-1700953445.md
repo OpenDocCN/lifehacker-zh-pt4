@@ -1,6 +1,6 @@
 # 如何省钱从分销商而不是零售商那里购买木材
 
-> 原文:[https://life hacker . com/how-to-save-money-buying-from-a-distributor-1700953445](https://lifehacker.com/how-to-save-money-buying-lumber-from-a-distributor-1700953445)
+> 原文：<https://lifehacker.com/how-to-save-money-buying-lumber-from-a-distributor-1700953445>
 
 当你准备好升级你的木工游戏时，是时候开始直接从经销商那里购买木材，而不是大盒子零售商。你会有更多的硬木选择，而且在这个过程中你会省钱。
 

@@ -1,6 +1,6 @@
 # 如何共享一间卧室而不使彼此心烦
 
-> 原文:[https://life hacker . com/how-to-share-a bedroom-without-get-others-n-1616062318](https://lifehacker.com/how-to-share-a-bedroom-without-getting-on-each-others-n-1616062318)
+> 原文：<https://lifehacker.com/how-to-share-a-bedroom-without-getting-on-each-others-n-1616062318>
 
 于是你们 [终于一起搬进了](https://lifehacker.com/how-can-i-ease-the-transition-when-my-significant-other-511391705) 。恭喜你！但是除了分享你的房子，你也将分享一间卧室。这可能是一个棘手的转变，但有办法让你们两个都变得更容易。
 

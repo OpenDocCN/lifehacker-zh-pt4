@@ -1,6 +1,6 @@
 # 请教专家:关于退换货政策
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-return-and-exchange-policies-1676002757](https://lifehacker.com/ask-an-expert-all-about-return-and-exchange-policies-1676002757)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-return-and-exchange-policies-1676002757>
 
 假期是给予的时间，有时你最终会收到一些你真的用不上或者只是不喜欢的东西。这当然是一个奢侈的问题，如果你幸运的话，慷慨的礼物可能包括一张收据。但是没有礼物收据你有什么选择？
 

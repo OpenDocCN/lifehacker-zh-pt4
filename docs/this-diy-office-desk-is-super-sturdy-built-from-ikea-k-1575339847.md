@@ -1,6 +1,6 @@
 # 这款 DIY 办公桌超级坚固，由宜家厨房部件制成
 
-> 原文:[https://life hacker . com/this-DIY-office-desk-is-super-study-built-from-IKEA-k-1575339847](https://lifehacker.com/this-diy-office-desk-is-super-sturdy-built-from-ikea-k-1575339847)
+> 原文：<https://lifehacker.com/this-diy-office-desk-is-super-sturdy-built-from-ikea-k-1575339847>
 
 如果你想要一张新桌子，但纸板和胶合板的传统选择并不令你兴奋，这款产品放弃了所有这些，转而使用最初设计用于厨房的更高质量的组件。最重要的是，它仍然是宜家产品，因此既实惠又耐用。
 

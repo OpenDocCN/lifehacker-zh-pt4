@@ -1,6 +1,6 @@
 # 我是帕特里克·诺顿，TekThing 的主持人，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Patrick-Norton-host-of-tekthing-and-this-is-how-I-1699446694](https://lifehacker.com/im-patrick-norton-host-of-tekthing-and-this-is-how-i-1699446694)
+> 原文：<https://lifehacker.com/im-patrick-norton-host-of-tekthing-and-this-is-how-i-1699446694>
 
 多年来，Patrick Norton 一直是各地计算机爱好者熟悉的人物，他对最新的技术新闻和设备发表愉快的评论和建议。你可能从他在 [泰克齐拉](https://revision3.com/shows/tekzilla) 的时候最了解他；就我个人而言，我第一次看 Patrick 主持屏幕保护程序是在 [TechTV](http://en.wikipedia.org/wiki/TechTV) 的美好时光。
 

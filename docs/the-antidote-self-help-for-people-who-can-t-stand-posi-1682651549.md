@@ -1,6 +1,6 @@
 # 解药:无法忍受积极思维的人的自助
 
-> 原文:[https://life hacker . com/the-detect-self-help-for-people-who-t-stand-posi-1682651549](https://lifehacker.com/the-antidote-self-help-for-people-who-can-t-stand-posi-1682651549)
+> 原文：<https://lifehacker.com/the-antidote-self-help-for-people-who-can-t-stand-posi-1682651549>
 
 每个人都想快乐。但是，尽管我们的目标是快乐，我们中的许多人仍然过着不满足、不满足和紧张的生活。奥利弗·伯克曼的《解药》不会给你带来即时的快乐，但它分享了一些非常有用的指导，告诉你如何度过生活的艰难。
 

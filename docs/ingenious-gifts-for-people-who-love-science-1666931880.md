@@ -1,6 +1,6 @@
 # ingenius 给热爱科学的人的礼物
 
-> 原文:[https://gizmodo . com/intelligent-gifts-gifts-for-people-love-science-1666931880](https://gizmodo.com/ingenious-gifts-for-people-who-love-science-1666931880)
+> 原文：<https://gizmodo.com/ingenious-gifts-for-people-who-love-science-1666931880>
 
 对于你清单上那些喜欢做科学项目或者只是思考人类知识奇迹的人来说，这些礼物一定会带给他们快乐、教育...做个真正的坏蛋。
 

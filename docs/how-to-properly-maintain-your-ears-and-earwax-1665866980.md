@@ -1,6 +1,6 @@
 # 如何正确保养耳朵和耳垢
 
-> 原文:[https://life hacker . com/how-to-right-maintain-your-ear-and-ear wax-1665866980](https://lifehacker.com/how-to-properly-maintain-your-ears-and-earwax-1665866980)
+> 原文：<https://lifehacker.com/how-to-properly-maintain-your-ears-and-earwax-1665866980>
 
 我们一天中的大部分时间都在使用我们的听力，但我们对如何正确保养我们的耳朵知之甚少。关于如何正确护理我们的耳朵和维护我们的耳垢，有很多困惑，所以让我们澄清一下。
 

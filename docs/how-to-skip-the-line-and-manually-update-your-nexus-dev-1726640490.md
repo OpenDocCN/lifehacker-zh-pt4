@@ -1,6 +1,6 @@
 # 如何跳过这一行，手动更新您的 Nexus 设备
 
-> 原文:[https://life hacker . com/how-to-skip-the-line-and-manually-update-your-nexus-dev-1726640490](https://lifehacker.com/how-to-skip-the-line-and-manually-update-your-nexus-dev-1726640490)
+> 原文：<https://lifehacker.com/how-to-skip-the-line-and-manually-update-your-nexus-dev-1726640490>
 
 Android 更新需要很长时间。虽然大多数时候没事，但当 [发现一个新的、可怕的安全漏洞](http://gizmodo.com/oh-great-new-android-flaw-lets-hackers-into-your-phone-1720381448) 时，就可能出问题了。无论你是想保护你的手机，还是只是不能等待新的更新，这里有如何跳过这一行，手动更新你的 Nexus 手机(偶尔也更新其他设备)。
 

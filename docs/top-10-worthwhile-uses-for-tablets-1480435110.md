@@ -1,6 +1,6 @@
 # 平板电脑的 10 大有价值的用途
 
-> 原文:[https://life hacker . com/top-10-值得使用的平板电脑-1480435110](https://lifehacker.com/top-10-worthwhile-uses-for-tablets-1480435110)
+> 原文：<https://lifehacker.com/top-10-worthwhile-uses-for-tablets-1480435110>
 
 平板电脑现在似乎风靡一时，但我们中的一些人仍然试图弄清楚为什么我们甚至想要一个 。好了，这不足为奇了:以下是平板电脑的十个有价值的、聪明的用途，不管它是 iPad、Android 还是 Windows 设备。
 

@@ -1,6 +1,6 @@
 # 这段视频解释了如何最终摆脱你的口臭
 
-> 原文:[https://life hacker . com/this-video-explains-how-to-finally-摆脱你的坏习惯-1711989055](https://lifehacker.com/this-video-explains-how-to-finally-get-rid-of-your-bad-1711989055)
+> 原文：<https://lifehacker.com/this-video-explains-how-to-finally-get-rid-of-your-bad-1711989055>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-A0FAVR6_ZEQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-A0FAVR6_ZEQ&start=0) 
 

@@ -1,6 +1,6 @@
 # 如何为从未使用过智能手机的人设置智能手机
 
-> 原文:[https://life hacker . com/how-to-set-a-smart phone-for someone-whos-never-used-1570808276](https://lifehacker.com/how-to-set-up-a-smartphone-for-someone-whos-never-used-1570808276)
+> 原文：<https://lifehacker.com/how-to-set-up-a-smartphone-for-someone-whos-never-used-1570808276>
 
 第一次向某人介绍智能手机(或平板电脑)，你会很快意识到你有多想当然。从滑动解锁到点击接听电话，这里有一些你必须向你的智能手机新手展示的基础知识。
 

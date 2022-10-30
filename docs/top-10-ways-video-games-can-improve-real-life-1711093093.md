@@ -1,6 +1,6 @@
 # 视频游戏改善现实生活的 10 大方式
 
-> 原文:[https://life hacker . com/top-10-ways-video-games-can-improve-real-life-1711093093](https://lifehacker.com/top-10-ways-video-games-can-improve-real-life-1711093093)
+> 原文：<https://lifehacker.com/top-10-ways-video-games-can-improve-real-life-1711093093>
 
 我们喜欢视频游戏，因为它们有趣且具有娱乐性，但是即使我们放下了控制器，视频游戏或者至少像游戏玩家一样思考也能积极地影响我们的余生。以下是电子游戏给我们带来好处的十种方式。
 

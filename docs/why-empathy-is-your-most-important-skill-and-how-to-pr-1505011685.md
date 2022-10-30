@@ -1,6 +1,6 @@
 # 为什么移情是你最重要的技能(以及如何练习)
 
-> 原文:[https://life hacker . com/why-empathy-is-your-most-important-skill-and-how-to-pr-1505011685](https://lifehacker.com/why-empathy-is-your-most-important-skill-and-how-to-pr-1505011685)
+> 原文：<https://lifehacker.com/why-empathy-is-your-most-important-skill-and-how-to-pr-1505011685>
 
 TL；大卫:移情是你可以练习的最重要的技能。这会让你在个人和职业上获得更大的成功，并且让你练习得越多越开心。
 

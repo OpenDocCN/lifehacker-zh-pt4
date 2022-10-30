@@ -1,6 +1,6 @@
 # 这就是为什么免费维护只是一个营销噱头
 
-> 原文:[https://jalopnik . com/here-s-why-free-maintenance 只是一个营销噱头-1632578540](https://jalopnik.com/here-s-why-free-maintenance-is-just-a-marketing-gimmick-1632578540)
+> 原文：<https://jalopnik.com/here-s-why-free-maintenance-is-just-a-marketing-gimmick-1632578540>
 
 我的一个朋友最近买了一辆丰田卡罗拉。事情是这样的:有一天，我的朋友走过来对我说:“我打算买一辆丰田卡罗拉！”我回答道:“哦，上帝，不！！为什么？？！？你怎么能这样对自己？？去**社会？？**对**人道！？？**你正在毁掉这个世界上一切正确的东西！!"
 

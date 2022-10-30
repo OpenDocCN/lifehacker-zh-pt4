@@ -1,6 +1,6 @@
 # 如何借助科技整理你的家庭乱象
 
-> 原文:[https://life hacker . com/how-to-organize-your-family-the-help-of-tech-1595502673](https://lifehacker.com/how-to-organize-your-family-chaos-with-the-help-of-tech-1595502673)
+> 原文：<https://lifehacker.com/how-to-organize-your-family-chaos-with-the-help-of-tech-1595502673>
 
 一旦有了孩子，家庭生活很快就会变得混乱。篡改他们的时间表，解决家务，从其他父母那里获得帮助都可以使事情变得更容易，特别是如果你使用你已经掌握的技术。
 

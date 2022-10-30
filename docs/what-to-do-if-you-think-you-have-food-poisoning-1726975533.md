@@ -1,6 +1,6 @@
 # 如果你认为自己食物中毒了该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-think-you-hacket-1726975533](https://lifehacker.com/what-to-do-if-you-think-you-have-food-poisoning-1726975533)
+> 原文：<https://lifehacker.com/what-to-do-if-you-think-you-have-food-poisoning-1726975533>
 
 我经历过的最严重的食物中毒是在和朋友周末度假回来后的几天。当我终于把自己拖出浴室时，一封电子邮件在等我:“其他人都还好吗？我知道我们一起吃饭是几天前的事了，所以我肯定不是那样，但我只是想核实一下。”
 

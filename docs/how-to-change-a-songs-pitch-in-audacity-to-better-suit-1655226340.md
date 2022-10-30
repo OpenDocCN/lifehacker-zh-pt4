@@ -1,6 +1,6 @@
 # 如何大胆地改变歌曲的音高(以更好地适应你的声音)
 
-> 原文:[https://life hacker . com/how-to-change-a-songs-pitch-in-audacity-to-better-suit-1655226340](https://lifehacker.com/how-to-change-a-songs-pitch-in-audacity-to-better-suit-1655226340)
+> 原文：<https://lifehacker.com/how-to-change-a-songs-pitch-in-audacity-to-better-suit-1655226340>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-DEORHsX_LOE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-DEORHsX_LOE&start=0) 
 

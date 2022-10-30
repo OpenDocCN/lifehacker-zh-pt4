@@ -1,6 +1,6 @@
 # 为什么你不应该像超级英雄那样思考，而应该像一个恶棍那样思考
 
-> 原文:[https://life hacker . com/why-you-should-less-think-like-a super hero-more-lik-1453537125](https://lifehacker.com/why-you-should-think-less-like-a-superhero-and-more-lik-1453537125)
+> 原文：<https://lifehacker.com/why-you-should-think-less-like-a-superhero-and-more-lik-1453537125>
 
 我们认为有许多美德是“英雄”的标志:诚实、公正、勇敢等等。作为父母和老师，我们把这些价值观灌输给年轻人；我们将它们铭刻在制度和伦理中。事实上，有一个完整丰富的道德体系，通常被称为美德伦理，它鼓励人们朝着这些美德努力。
 

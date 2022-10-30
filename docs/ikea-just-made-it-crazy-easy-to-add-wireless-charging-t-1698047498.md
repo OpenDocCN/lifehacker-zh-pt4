@@ -1,6 +1,6 @@
 # 宜家让给你的家具添加无线充电变得非常简单
 
-> 原文:[https://gizmodo . com/IKEA-just-made-it-crazy-easy-add-wireless-charging-t-1698047498](https://gizmodo.com/ikea-just-made-it-crazy-easy-to-add-wireless-charging-t-1698047498)
+> 原文：<https://gizmodo.com/ikea-just-made-it-crazy-easy-to-add-wireless-charging-t-1698047498>
 
 宜家正在缓慢但稳步地进入电子行业。瑞典家具巨头 [将于今年春天开始销售无线充电家具](http://www.ikea.com/ms/en_US/pressroom/press_materials/USA_PR_Wireless_charging.pdf) 。不想要新家具？没问题。宜家让在任何家具上安装新的感应充电设备变得异常简单。
 

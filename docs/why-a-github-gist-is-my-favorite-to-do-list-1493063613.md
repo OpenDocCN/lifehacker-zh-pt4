@@ -1,6 +1,6 @@
 # 如何把 GitHub 变成待办事项列表
 
-> 原文:[https://life hacker . com/why-a-github-gist-is-my favorite-to-do-list-1493063613](https://lifehacker.com/why-a-github-gist-is-my-favorite-to-do-list-1493063613)
+> 原文：<https://lifehacker.com/why-a-github-gist-is-my-favorite-to-do-list-1493063613>
 
 我是待办事项清单的超级粉丝。它们帮助我保持有条理，优先安排我的一天，并给原本混乱的日程表添加结构。我最近发现了保存待办事项清单的最好也是最简单的方法:一个 [GitHub](https://lifehacker.com/how-the-heck-do-i-use-github-5983680) 要点。
 

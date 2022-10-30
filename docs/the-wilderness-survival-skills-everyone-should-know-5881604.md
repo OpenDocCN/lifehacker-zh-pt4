@@ -1,6 +1,6 @@
 # 每个人都应该知道的野外生存技巧
 
-> 原文:[https://life hacker . com/the-wildership-survival-skills-every one-should-know-5881604](https://lifehacker.com/the-wilderness-survival-skills-everyone-should-know-5881604)
+> 原文：<https://lifehacker.com/the-wilderness-survival-skills-everyone-should-know-5881604>
 
 看几个小时的探索频道可以激发极端的生存幻想，包括舔青蛙和喝尿，但是在野外生存你需要哪些基本技能呢？以下是你从一名生存专家直接成为一名成年童子军所需要的基本条件。
 

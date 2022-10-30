@@ -1,6 +1,6 @@
 # 嫁入债务，如何保护自己的信用
 
-> 原文:[https://life hacker . com/how-to-protect-your-credit-when you marry-to-debt-1576458795](https://lifehacker.com/how-to-protect-your-credit-when-you-marry-into-debt-1576458795)
+> 原文：<https://lifehacker.com/how-to-protect-your-credit-when-you-marry-into-debt-1576458795>
 
 所以你已经有了自己的财务行为，但你的准配偶却没有。你爱你的伴侣，但你努力让自己的财务恢复正常，你不想为他们过去的错误负责。以下是你如何保护自己不嫁入债务的方法。
 

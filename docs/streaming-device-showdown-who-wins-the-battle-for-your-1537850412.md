@@ -1,6 +1,6 @@
 # 流媒体设备摊牌:谁赢得了电视之战？
 
-> 原文:[https://gizmodo . com/streaming-device-download-who ' s win-the-battle for-your-1537850412](https://gizmodo.com/streaming-device-showdown-who-wins-the-battle-for-your-1537850412)
+> 原文：<https://gizmodo.com/streaming-device-showdown-who-wins-the-battle-for-your-1537850412>
 
 所以你想把东西流式传输到你的电视上。现在你有很多选择，但是哪一个是最好的呢？在 Roku 宣布其即将推出的 50 美元 HDMI-ready 流媒体棒 和亚马逊推出其 [新的 100 美元 Fire TV 流媒体盒子](http://gizmodo.com/amazons-fire-tv-everything-you-need-to-know-1556889628) 之后，我们将这张图表放在一起，向你展示它如何与竞争对手相抗衡。
 

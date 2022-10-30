@@ -1,6 +1,6 @@
 # 如何将 YouTube 变成终极流媒体音乐服务
 
-> 原文:[https://life hacker . com/how-to-turn-YouTube-to-ultimate-streaming-music-s-1624383344](https://lifehacker.com/how-to-turn-youtube-into-the-ultimate-streaming-music-s-1624383344)
+> 原文：<https://lifehacker.com/how-to-turn-youtube-into-the-ultimate-streaming-music-s-1624383344>
 
 最近有传言称，谷歌将为 YouTube 创建一个 [音乐订阅服务。为什么要等呢？如果你知道如何使用，YouTube 上已经有数百万首歌曲供你欣赏。](http://www.androidpolice.com/2014/08/18/exclusive-this-is-youtube-music-key-googles-upcoming-subscription-service-with-offline-support-background-audio-no-ads-free-play-music-key/)
 

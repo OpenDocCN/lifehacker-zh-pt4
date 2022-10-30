@@ -1,6 +1,6 @@
 # 最好的预付费手机运营商是哪家？
 
-> 原文:[https://life hacker . com/whats-the-best-预付费手机运营商-1460060935](https://lifehacker.com/whats-the-best-pre-paid-cellphone-carrier-1460060935)
+> 原文：<https://lifehacker.com/whats-the-best-pre-paid-cellphone-carrier-1460060935>
 
 如果你想要大型航空公司的替代品，你确实有一些选择。预付费运营商、MVNOs 和其他使用相同发射塔但拥有自己的电话、客户服务和定价计划的公司可以给你提供有价值的选择。本周我们想知道你认为哪些是最好的。
 

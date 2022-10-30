@@ -1,6 +1,6 @@
 # 如何以正确的方式进行越野绞车救援
 
-> 原文:[https://jalopnik . com/how-to-perform-a-off-road-winch-rescue-the-right-way-1699034968](https://jalopnik.com/how-to-perform-an-off-road-winch-rescue-the-right-way-1699034968)
+> 原文：<https://jalopnik.com/how-to-perform-an-off-road-winch-rescue-the-right-way-1699034968>
 
  [https://jalopnik.com/embed/inset/iframe?id=youtube-video-b7M-d-iuhtk&start=0](https://jalopnik.com/embed/inset/iframe?id=youtube-video-b7M-d-iuhtk&start=0) 
 

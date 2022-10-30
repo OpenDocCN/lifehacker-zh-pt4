@@ -1,6 +1,6 @@
 # Chrome 地址栏的秘密力量
 
-> 原文:[https://life hacker . com/the-secret-powers-of-chromes-address-bar-1651920066](https://lifehacker.com/the-secret-powers-of-chromes-address-bar-1651920066)
+> 原文：<https://lifehacker.com/the-secret-powers-of-chromes-address-bar-1651920066>
 
 Chrome 的地址栏一看就没啥用。输入一个网址，你就会被带到一个网站。但是如果你知道如何使用它，它可以做得更多。
 

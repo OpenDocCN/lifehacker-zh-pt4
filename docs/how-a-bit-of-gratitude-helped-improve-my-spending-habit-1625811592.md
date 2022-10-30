@@ -1,6 +1,6 @@
 # 一点感激之情是如何帮助我改善消费习惯的
 
-> 原文:[https://life hacker . com/how-a-bit-of-感恩帮助改善我的消费习惯-1625811592](https://lifehacker.com/how-a-bit-of-gratitude-helped-improve-my-spending-habit-1625811592)
+> 原文：<https://lifehacker.com/how-a-bit-of-gratitude-helped-improve-my-spending-habit-1625811592>
 
 钱好像跟逻辑很有关系，跟感情关系不大。但是我们的情绪会对我们如何处理财务有很大的影响。例如，感恩可以在很大程度上影响支出(甚至投资)。这里有一份关于它如何让我的理财习惯变得更好的第一手资料。
 

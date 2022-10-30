@@ -1,6 +1,6 @@
 # 电脑游戏的五个最佳资源
 
-> 原文:[https://life hacker . com/five-best-resources-for-PC-games-1567864346](https://lifehacker.com/five-best-resources-for-pc-games-1567864346)
+> 原文：<https://lifehacker.com/five-best-resources-for-pc-games-1567864346>
 
 有很多地方可以找到优秀的电脑游戏，无论你是在寻找刚刚发布的游戏还是经典的宝藏。尽管如此，有些还是比其他的好，要么是因为他们的交易，选择，DRM 的方法，要么是对独立游戏的支持。根据你的提名，这里有五个最好的。
 

@@ -1,6 +1,6 @@
 # 如何开始用 Arduino 和其他人的代码制作自己的电子产品
 
-> 原文:[https://life hacker . com/how-to-start-making-your-own-electronics-with-arduino-a-5875365](https://lifehacker.com/how-to-start-making-your-own-electronics-with-arduino-a-5875365)
+> 原文：<https://lifehacker.com/how-to-start-making-your-own-electronics-with-arduino-a-5875365>
 
 一年一度的消费电子展正在举行，这意味着成千上万的人已经来到拉斯维加斯，盯着明年的灰尘收集垃圾。也许你可以做得更好。也许是时候去看看 Arduino 了。
 

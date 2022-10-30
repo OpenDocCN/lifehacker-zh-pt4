@@ -1,6 +1,6 @@
 # 500 万在线密码泄露，现在检查你的[更新]
 
-> 原文:[https://life hacker . com/500 万-Gmail-passwords-leaved-check-yours-now-1632983265](https://lifehacker.com/5-million-gmail-passwords-leaked-check-yours-now-1632983265)
+> 原文：<https://lifehacker.com/5-million-gmail-passwords-leaked-check-yours-now-1632983265>
 
 据 the Daily Dot 报道，俄罗斯比特币论坛泄露了近 500 万个与 Gmail 账户相关的用户名和密码。以下是你应该知道的。
 

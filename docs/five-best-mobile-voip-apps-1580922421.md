@@ -1,6 +1,6 @@
 # 五款最佳移动 VoIP 应用
 
-> 原文:[https://life hacker . com/five-best-mobile-VoIP-apps-1580922421](https://lifehacker.com/five-best-mobile-voip-apps-1580922421)
+> 原文：<https://lifehacker.com/five-best-mobile-voip-apps-1580922421>
 
 如果你想在无线账单上节省一些钱，放弃你的通话时间，使用移动 VoIP 应用程序来打电话。不难，很多要么免费，要么低价，看你打给谁了。根据你的提名，这里有五款最适合你的智能手机的 VoIP 应用。
 

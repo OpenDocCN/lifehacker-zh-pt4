@@ -1,6 +1,6 @@
 # 一天中创造性思维的最佳时间
 
-> 原文:[https://life hacker . com/the-best-time-to-get-ideas-by-science-1541494290](https://lifehacker.com/the-best-time-of-day-to-get-ideas-according-to-science-1541494290)
+> 原文：<https://lifehacker.com/the-best-time-of-day-to-get-ideas-according-to-science-1541494290>
 
 你理想中的一天是什么样子的？你会相信有一个科学上正确的答案吗？对人体问题的研究——它的激素分配，它的 [节律](http://blog.bufferapp.com/optimal-work-time-how-long-should-we-work-every-day-the-science-of-mental-strength) ，它的 [倾向](http://blog.bufferapp.com/5-ways-to-get-more-done-by-working-smarter-not-harder)——发现在一天中的某些时候，身体更擅长进行某些活动。
 

@@ -1,6 +1,6 @@
 # 如何减轻拥有汽车的复合压力
 
-> 原文:[https://life hacker . com/how-to-reduce-the-compounding-stress of-car-ownership-1561857592](https://lifehacker.com/how-to-reduce-the-compounding-stress-of-car-ownership-1561857592)
+> 原文：<https://lifehacker.com/how-to-reduce-the-compounding-stress-of-car-ownership-1561857592>
 
 对我们许多人来说，汽车是我们日常生活的必需品，当它们发生故障时，我们的正常生活就会完全脱轨。修车的压力只会让情况变得更糟。以下是如何为意想不到的汽车故障做准备，这样当生活给你带来麻烦时，你可以更容易地反弹。
 

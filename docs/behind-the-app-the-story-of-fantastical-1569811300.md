@@ -1,6 +1,6 @@
 # 应用背后:奇幻的故事
 
-> 原文:[https://life hacker . com/the behind-the-app-the-story-of-fantastic-1569811300](https://lifehacker.com/behind-the-app-the-story-of-fantastical-1569811300)
+> 原文：<https://lifehacker.com/behind-the-app-the-story-of-fantastical-1569811300>
 
 Fantastical 是我们最喜欢的日历工具 的设计和功能之一。它易于导航，由一个语言解析器驱动，可以轻松创建条目。这款应用背后是 Flexibits 的联合创始人迈克尔·西蒙斯(Michael Simmons)——我们与迈克尔聊了聊，了解 Fantastical 是如何形成的，他们面临的最大挑战，以及他们的日历上将会有什么。
 

@@ -1,6 +1,6 @@
 # 为什么我的网速突然这么慢？
 
-> 原文:[https://life hacker . com/why-is-my-internet-sudden-so-slow-1525144792](https://lifehacker.com/why-is-my-internet-suddenly-so-slow-1525144792)
+> 原文：<https://lifehacker.com/why-is-my-internet-suddenly-so-slow-1525144792>
 
 亲爱的生活黑客，我有一个快速的互联网连接，但它并不总是赢得这个称号。有时在一天中的特定时间，我得到的速度是我付费时的一半。其他时候，我的上游连接几乎不起作用。我已经做了所有通常的调制解调器重置技术支持总是需要，但我仍然有问题。有什么想法吗？
 

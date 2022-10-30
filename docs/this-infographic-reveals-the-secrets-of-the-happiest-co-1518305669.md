@@ -1,6 +1,6 @@
 # 这张信息图揭示了最幸福夫妇的秘密
 
-> 原文:[https://life hacker . com/this-infograph-reveals-the-secrets-of-the-happy-co-1518305669](https://lifehacker.com/this-infographic-reveals-the-secrets-of-the-happiest-co-1518305669)
+> 原文：<https://lifehacker.com/this-infographic-reveals-the-secrets-of-the-happiest-co-1518305669>
 
 PSA:下周就是情人节了。无论你是否庆祝这一时刻，这张来自快乐训练应用程序的信息图可以帮助你改善你的浪漫关系。它总结了几个重要的发现，这些发现来自关于什么能让夫妻幸福的研究。
 

@@ -1,6 +1,6 @@
 # 什么是最好的带麦克风的耳机？
 
-> 原文:[https://life hacker . com/whats-the-best-a-attached-microphone-1693690469](https://lifehacker.com/whats-the-best-headset-with-an-attached-microphone-1693690469)
+> 原文：<https://lifehacker.com/whats-the-best-headset-with-an-attached-microphone-1693690469>
 
 无论您是进行视频聊天还是玩游戏，一款好的耳机都会让一切变得不同。一个好的耳机将确保你能听到你周围的一切，或者在你不需要麦克风的时候听音乐。本周，我们想知道你认为哪些耳机最好。
 

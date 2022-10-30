@@ -1,6 +1,6 @@
 # 女性减肥面临的独特困难
 
-> 原文:[https://life hacker . com/the-unique-differences-the-women-face-with-weight-los-1681795029](https://lifehacker.com/the-unique-difficulties-that-women-face-with-weight-los-1681795029)
+> 原文：<https://lifehacker.com/the-unique-difficulties-that-women-face-with-weight-los-1681795029>
 
 如果你是一位试图减肥的女性，你可能已经注意到了一些事情:这很难。比简单地减少卡路里和看着体重下降要困难得多。
 

@@ -1,6 +1,6 @@
 # 你永远不会回头的十大顶级科技产品
 
-> 原文:[https://life hacker . com/top-10-superior-tech-products-youll-never-back-from-1625547811](https://lifehacker.com/top-10-superior-tech-products-youll-never-go-back-from-1625547811)
+> 原文：<https://lifehacker.com/top-10-superior-tech-products-youll-never-go-back-from-1625547811>
 
 有些升级是主观的——比如从笔和纸转向数字笔记。然而，其他的升级改变了你使用科技的方式，让你不可能再回到那些低劣的东西。这里有 10 件这样的事情。
 

@@ -1,6 +1,6 @@
 # 黑色材料主屏幕
 
-> 原文:[https://life hacker . com/the-black-material-home-screen-1679821241](https://lifehacker.com/the-black-material-home-screen-1679821241)
+> 原文：<https://lifehacker.com/the-black-material-home-screen-1679821241>
 
 为了简单，有话要说。今天的设计坚持使用灰度调色板，但仍然设法通过传达一些深度的布局来包含大量信息。
 

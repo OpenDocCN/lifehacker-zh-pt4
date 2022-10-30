@@ -1,6 +1,6 @@
 # 如何租船旅行
 
-> 原文:[https://life hacker . com/how-to-charge-a-boat-a-travel-1637920638](https://lifehacker.com/how-to-charter-a-boat-for-travel-1637920638)
+> 原文：<https://lifehacker.com/how-to-charter-a-boat-for-travel-1637920638>
 
 如果你想为你的下一次旅行尝试一些新的东西，租一艘船。你可以享受航海的所有乐趣，而无需一年到头的停靠和维护费用。
 

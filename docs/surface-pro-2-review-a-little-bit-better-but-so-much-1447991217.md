@@ -1,6 +1,6 @@
 # Surface Pro 2 评测:稍微好一点，但大同小异
 
-> 原文:[https://gizmodo . com/surface-pro-2-review-a little-bit-better-but-so-much-1447991217](https://gizmodo.com/surface-pro-2-review-a-little-bit-better-but-so-much-1447991217)
+> 原文：<https://gizmodo.com/surface-pro-2-review-a-little-bit-better-but-so-much-1447991217>
 
 原来 [表面上看](https://gizmodo.com/microsoft-surface-pro-review-too-much-future-5981224) 是很多东西，但其中最主要的是*怪。*它不仅巧妙地——如果不是非常完美的话——跨越了平板电脑和笔记本电脑之间的界限，还跨越了未来主义理想和有问题的产品之间的界限。这一次，Surface Pro 2 进行了大量的实际改进，但作为一个概念，它仍然不稳定。
 

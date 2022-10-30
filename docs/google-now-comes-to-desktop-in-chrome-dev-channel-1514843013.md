@@ -1,6 +1,6 @@
 # 谷歌现在在 Chrome Dev 和 Beta 频道推出桌面版
 
-> 原文:[https://life hacker . com/Google-now-come-to-desktop-in-chrome-dev-channel-1514843013](https://lifehacker.com/google-now-comes-to-desktop-in-chrome-dev-channel-1514843013)
+> 原文：<https://lifehacker.com/google-now-comes-to-desktop-in-chrome-dev-channel-1514843013>
 
 Chrome:Chrome 开发频道的大多数新功能可能不值得牺牲常规或测试版频道的稳定性。然而，随着 Google Now 的出现，我们看到了罕见的例外。
 

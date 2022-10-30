@@ -1,6 +1,6 @@
 # 如何更换水龙头
 
-> 原文:[https://lifehacker.com/how-to-change-a-faucet-1625732554](https://lifehacker.com/how-to-change-a-faucet-1625732554)
+> 原文：<https://lifehacker.com/how-to-change-a-faucet-1625732554>
 
 漏水、难看的水龙头是一个相当普遍的问题，但是用一些简单的工具——并且愿意把自己塞在水槽下面一会儿——把一个水龙头换成一个全新的水龙头是一个简单的 DIY 项目。
 

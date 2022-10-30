@@ -1,6 +1,6 @@
 # 抽象桌面
 
-> 原文:[https://lifehacker.com/the-abstract-desktop-1725042402](https://lifehacker.com/the-abstract-desktop-1725042402)
+> 原文：<https://lifehacker.com/the-abstract-desktop-1725042402>
 
 giacomolawrence 的桌面非常有趣——一些抽象的形状，屏幕上活跃的小部件，以及需要时容易看到的快捷方式和信息。他是这样设置的。
 

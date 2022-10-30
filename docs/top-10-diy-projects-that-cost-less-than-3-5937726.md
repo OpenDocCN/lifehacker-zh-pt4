@@ -1,6 +1,6 @@
 # 成本低于 3 美元的 10 大 DIY 项目
 
-> 原文:[https://life hacker . com/top-10-DIY-projects-than-cost-less-3-5937726](https://lifehacker.com/top-10-diy-projects-that-cost-less-than-3-5937726)
+> 原文：<https://lifehacker.com/top-10-diy-projects-that-cost-less-than-3-5937726>
 
 当你可以花很少的钱自己做东西时，为什么要花很多钱去买呢？这里有一些我们最喜欢的生活黑客 DIY 项目，它们会让你花费比一杯拿铁咖啡还少的钱。
 

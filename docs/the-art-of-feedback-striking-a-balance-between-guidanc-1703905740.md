@@ -1,6 +1,6 @@
 # 反馈的艺术:在指导和批评之间取得平衡
 
-> 原文:[https://life hacker . com/the-art-of-feedback-striking-a-balance-guidances-1703905740](https://lifehacker.com/the-art-of-feedback-striking-a-balance-between-guidanc-1703905740)
+> 原文：<https://lifehacker.com/the-art-of-feedback-striking-a-balance-between-guidanc-1703905740>
 
 很容易假设指出一个错误就构成了反馈，在某种程度上确实如此，但这类似于告诉你的伴侣外面在下雨，却没有给他们一把伞。反馈是对行为产生积极影响的指导性语言。它有一个假定的内在好处:它提供了关于如何改进我们所做的事情以及我们如何去做的知识。它帮助我们成长，变得更好。
 

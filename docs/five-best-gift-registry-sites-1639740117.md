@@ -1,6 +1,6 @@
 # 五个最佳礼品注册网站
 
-> 原文:[https://life hacker . com/five-best-gift-registry-sites-1639740117](https://lifehacker.com/five-best-gift-registry-sites-1639740117)
+> 原文：<https://lifehacker.com/five-best-gift-registry-sites-1639740117>
 
 无论你是在计划婚礼、送礼会，还是任何其他重大事件的大型派对，你都可能会有人想要祝贺你——这意味着你需要一个登记处。本周，我们来看看五种适用于各种类型和规模的活动的最佳注册服务。
 

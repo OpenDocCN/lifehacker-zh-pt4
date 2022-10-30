@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:4 月 3 日至 4 月 10 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-4 月 3 日至 4 月 10 日-1697046891](https://lifehacker.com/this-weeks-most-popular-posts-april-3rd-to-april-10th-1697046891)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-april-3rd-to-april-10th-1697046891>
 
 本周我们花了很长时间看了一下 [超宽显示器](https://lifehacker.com/ultrawide-vs-dual-monitors-which-are-better-for-produc-1695967682) ，思考了一下 [是否值得拥有六块腹肌](http://vitals.lifehacker.com/how-getting-a-six-pack-changes-your-life-and-how-it-do-1696896251) ，学习了如何 [在减肥时最大限度地减少皮肤松弛](http://vitals.lifehacker.com/how-to-minimize-loose-skin-during-weight-loss-1696145766) ，从爱德华·斯诺登 那里获得了关于密码的 [一课，等等。这里回顾一下。](http://lifehacker.com/edward-snowden-explains-why-you-should-use-passphrases-1696958545)
 

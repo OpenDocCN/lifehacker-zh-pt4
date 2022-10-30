@@ -1,6 +1,6 @@
 # 你是如何破坏你的求职的(以及该怎么做)
 
-> 原文:[https://life hacker . com/how-you-desrupting-your-job-search-and-what-to-do-in-1679505055](https://lifehacker.com/how-youre-sabotaging-your-job-search-and-what-to-do-in-1679505055)
+> 原文：<https://lifehacker.com/how-youre-sabotaging-your-job-search-and-what-to-do-in-1679505055>
 
 归根结底，找工作的很大一部分是自信——申请最好职位的自信，与任何人和所有人交往的自信，传达你是最好的候选人的自信。但是自信和傲慢之间有一条细微的界限，你需要控制住。
 

@@ -1,6 +1,6 @@
 # 长期目标的最大陷阱(以及如何超越它们)
 
-> 原文:[https://life hacker . com/the-maximum-trapping-of-long-term-goals-and-how-to-bea-1610874090](https://lifehacker.com/the-biggest-pitfalls-of-long-term-goals-and-how-to-bea-1610874090)
+> 原文：<https://lifehacker.com/the-biggest-pitfalls-of-long-term-goals-and-how-to-bea-1610874090>
 
 如果你下定决心，你可以实现大多数短期目标，比如在几个月内减肥。未来的目标要困难得多，比如你看到自己三年后的样子。在你开始这些长期目标之前，最好知道你会遇到哪些陷阱，并做好心理准备。
 

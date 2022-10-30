@@ -1,6 +1,6 @@
 # 如何在一个地方积累您所有的常旅客里程
 
-> 原文:[https://life hacker . com/how-to-accumulate-all-of-o-1472194919](https://lifehacker.com/how-to-accumulate-all-of-your-frequent-flyer-miles-in-o-1472194919)
+> 原文：<https://lifehacker.com/how-to-accumulate-all-of-your-frequent-flyer-miles-in-o-1472194919>
 
 分散的航空里程不太可能对许多乘客有多大好处，因为大多数人倾向于在航空公司之间跳跃，这使得很难在任何一家航空公司节省有用的金额。那么，你如何在一个地方获得所有的航空里程呢？
 

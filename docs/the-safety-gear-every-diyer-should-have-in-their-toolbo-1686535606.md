@@ -1,6 +1,6 @@
 # 每个 DIY 者工具箱中应该有的安全装备
 
-> 原文:[https://life hacker . com/the-safety-gear-every-diyer-should-have-in-they-tool bo-1686535606](https://lifehacker.com/the-safety-gear-every-diyer-should-have-in-their-toolbo-1686535606)
+> 原文：<https://lifehacker.com/the-safety-gear-every-diyer-should-have-in-their-toolbo-1686535606>
 
 我们经常谈论工具，但是任何自己动手的项目都应该有合适的安全装备。它可能没有工具有趣，但这些必备物品会在任何活动中保护你的视力、听力和肺部。
 

@@ -1,6 +1,6 @@
 # 奇巧汽车桌面
 
-> 原文:[https://lifehacker.com/the-kit-kat-car-desktop-1592925466](https://lifehacker.com/the-kit-kat-car-desktop-1592925466)
+> 原文：<https://lifehacker.com/the-kit-kat-car-desktop-1592925466>
 
 读者 [ScoobSTi 没有 STi](http://scoobsti.kinja.com/) 的 Windows 桌面很有趣，即使你不在乎汽车壁纸。看看桌面上那些安卓奇巧主题的图标和谷歌搜索栏。他是这样设置的。
 

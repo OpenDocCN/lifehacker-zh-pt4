@@ -1,6 +1,6 @@
 # 直言不讳的力量
 
-> 原文:[https://lifehacker.com/the-power-of-speaking-up-1480463377](https://lifehacker.com/the-power-of-speaking-up-1480463377)
+> 原文：<https://lifehacker.com/the-power-of-speaking-up-1480463377>
 
 上个月，我和男朋友去西雅图度周末，庆祝我们的周年纪念日。我们使用折扣应用程序在 [酒店](http://www.getrichslowly.org/blog/2010/05/13/in-search-of-hotel-bargains/) 订了一个好价钱。我们以前住过这家酒店，风景很美。我们登记入住，卸下行李，拉开窗帘，准备欣赏我们飞了一千英里才看到的西雅图美丽的天际线。你瞧，停车场。
 

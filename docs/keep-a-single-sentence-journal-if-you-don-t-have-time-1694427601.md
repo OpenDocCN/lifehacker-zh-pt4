@@ -1,6 +1,6 @@
 # 如果你没有时间写，就写“单句日记”
 
-> 原文:[https://life hacker . com/keep-a-single-sentence-journal-if-you-dont-time-1694427601](https://lifehacker.com/keep-a-single-sentence-journal-if-you-don-t-have-time-1694427601)
+> 原文：<https://lifehacker.com/keep-a-single-sentence-journal-if-you-don-t-have-time-1694427601>
 
 写日记 [能激发创造力，帮助你反思](https://lifehacker.com/why-you-should-keep-a-journal-and-how-to-start-yours-1547057185) 。但是每天写一两页是很费时间的。如果你觉得没有时间定期写日记，那就开始写“单句日记”
 

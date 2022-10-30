@@ -1,6 +1,6 @@
 # 所有这些消息应用程序是怎么回事？
 
-> 原文:[https://life hacker . com/what-the-deal-with-all-this-messaging-apps-1561543034](https://lifehacker.com/whats-the-deal-with-all-these-messaging-apps-1561543034)
+> 原文：<https://lifehacker.com/whats-the-deal-with-all-these-messaging-apps-1561543034>
 
 亲爱的 Lifehacker，
 这些天我听到了很多关于不同的消息应用程序，但我不明白我为什么要在意。一次搜索会显示 WhatsApp、Viber、iMessages、Snapchat、Kik、Facebook Messenger 等数十个应用。我已经有短信了。为什么我需要这些其他应用程序？

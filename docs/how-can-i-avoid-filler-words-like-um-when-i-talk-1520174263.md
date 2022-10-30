@@ -1,6 +1,6 @@
 # 说话时如何避免“嗯”之类的填充词？
 
-> 原文:[https://life hacker . com/how-can-I-avoid-filler-words-like-um-when-I-talk-1520174263](https://lifehacker.com/how-can-i-avoid-filler-words-like-um-when-i-talk-1520174263)
+> 原文：<https://lifehacker.com/how-can-i-avoid-filler-words-like-um-when-i-talk-1520174263>
 
 亲爱的 Lifehacker，
 当我说话的时候，我倾向于使用很多填充词，比如“嗯”和“喜欢”...我最近意识到这听起来有多糟糕，尤其是在工作中做演示的时候。我该如何训练自己在演讲中消除这些？

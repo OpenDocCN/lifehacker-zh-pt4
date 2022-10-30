@@ -1,6 +1,6 @@
 # 升级你的厨房:如何选择新的台面、橱柜和地板
 
-> 原文:[https://life hacker . com/upgrade-your-kitchen-how-to-choose-new-counterops-ca-1725444902](https://lifehacker.com/upgrade-your-kitchen-how-to-choose-new-countertops-ca-1725444902)
+> 原文：<https://lifehacker.com/upgrade-your-kitchen-how-to-choose-new-countertops-ca-1725444902>
 
 厨房是你家的心脏，也是大多数购房者最重要的房间。这也是试图升级或改造压力最大的房间，这在很大程度上要感谢你有无数的台面、橱柜和地板材料可供选择。让我们带你看看你的选择。
 

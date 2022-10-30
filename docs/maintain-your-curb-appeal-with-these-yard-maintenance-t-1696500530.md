@@ -1,6 +1,6 @@
 # 用这些院子维护技巧来保持你的吸引力
 
-> 原文:[https://life hacker . com/maintain-your-curb-appeal-with these-yard-maintenance-t-1696500530](https://lifehacker.com/maintain-your-curb-appeal-with-these-yard-maintenance-t-1696500530)
+> 原文：<https://lifehacker.com/maintain-your-curb-appeal-with-these-yard-maintenance-t-1696500530>
 
 一个维护良好的院子可以提高你的财产价值，让你得到邻居的好感，甚至可以防止入室盗窃。以下是保持你的院子整洁所需的四种基本户外装备和技能的分类。
 

@@ -1,6 +1,6 @@
 # 办公室控制狂如何学会放手
 
-> 原文:[https://life hacker . com/how-office-control-freaks-can-learn-to-let-go-1453301178](https://lifehacker.com/how-office-control-freaks-can-learn-to-let-go-1453301178)
+> 原文：<https://lifehacker.com/how-office-control-freaks-can-learn-to-let-go-1453301178>
 
 许多高绩效者内心激烈斗争，他们从作为个人贡献者而茁壮成长的职位晋升到需要依赖他人的职位。一方面，他们为自己比其他人更了解自己的领域而自豪，并喜欢对自己交付出色工作的能力充满信心。另一方面，他们的新职责范围不再使保持所有细节成为可能，甚至更可取。
 

@@ -1,6 +1,6 @@
 # 当手头已经很紧时，如何为孩子的大学存钱
 
-> 原文:[https://life hacker . com/how-to-save-for-college-without-to-broken-1689613418](https://lifehacker.com/how-to-save-for-college-without-going-broke-1689613418)
+> 原文：<https://lifehacker.com/how-to-save-for-college-without-going-broke-1689613418>
 
 对于大多数家庭来说，为大学存钱是最重要的财务事项之一——也是最难实现的事项之一，因为费用巨大。让我们看看我们的许多选择，这样我们就可以为我们的孩子的教育制定一个可靠的计划。
 

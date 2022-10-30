@@ -1,6 +1,6 @@
 # 什么是“正念”，为什么每个人都在谈论它？
 
-> 原文:[https://life hacker . com/what-is mindfulness-and-why-are-every one-talking-ABO-1502693174](https://lifehacker.com/what-is-mindfulness-and-why-is-everyone-talking-abo-1502693174)
+> 原文：<https://lifehacker.com/what-is-mindfulness-and-why-is-everyone-talking-abo-1502693174>
 
 亲爱的生活黑客，我不断看到“正念”这个词无处不在，它与从减肥到更有效率的任何事情都有关联。但是这个模糊的词实际上是什么意思，我如何将正念应用到我的生活中？
 

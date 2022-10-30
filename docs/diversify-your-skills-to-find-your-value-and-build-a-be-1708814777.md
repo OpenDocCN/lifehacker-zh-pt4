@@ -1,6 +1,6 @@
 # 价值线:多样化你的技能，打造更好的职业生涯
 
-> 原文:[https://life hacker . com/diversize-your-skills-to-find-your-value-and-build-a-be-1708814777](https://lifehacker.com/diversify-your-skills-to-find-your-value-and-build-a-be-1708814777)
+> 原文：<https://lifehacker.com/diversify-your-skills-to-find-your-value-and-build-a-be-1708814777>
 
 对于你可能拥有的每一项技能，都有一个人们会付给你报酬的技能水平。在那之下，你付钱让别人做这些事情——这就是我所说的“价值线”那么职业是如何体现这一理念的呢？职业只是一个领域，在那里你精心打造了一项远远超出价值线的技能。学习新的技能，你会发现更多的机会去超越价值线。
 

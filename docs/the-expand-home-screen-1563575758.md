@@ -1,6 +1,6 @@
 # 扩展主屏幕
 
-> 原文:[https://lifehacker.com/the-expand-home-screen-1563575758](https://lifehacker.com/the-expand-home-screen-1563575758)
+> 原文：<https://lifehacker.com/the-expand-home-screen-1563575758>
 
 Android: Themer 有一大堆整洁的 [主屏幕主题](http://lifehacker.com/the-best-themer-themes-to-refresh-and-customize-your-an-1447449150) ，Expand 也不例外。这种设计有四个可折叠的部分，包含您需要的所有链接、快捷方式和小部件。
 

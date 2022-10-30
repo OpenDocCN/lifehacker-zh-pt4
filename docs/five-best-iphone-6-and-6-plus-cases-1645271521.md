@@ -1,6 +1,6 @@
 # 五个最好的 iPhone 6 和 6 Plus 保护套
 
-> 原文:[https://life hacker . com/five-best-iphone-6 and-6-plus-cases-1645271521](https://lifehacker.com/five-best-iphone-6-and-6-plus-cases-1645271521)
+> 原文：<https://lifehacker.com/five-best-iphone-6-and-6-plus-cases-1645271521>
 
 如果你最近拿了一部闪亮的新 iPhone 6 或 6 Plus，你可能需要一些东西来保护它免受跌落或刮擦和撞击。有大量的箱子可供选择，从超贵的到轻薄便宜的都有。本周我们将根据你们的提名和投票选出五位最佳选手。
 

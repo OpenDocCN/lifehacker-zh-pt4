@@ -1,6 +1,6 @@
 # 人们处理批评的不同方式(以及如何做得更好)
 
-> 原文:[https://life hacker . com/the-different-ways-people-handle-the-how-to-1679777243](https://lifehacker.com/the-different-ways-people-handle-criticism-and-how-to-1679777243)
+> 原文：<https://lifehacker.com/the-different-ways-people-handle-criticism-and-how-to-1679777243>
 
 没有人喜欢被人说自己很差劲，但这就是我们大多数人在受到批评时的感受。然而，并不是所有人都以同样的方式对待批评。有些人瞬间就知道这不是针对个人的，有些人是防御性的。以下是不同的人是如何处理的，以及你自己在收到批评时可以做些什么。
 

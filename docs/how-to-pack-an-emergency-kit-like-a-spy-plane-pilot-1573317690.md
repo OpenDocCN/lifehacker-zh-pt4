@@ -1,6 +1,6 @@
 # 如何像间谍飞机飞行员一样打包应急包
 
-> 原文:[https://life hacker . com/how-to-pack a-emergency-kit-like-a-spy-plant-pilot-1573317690](https://lifehacker.com/how-to-pack-an-emergency-kit-like-a-spy-plane-pilot-1573317690)
+> 原文：<https://lifehacker.com/how-to-pack-an-emergency-kit-like-a-spy-plane-pilot-1573317690>
 
 SR-71 黑鸟 是历史上最著名的间谍飞机之一，这是有充分理由的。然而，当黑鸟飞行员起飞时，他们必须准备好弹射并在一些相当恶劣、荒凉的环境中着陆。这里有一个小细节，关于他们在应急包里装了什么，以及你应该在你的包里装些什么。
 

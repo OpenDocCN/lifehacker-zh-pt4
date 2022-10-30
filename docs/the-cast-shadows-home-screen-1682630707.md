@@ -1,6 +1,6 @@
 # 投影主屏幕
 
-> 原文:[https://life hacker . com/the-cast-shadows-home-screen-1682630707](https://lifehacker.com/the-cast-shadows-home-screen-1682630707)
+> 原文：<https://lifehacker.com/the-cast-shadows-home-screen-1682630707>
 
 虽然南方公园可能已经走在了彩纸设计的前沿，但世界其他地方已经开始迎头赶上。今天的设计特点是现代，平面的外观，高对比度的颜色和大量的阴影。
 

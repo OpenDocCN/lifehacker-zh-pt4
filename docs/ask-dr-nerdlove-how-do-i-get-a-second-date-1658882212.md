@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:我如何获得第二次约会？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-get-a second-date-1658882212](https://kotaku.com/ask-dr-nerdlove-how-do-i-get-a-second-date-1658882212)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-get-a-second-date-1658882212>
 
 你好，互联网！欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个可以告诉你如何在陷入孤独的狄拉克之海之前降低 at 场的约会建议专栏。
 

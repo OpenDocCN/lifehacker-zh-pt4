@@ -1,6 +1,6 @@
 # 如何不被你遇到的第一个律师骗了
 
-> 原文:[https://jalopnik . com/how-not-to-get-rip-off-the-first-lawyer-you-mee-1689942744](https://jalopnik.com/how-not-to-get-ripped-off-by-the-first-attorney-you-mee-1689942744)
+> 原文：<https://jalopnik.com/how-not-to-get-ripped-off-by-the-first-attorney-you-mee-1689942744>
 
 我不止一次遇到过这种情况:一位消费者被敲竹杠后来找我。不仅仅是通过购买一辆有缺陷的汽车，还通过支付律师进行初步咨询。在我的领域(柠檬法)和其他几个领域，唯一收取初步咨询费的律师是那些不知道自己在做什么的人。
 

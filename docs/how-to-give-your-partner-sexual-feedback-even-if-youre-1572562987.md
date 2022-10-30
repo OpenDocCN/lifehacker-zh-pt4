@@ -1,6 +1,6 @@
 # 如何给你的伴侣性反馈，即使你很害羞
 
-> 原文:[https://life hacker . com/how-to-give-your-partner-sex-feedback-even-if-you-1572562987](https://lifehacker.com/how-to-give-your-partner-sexual-feedback-even-if-youre-1572562987)
+> 原文：<https://lifehacker.com/how-to-give-your-partner-sexual-feedback-even-if-youre-1572562987>
 
 即使你已经和你的伴侣在一起很长时间了，在做爱时试图表达你喜欢什么和不喜欢什么也会很尴尬和敏感。作为一名性治疗师，我经常被问到的一个问题是如何给予反馈，即使你对此感到害羞。
 

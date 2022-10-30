@@ -1,6 +1,6 @@
 # 全方位的三显示器工作空间
 
-> 原文:[https://life hacker . com/the-wall-to-wall-triple-monitor-workspace-1723447458](https://lifehacker.com/the-wall-to-wall-triple-monitor-workspace-1723447458)
+> 原文：<https://lifehacker.com/the-wall-to-wall-triple-monitor-workspace-1723447458>
 
 许多家庭——尤其是老房子——房间狭窄得令人尴尬。通常这些是放置工作空间的最佳位置，即使它占据了房间的整个宽度，就像上面的照片一样。
 

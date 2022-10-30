@@ -1,6 +1,6 @@
 # 当你停止锻炼时，你的身体会发生这种情况
 
-> 原文:[https://gizmodo . com/this-is-what-being-when-your-stop-exercise-1724581507](https://gizmodo.com/this-is-what-happens-to-your-body-when-you-stop-exercis-1724581507)
+> 原文：<https://gizmodo.com/this-is-what-happens-to-your-body-when-you-stop-exercis-1724581507>
 
 保持身材需要付出很多努力，这就是为什么定期锻炼很重要。但是保持活跃并不总是可能的，有时休息几天会变成更长时间...长时间的中断。当你突然停止锻炼时，你的身体会发生什么。
 

@@ -1,6 +1,6 @@
 # 如何为 Android 上的任何东西创建自定义的 Google Now 命令
 
-> 原文:[https://life hacker . com/how-to-create-custom-voice-commands-with-tasker-and-aut-1282209195](https://lifehacker.com/how-to-create-custom-voice-commands-with-tasker-and-aut-1282209195)
+> 原文：<https://lifehacker.com/how-to-create-custom-voice-commands-with-tasker-and-aut-1282209195>
 
 谷歌现在已经在 中内置了大量 [有用的语音命令。不过，多亏了 Tasker 插件 AutoVoice](https://lifehacker.com/everything-you-didnt-know-you-could-do-with-google-voi-512727229) 最近的 [更新，你现在可以创建自己的命令，直接插入 Google Now 来完成 Tasker 只用你的声音就能完成的任何事情。](http://lifehacker.com/preview/autovoice-now-lets-you-create-custom-google-now-command-1607156863)
 

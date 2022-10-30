@@ -1,6 +1,6 @@
 # 当你对自己的目标感到厌倦时，如何保持专注
 
-> 原文:[https://life hacker . com/how-to-stay-focus-when you-bored-work-on-y-1547319504](https://lifehacker.com/how-to-stay-focused-when-you-get-bored-working-toward-y-1547319504)
+> 原文：<https://lifehacker.com/how-to-stay-focused-when-you-get-bored-working-toward-y-1547319504>
 
 我们都有目标和梦想，但是很难坚持下去。每个星期，我都会听到一些人说这样的话，“我一开始是出于好意，但是我似乎不能长时间保持我的一致性。”或者，他们会说，“我在精神承受力上挣扎。我开始了，但我似乎不能坚持到底，也不能长时间保持专注。别担心。我和其他人一样对此感到内疚。
 

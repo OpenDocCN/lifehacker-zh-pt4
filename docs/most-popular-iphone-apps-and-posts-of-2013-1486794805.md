@@ -1,6 +1,6 @@
 # 2013 年最受欢迎的 iPhone 下载和帖子
 
-> 原文:[https://life hacker . com/most-popular-iphone-apps-and-post-of-2013-1486794805](https://lifehacker.com/most-popular-iphone-apps-and-posts-of-2013-1486794805)
+> 原文：<https://lifehacker.com/most-popular-iphone-apps-and-posts-of-2013-1486794805>
 
 2013 年对于苹果的 iPhone 和 iPad 来说是巨大的一年。新的硬件带来了新的软件，不管你喜不喜欢，iOS 7 改变了我们使用 iPhone 的方式。以下是今年最受欢迎的 iOS 相关帖子。
 

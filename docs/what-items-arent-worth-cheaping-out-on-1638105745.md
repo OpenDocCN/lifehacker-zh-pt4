@@ -1,6 +1,6 @@
 # 哪些物品不值得降价？
 
-> 原文:[https://life hacker . com/what-items-arent-worth-cheap-out-on-1638105745](https://lifehacker.com/what-items-arent-worth-cheaping-out-on-1638105745)
+> 原文：<https://lifehacker.com/what-items-arent-worth-cheaping-out-on-1638105745>
 
 有一点是节俭根本不值得。有时，当你试图省钱时，你会尽可能买到最便宜的产品，但几天后才发现它不能正常工作或完全坏掉了。所以，我们想知道，哪些物品值得多花一点钱？
 

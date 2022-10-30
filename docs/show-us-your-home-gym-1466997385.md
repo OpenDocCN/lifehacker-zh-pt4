@@ -1,6 +1,6 @@
 # 向我们展示你的家庭健身房
 
-> 原文:[https://lifehacker.com/show-us-your-home-gym-1466997385](https://lifehacker.com/show-us-your-home-gym-1466997385)
+> 原文：<https://lifehacker.com/show-us-your-home-gym-1466997385>
 
 家庭健身房需要空间，通常比真正健身房的会员资格要多一点额外的前期费用。但是在家里有一个健身房也意味着你锻炼计划的灵活性。我们想看看你的。
 

@@ -1,6 +1,6 @@
 # 作家的最佳资源
 
-> 原文:[https://life hacker . com/the-best-resources-for-writers-1460320170](https://lifehacker.com/the-best-resources-for-writers-1460320170)
+> 原文：<https://lifehacker.com/the-best-resources-for-writers-1460320170>
 
 这是全国小说写作月，这意味着很多人都开始写自己的书。当然，关于写作的写作几乎和写作本身一样受欢迎，阅读关于写作的写作是寻找灵感和拓展技能的好方法。
 

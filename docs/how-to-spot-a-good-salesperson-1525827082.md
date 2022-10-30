@@ -1,6 +1,6 @@
 # 如何发现优秀的销售人员
 
-> 原文:[https://jalopnik . com/how-to-spot-a good-salesperson-1525827082](https://jalopnik.com/how-to-spot-a-good-salesperson-1525827082)
+> 原文：<https://jalopnik.com/how-to-spot-a-good-salesperson-1525827082>
 
 作为一名汽车购买顾问，我和许多销售人员打过交道。大多数都很好，有些不太好。我见过的最好的推销员之一不是卖汽车的；他在土耳其库萨达西的一个集市上卖山寨钱包。
 

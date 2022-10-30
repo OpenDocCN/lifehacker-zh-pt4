@@ -1,6 +1,6 @@
 # 如何在你的越狱设备上获得 iOS 7.1 的最佳功能
 
-> 原文:[https://life hacker . com/how-to-get-IOs-7-1s-best-features-on-your-jailbreak-d-1553692308](https://lifehacker.com/how-to-get-ios-7-1s-best-features-on-your-jailbroken-d-1553692308)
+> 原文：<https://lifehacker.com/how-to-get-ios-7-1s-best-features-on-your-jailbroken-d-1553692308>
 
 iOS 7.1 [没有给 table](https://lifehacker.com/ios-7-1-is-out-with-siri-update-visual-tweaks-and-car-1540537421) 带来太多新功能，但它确实增加了一些调整和改进，使 iOS 变得更加可用。不幸的是，iOS 7.1 没有越狱，但如果你想保持你的 [越狱](http://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-5771943) 并仍然获得新功能，你只需要跟踪一些调整。
 

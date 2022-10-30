@@ -1,6 +1,6 @@
 # 如何在不更换旧台面的情况下刷新旧台面
 
-> 原文:[https://life hacker . com/five-ways-to-update-old-kitchen-counters-1629880581](https://lifehacker.com/five-ways-to-update-old-kitchen-counters-1629880581)
+> 原文：<https://lifehacker.com/five-ways-to-update-old-kitchen-counters-1629880581>
 
 旧的柜台会让厨房显得过时，但是用新的昂贵的材料代替它们并不总是一个好的选择。她有一些不太贵的方法来修补肮脏的工作台面，让你的厨房焕然一新。
 

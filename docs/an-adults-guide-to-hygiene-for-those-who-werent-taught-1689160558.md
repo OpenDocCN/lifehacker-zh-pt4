@@ -1,6 +1,6 @@
 # 成人卫生指南(给那些在成长过程中没有被教过的人)
 
-> 原文:[https://life hacker . com/an-成人-未受教育人群卫生指南-1689160558](https://lifehacker.com/an-adults-guide-to-hygiene-for-those-who-werent-taught-1689160558)
+> 原文：<https://lifehacker.com/an-adults-guide-to-hygiene-for-those-who-werent-taught-1689160558>
 
 没有教室教你基本的成长卫生。你的父母可能会尽他们所能，但令人惊讶的是，有很多人在他们的知识差距中长大成人。我们在这里帮助填补这些空白。
 

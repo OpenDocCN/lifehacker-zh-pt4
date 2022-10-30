@@ -1,6 +1,6 @@
 # 消极思维的积极力量
 
-> 原文:[https://life hacker . com/the-positive-power-of-negative-thinking-1459381519](https://lifehacker.com/the-positive-power-of-negative-thinking-1459381519)
+> 原文：<https://lifehacker.com/the-positive-power-of-negative-thinking-1459381519>
 
 如果你想实现一个主要目标，传统智慧告诉你要积极思考。想象自己做了一场完美的演讲，并吸收了观众的能量。想象一下理想的工作面试，想象一下当你得到这份工作的时候，你自己就在九霄云外。尽管这些策略听起来很有说服力，但事实证明它们往往适得其反。当我们专注于我们可能失败的原因时，我们中的许多人会更成功。
 

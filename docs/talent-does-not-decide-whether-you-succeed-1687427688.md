@@ -1,6 +1,6 @@
 # 天赋并不能决定你是否成功
 
-> 原文:[https://life hacker . com/talent-do-not-decision-you-success-1687427688](https://lifehacker.com/talent-does-not-decide-whether-you-succeed-1687427688)
+> 原文：<https://lifehacker.com/talent-does-not-decide-whether-you-succeed-1687427688>
 
 我们很容易认为自己没有——或者说不是生来就有——成功的天赋。虽然有些人可能天生在某些技能上占优势，但要在某件事上取得成功，真的要全身心投入到发展和掌握技能中去。天赋只是一个起点。
 

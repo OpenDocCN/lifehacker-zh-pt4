@@ -1,6 +1,6 @@
 # 记事本情人的日常包
 
-> 原文:[https://life hacker . com/the-notepad-lovers-daily-bag-1662671420](https://lifehacker.com/the-notepad-lovers-daily-bag-1662671420)
+> 原文：<https://lifehacker.com/the-notepad-lovers-daily-bag-1662671420>
 
 有些人喜欢做笔记，在速写本上画画，并且随时都有各种各样的日志可供他们使用。《每日邮报》的读者胡安·埃斯蒂分享了他的日记随身包，里面装满了大量的素描选项。
 

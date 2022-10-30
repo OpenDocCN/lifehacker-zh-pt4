@@ -1,6 +1,6 @@
 # 我听音乐的时候应该用均衡器吗？
 
-> 原文:[https://life hacker . com/should-I-use-an-equalizer-when-I-listen-to-music-1488713937](https://lifehacker.com/should-i-use-an-equalizer-when-i-listen-to-music-1488713937)
+> 原文：<https://lifehacker.com/should-i-use-an-equalizer-when-i-listen-to-music-1488713937>
 
 亲爱的 Lifehacker，
 我很好奇 iTunes 的均衡器设置。我应该在听音乐时打开它并使用附带的预设吗？或者我应该“按照艺术家的意图”来听吗？我有点困惑为什么它会在那里。

@@ -1,6 +1,6 @@
 # 重复利用最常见的厨房剩菜的最佳方式
 
-> 原文:[https://life hacker . com/the-best-ways-to-reuse-your-most-common-kitchen-leftove-1578427170](https://lifehacker.com/the-best-ways-to-reuse-your-most-common-kitchen-leftove-1578427170)
+> 原文：<https://lifehacker.com/the-best-ways-to-reuse-your-most-common-kitchen-leftove-1578427170>
 
 如果你请人来参加聚会，做了一顿大餐，或者你的厨房里刚好有很多剩菜剩饭，有很多方法可以利用这些东西，而不是把它们都扔掉。
 

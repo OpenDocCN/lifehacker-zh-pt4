@@ -1,6 +1,6 @@
 # 为什么职业变动没有对错之分
 
-> 原文:[https://life hacker . com/why-they-there-no-the-right-or-wrong-career-moves-1704232930](https://lifehacker.com/why-there-are-no-right-or-wrong-career-moves-1704232930)
+> 原文：<https://lifehacker.com/why-there-are-no-right-or-wrong-career-moves-1704232930>
 
 我经常遇到这样的人，他们在为自己的职业决定而挣扎，他们认为自己必须做出“正确”的决定，否则灾难肯定会迫在眉睫。"*如果我接受了这份工作，但我讨厌它，该怎么办？"他们可能会说。但这种职业道路上的对错观念是一种谬误。只有选择，每个选择都伴随着机会。* 
 

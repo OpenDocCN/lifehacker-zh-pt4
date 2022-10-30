@@ -1,6 +1,6 @@
 # 使用这些私人岛屿壁纸，将您的桌面带入天堂
 
-> 原文:[https://life hacker . com/take-your-desktop-to-paradise with these-private-island-1666360997](https://lifehacker.com/take-your-desktop-to-paradise-with-these-private-island-1666360997)
+> 原文：<https://lifehacker.com/take-your-desktop-to-paradise-with-these-private-island-1666360997>
 
 我们中的一些人厌倦了盯着雪看并打开恒温器。让我们带着这些桌面壁纸逃到属于我们自己的私人岛屿吧。
 

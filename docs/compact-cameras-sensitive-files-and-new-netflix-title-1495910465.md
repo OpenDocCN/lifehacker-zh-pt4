@@ -1,6 +1,6 @@
 # 紧凑型相机，敏感文件，和新的网飞标题
 
-> 原文:[https://life hacker . com/compact-camera-sensitive-files-and-new-网飞-title-1495910465](https://lifehacker.com/compact-cameras-sensitive-files-and-new-netflix-title-1495910465)
+> 原文：<https://lifehacker.com/compact-cameras-sensitive-files-and-new-netflix-title-1495910465>
 
 读者提供了他们的最佳技巧，为紧凑型相机建立一个 bouncer/diffuser，删除敏感文件，并保持最新的网飞发布。
 

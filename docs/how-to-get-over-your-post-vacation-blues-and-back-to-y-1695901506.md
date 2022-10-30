@@ -1,6 +1,6 @@
 # 如何克服假期后的忧郁(并回到你的日常生活中)
 
-> 原文:[https://life hacker . com/how-to-get-over-your-post-vacation-blues and-back-to-y-1695901506](https://lifehacker.com/how-to-get-over-your-post-vacation-blues-and-back-to-y-1695901506)
+> 原文：<https://lifehacker.com/how-to-get-over-your-post-vacation-blues-and-back-to-y-1695901506>
 
 当你从一个有趣的假期回来时，很难放下一切回到你的日常生活中而不感到有点沮丧。然而，你可以用你的旅行作为动力，回到你喜欢的富有成效的日常生活中。以下是如何回到日常生活*和*让你的旅行继续下去。
 

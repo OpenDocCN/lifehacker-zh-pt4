@@ -1,6 +1,6 @@
 # 为什么今年春天你会爱上越野跑
 
-> 原文:[https://life hacker . com/how-to-take-your-the-trails-for-a more-sati-1692428030](https://lifehacker.com/how-to-take-your-running-to-the-trails-for-a-more-sati-1692428030)
+> 原文：<https://lifehacker.com/how-to-take-your-running-to-the-trails-for-a-more-sati-1692428030>
 
 当你可以在树林里跑的时候，为什么要在一条无聊的老路上跑呢？那里有美丽的风景，鸟儿，还有那种胜利的跑后感觉，那种知道你从完全可能杀死你的山和熊中幸存下来的感觉。越野跑与公路跑步略有不同，但这是今年春天回归自然的好方法，甚至可能找到重新热爱跑步的方法。
 

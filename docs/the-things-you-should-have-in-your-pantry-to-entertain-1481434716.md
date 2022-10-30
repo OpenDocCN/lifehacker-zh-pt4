@@ -1,6 +1,6 @@
 # 你的餐具室里应该有随时可以享用的东西
 
-> 原文:[https://life hacker . com/the-things-you ' s-should-has-in-your-pantry-to-entertain-1481434716](https://lifehacker.com/the-things-you-should-have-in-your-pantry-to-entertain-1481434716)
+> 原文：<https://lifehacker.com/the-things-you-should-have-in-your-pantry-to-entertain-1481434716>
 
 你永远不知道什么时候会有客人。无论他们是路过的朋友还是镇上的亲戚，即兴娱乐都不是什么可怕的事情。如果你手头一直有几个订书钉，你就可以随时准备好有人来敲门，你可能想邀请他们进来一段时间，不管他们的到来是不是你计划好的。
 

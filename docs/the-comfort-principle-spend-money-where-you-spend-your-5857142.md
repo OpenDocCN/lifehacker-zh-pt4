@@ -1,6 +1,6 @@
 # 舒适原则:把钱花在该花的地方
 
-> 原文:[https://life hacker . com/the-comfort-principle-spend-money-where-you-spend-your-5857142](https://lifehacker.com/the-comfort-principle-spend-money-where-you-spend-your-5857142)
+> 原文：<https://lifehacker.com/the-comfort-principle-spend-money-where-you-spend-your-5857142>
 
 Lifehacker 的主要任务之一就是帮你省钱。但是一旦你存了钱，你应该把它花在哪里，以最大限度地利用你所花的钱——甚至是你的幸福？要回答这个问题，只要看看你一天都做了什么，按比例分配，并相应地分配钱。我称之为舒适原则。
 

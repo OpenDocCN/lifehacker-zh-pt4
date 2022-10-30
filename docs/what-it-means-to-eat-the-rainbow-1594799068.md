@@ -1,6 +1,6 @@
 # “吃掉彩虹”意味着什么
 
-> 原文:[https://life hacker . com/what-it-mean-to-eat-the-rainbow-1594799068](https://lifehacker.com/what-it-means-to-eat-the-rainbow-1594799068)
+> 原文：<https://lifehacker.com/what-it-means-to-eat-the-rainbow-1594799068>
 
 健康饮食倡导者经常告诉人们“吃彩虹”这是一种简单的方式来提醒你，饮食中的各种水果和蔬菜会给你带来所需的维生素和矿物质。这也说明了一个事实，那就是只要看着食物，你就能对它有很多了解。这是它的含义和工作原理。
 

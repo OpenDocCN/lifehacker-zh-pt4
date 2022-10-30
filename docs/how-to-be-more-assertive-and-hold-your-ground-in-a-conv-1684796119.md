@@ -1,6 +1,6 @@
 # 如何在谈话中更加自信并坚持立场
 
-> 原文:[https://life hacker . com/how-to-be-more-assertive-and-hold-your-ground-in-a-a-conv-1684796119](https://lifehacker.com/how-to-be-more-assertive-and-hold-your-ground-in-a-conv-1684796119)
+> 原文：<https://lifehacker.com/how-to-be-more-assertive-and-hold-your-ground-in-a-conv-1684796119>
 
 当你不觉得自己在对话中被听到的时候会很难受，但是当有人确切地听到你在说什么并试图压倒你的时候会更糟糕。这里有一些建议可以帮助你在谈话中坚持立场并获得应有的尊重。
 

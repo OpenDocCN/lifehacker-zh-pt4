@@ -1,6 +1,6 @@
 # 转 Linux 有多难？
 
-> 原文:[https://life hacker . com/how-hard-it-to-switch-Linux-1462916866](https://lifehacker.com/how-hard-is-it-to-switch-to-linux-1462916866)
+> 原文：<https://lifehacker.com/how-hard-is-it-to-switch-to-linux-1462916866>
 
 亲爱的 Lifehacker，我已经看了你的[Linux](https://gizmodo.com/getting-started-with-linux-the-complete-guide-5778882)入门完全指南，但是我还是有点紧张。你说了很多 Linux 的优点，但是缺点呢？我担心没有合适的应用程序，或者不得不经常修复坏掉的东西。是我杞人忧天，还是真的有担忧？
 

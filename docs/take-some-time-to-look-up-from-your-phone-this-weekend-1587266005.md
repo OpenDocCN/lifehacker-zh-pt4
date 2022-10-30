@@ -1,6 +1,6 @@
 # 这个周末花些时间从手机上抬起头来
 
-> 原文:[https://life hacker . com/take-some-time-to-look-up-from-your-phone-this-weekend-1587266005](https://lifehacker.com/take-some-time-to-look-up-from-your-phone-this-weekend-1587266005)
+> 原文：<https://lifehacker.com/take-some-time-to-look-up-from-your-phone-this-weekend-1587266005>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Z7dLU6fk9QY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Z7dLU6fk9QY&start=0) 
 

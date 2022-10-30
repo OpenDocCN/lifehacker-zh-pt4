@@ -1,6 +1,6 @@
 # 五本最佳初学者食谱
 
-> 原文:[https://life hacker . com/five-best-beginner-cookbooks-1709415751](https://lifehacker.com/five-best-beginner-cookbooks-1709415751)
+> 原文：<https://lifehacker.com/five-best-beginner-cookbooks-1709415751>
 
 无论你是厨房老手，还是试图更多地在家烹饪，一本能教你基础知识并让你熟悉一些好食谱的好食谱都是非常有价值的。本周，我们将根据你们的提名选出五位最佳选手。
 

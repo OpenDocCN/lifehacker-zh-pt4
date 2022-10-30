@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名系谱学家我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-a-a-gene logist-1711464950](https://lifehacker.com/career-spotlight-what-i-do-as-a-genealogist-1711464950)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-genealogist-1711464950>
 
 由于有了在线数据库，研究你的家族史变得比以往任何时候都容易，但仍然需要专业的技巧来收集各种各样的文件，详细说明我们的过去，并阐明我们所有人之前的精心制作的家谱。
 

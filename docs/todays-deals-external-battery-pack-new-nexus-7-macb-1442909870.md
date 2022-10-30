@@ -1,6 +1,6 @@
 # 今天的交易:外部电池组，新的 Nexus 7，MacBook Air
 
-> 原文:[https://life hacker . com/todays-deals-external-battery-pack-new-nexus-7-MAC b-1442909870](https://lifehacker.com/todays-deals-external-battery-pack-new-nexus-7-macb-1442909870)
+> 原文：<https://lifehacker.com/todays-deals-external-battery-pack-new-nexus-7-macb-1442909870>
 
 无论你手机的电池寿命有多长，总有一天会不够用。外部 USB 电池组可以弥补这一差异，Anker 的这款广受好评的设备今天在亚马逊上非常便宜。在结账时使用促销代码 **SLIM2AST** 将价格降到 20 美元。[亚马逊](http://amzn.to/16RLD7O)
 

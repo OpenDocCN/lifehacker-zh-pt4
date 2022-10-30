@@ -1,6 +1,6 @@
 # 升职后你应该做的三件违反直觉的事
 
-> 原文:[https://life hacker . com/three-counter-intuitive-things-you-should-do-after-getti-1699522611](https://lifehacker.com/three-counterintuitive-things-you-should-do-after-getti-1699522611)
+> 原文：<https://lifehacker.com/three-counterintuitive-things-you-should-do-after-getti-1699522611>
 
 你刚刚发现你得到了晋升，对你的新职责感到极度兴奋和极度恐惧。你认为你有这个能力，你知道别人相信你。但是在晋升之后，你需要评估为了在新的职位上取得成功你需要做出的改变。
 

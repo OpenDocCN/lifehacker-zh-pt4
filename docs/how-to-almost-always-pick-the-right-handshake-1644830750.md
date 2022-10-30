@@ -1,6 +1,6 @@
 # 如何(几乎总是)选择正确的握手方式
 
-> 原文:[https://life hacker . com/how-to-almost-pick-the-right-handshake-1644830750](https://lifehacker.com/how-to-almost-always-pick-the-right-handshake-1644830750)
+> 原文：<https://lifehacker.com/how-to-almost-always-pick-the-right-handshake-1644830750>
 
 尴尬的握手。这种事经常发生。从 [史努比狗狗和比尔·马厄](http://imgur.com/nPsQa20) 到 [姚明和他的整个家族](https://www.youtube.com/watch?v=djMBIaqlY1Q) ，似乎无人能幸免。就连 [奥巴马总统](http://www.youtube.com/watch?v=Miu_Kq_QchQ) 也难逃其咎。为什么看起来如此简单的事情感觉如此复杂？
 

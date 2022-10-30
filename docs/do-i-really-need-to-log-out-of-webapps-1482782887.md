@@ -1,6 +1,6 @@
 # 我真的需要注销 Webapps 吗？
 
-> 原文:[https://life hacker . com/do-I-really-need-to-log-out-of-web apps-1482782887](https://lifehacker.com/do-i-really-need-to-log-out-of-webapps-1482782887)
+> 原文：<https://lifehacker.com/do-i-really-need-to-log-out-of-webapps-1482782887>
 
 如果你在公共电脑上查看脸书，关闭标签够好了吗？如果你在朋友的 iPad 上查看你的银行余额呢？敏感信息在线上。 [*栈交换*](http://superuser.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=security-96) *的信息安全专家在这里帮你保持安全。*
 

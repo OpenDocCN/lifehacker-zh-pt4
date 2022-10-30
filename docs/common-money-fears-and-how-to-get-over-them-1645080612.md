@@ -1,6 +1,6 @@
 # 常见的金钱恐惧及其克服方法
 
-> 原文:[https://life hacker . com/common-money-fears-and-how-to-get-over-them-1645080612](https://lifehacker.com/common-money-fears-and-how-to-get-over-them-1645080612)
+> 原文：<https://lifehacker.com/common-money-fears-and-how-to-get-over-them-1645080612>
 
 如果你陷入了夜间金钱担忧的怪圈，那么还有希望——对你的睡眠和财务都有好处。我们找出了困扰我们睡眠的六种最常见的财务恐惧，然后请心理学家和 CFP 帮助我们深入了解这些担忧背后的真正原因，以及如何克服它们。
 

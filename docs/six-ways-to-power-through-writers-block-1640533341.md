@@ -1,6 +1,6 @@
 # 突破写作瓶颈的六种方法
 
-> 原文:[https://life hacker . com/six-way-to-power-through-writers-block-1640533341](https://lifehacker.com/six-ways-to-power-through-writers-block-1640533341)
+> 原文：<https://lifehacker.com/six-ways-to-power-through-writers-block-1640533341>
 
 文思枯竭是所有想动笔的人的祸根。无论是你的想法、动机，还是仅仅是你的大脑造成的，这里有一些打破这种障碍的技巧。
 

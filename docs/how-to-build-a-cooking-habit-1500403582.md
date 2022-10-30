@@ -1,6 +1,6 @@
 # 如何把在家做饭变成一种习惯
 
-> 原文:[https://life hacker . com/how-to-build-a-cooking-habit-1500403582](https://lifehacker.com/how-to-build-a-cooking-habit-1500403582)
+> 原文：<https://lifehacker.com/how-to-build-a-cooking-habit-1500403582>
 
 你有没有说过“我真的应该学学怎么做饭”但还是无法让自己去做？你并不孤单。数百万人一直在同一个问题作斗争。
 

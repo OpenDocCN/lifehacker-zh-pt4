@@ -1,6 +1,6 @@
 # 为什么网址里充斥着那么多垃圾字符？
 
-> 原文:[https://gizmodo . com/why-are-URLs-full-of-garbage-characters-1719538363](https://gizmodo.com/why-are-urls-full-of-garbage-characters-1719538363)
+> 原文：<https://gizmodo.com/why-are-urls-full-of-garbage-characters-1719538363>
 
 #?&%!为什么有些网址看起来像漫画书里的脏话？我们有答案了。
 

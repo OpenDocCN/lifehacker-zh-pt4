@@ -1,6 +1,6 @@
 # 谷歌的 Nexus 6 超级手机来了，简直是个怪物
 
-> 原文:[https://gizmodo . com/Google s-nexus-6-super phone-is-here-and-its-a-monster-1646581919](https://gizmodo.com/googles-nexus-6-superphone-is-here-and-its-a-monster-1646581919)
+> 原文：<https://gizmodo.com/googles-nexus-6-superphone-is-here-and-its-a-monster-1646581919>
 
 千呼万唤的( [和传闻已久的](http://gizmodo.com/nexus-6-rumor-roundup-everything-we-think-we-know-1640839980) ) Nexus 6，6 英寸(技术上 5.96)的怪兽平板手机， [终于，正式在此](http://www.google.com/nexus/6/) 。Nexus 6 与其之前的前辈一样，将是世界上第一款搭载安卓新操作系统 [Lollipop](https://gizmodo.com/android-lollipop-more-than-just-material-design-1646643103) 的设备。这是对安卓手机应该是什么样子的最纯粹的想象。显然 Android 手机应该是巨大的。
 

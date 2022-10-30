@@ -1,6 +1,6 @@
 # 预订廉价旅行的最佳网站是哪里？
 
-> 原文:[https://life hacker . com/whats-the-best-site-to-book-price-travel-1713752570](https://lifehacker.com/whats-the-best-site-to-book-cheap-travel-1713752570)
+> 原文：<https://lifehacker.com/whats-the-best-site-to-book-cheap-travel-1713752570>
 
 逃亡季节正式到来，趁 [我们竭诚推荐你抓住机会逃离](https://lifehacker.com/stop-working-so-much-over-summer-break-1713606083) ，你不必倾家荡产。本周，我们将寻找你可以预订火车、汽车、飞机或任何你选择的东西的最佳网站——价格合理。
 

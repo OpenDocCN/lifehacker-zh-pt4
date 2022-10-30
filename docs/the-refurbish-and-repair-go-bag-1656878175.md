@@ -1,6 +1,6 @@
 # 翻新和维修旅行包
 
-> 原文:[https://life hacker . com/the-refush-and-repair-go-bag-1656878175](https://lifehacker.com/the-refurbish-and-repair-go-bag-1656878175)
+> 原文：<https://lifehacker.com/the-refurbish-and-repair-go-bag-1656878175>
 
 通常情况下，少即是多，有时你只需要一些工具就能完成工作。Lifehacker reader facevalue83 翻新和维修捐赠的电脑，下面是他们包里的东西。
 

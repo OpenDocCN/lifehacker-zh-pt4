@@ -1,6 +1,6 @@
 # 如何读懂同事的个性，以便更好地合作
 
-> 原文:[https://life hacker . com/how-to-read-your-collaborates-personalities-for-better-col-1700511598](https://lifehacker.com/how-to-read-your-coworkers-personalities-for-better-col-1700511598)
+> 原文：<https://lifehacker.com/how-to-read-your-coworkers-personalities-for-better-col-1700511598>
 
 性格是工作场所的一个主要因素——不仅要了解你自己的性格如何影响你的行为和决策，还要了解与你交往的人的性格如何影响他们的行为以及你与他们的关系。但我们中的一些人比其他人更擅长阅读和对人格做出反应。
 

@@ -1,6 +1,6 @@
 # 小小的 Tardis 桌面
 
-> 原文:[https://lifehacker.com/the-whovian-desktop-1570032649](https://lifehacker.com/the-whovian-desktop-1570032649)
+> 原文：<https://lifehacker.com/the-whovian-desktop-1570032649>
 
 读者我们真的不能责怪他。他是这样设计的。
 

@@ -1,6 +1,6 @@
 # 打包高效有序行李箱的五种最佳方式
 
-> 原文:[https://life hacker . com/the-five-best-ways-to-pack-a-efficient-and-organized-s-1479430595](https://lifehacker.com/the-five-best-ways-to-pack-an-efficient-and-organized-s-1479430595)
+> 原文：<https://lifehacker.com/the-five-best-ways-to-pack-an-efficient-and-organized-s-1479430595>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-OjDwqwFjTXA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-OjDwqwFjTXA&start=0) 
 

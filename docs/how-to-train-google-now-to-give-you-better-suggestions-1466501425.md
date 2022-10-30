@@ -1,6 +1,6 @@
 # 如何训练 Google Now 给你更好的建议
 
-> 原文:[https://life hacker . com/how-to-train-Google-now-to-give-you-better-suggestions-1466501425](https://lifehacker.com/how-to-train-google-now-to-give-you-better-suggestions-1466501425)
+> 原文：<https://lifehacker.com/how-to-train-google-now-to-give-you-better-suggestions-1466501425>
 
 Google Now 很棒，但正如定制爱好者(像我们一样)可能期望的那样，它并不完全是调整的最佳选择——最近的 [更新](https://lifehacker.com/google-search-adds-recurring-reminders-conversational-1464201420) 使它更不适合。然而，你可以做很多事情来教会 Google Now 你喜欢和感兴趣的东西。
 

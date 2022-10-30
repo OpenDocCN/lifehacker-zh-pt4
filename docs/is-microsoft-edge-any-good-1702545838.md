@@ -1,6 +1,6 @@
 # 微软 Edge 有什么好的吗？
 
-> 原文:[https://life hacker . com/is-Microsoft-edge-any-good-1702545838](https://lifehacker.com/is-microsoft-edge-any-good-1702545838)
+> 原文：<https://lifehacker.com/is-microsoft-edge-any-good-1702545838>
 
 亲爱的 Lifehacker，
 听说微软要发布一款搭载 Windows 10 的新浏览器。有什么新鲜事？我应该用它而不是 Chrome 或 Firefox 吗？或者只是一个新的网络浏览器？

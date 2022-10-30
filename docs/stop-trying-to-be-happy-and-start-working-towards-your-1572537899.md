@@ -1,6 +1,6 @@
 # 不要试图快乐，开始朝着理想的自己努力吧
 
-> 原文:[https://life hacker . com/stop-trying-to-happy-and-start-working-on-your-1572537899](https://lifehacker.com/stop-trying-to-be-happy-and-start-working-towards-your-1572537899)
+> 原文：<https://lifehacker.com/stop-trying-to-be-happy-and-start-working-towards-your-1572537899>
 
 如果你不得不试着变酷，那你永远也不会变酷。如果你不得不努力快乐，那么你永远不会快乐。幸福，像其他情感一样，不是你获得的，而是你拥有的。是对你的目标和理想自我的长期追求给了你成就感。
 

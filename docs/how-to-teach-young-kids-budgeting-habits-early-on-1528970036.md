@@ -1,6 +1,6 @@
 # 如何尽早教会孩子预算的习惯
 
-> 原文:[https://life hacker . com/how-to-teach-young-kids-budgeting-habits-early-on-1528970036](https://lifehacker.com/how-to-teach-young-kids-budgeting-habits-early-on-1528970036)
+> 原文：<https://lifehacker.com/how-to-teach-young-kids-budgeting-habits-early-on-1528970036>
 
 教你的孩子早点在预算内工作会给他们带来很大的回报。即使在很小的时候，孩子们就已经准备好接受基本的想法，随着年龄的增长，将他们纳入你自己的预算计划有助于他们从一开始就养成良好的习惯。
 

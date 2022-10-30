@@ -1,6 +1,6 @@
 # 揭开 Windows 黑暗角落的神秘面纱:注册表、dll 等等
 
-> 原文:[https://life hacker . com/de-神秘化 windows-the-dark-corners-the-registry-5880876](https://lifehacker.com/de-mystifying-the-dark-corners-of-windows-the-registry-5880876)
+> 原文：<https://lifehacker.com/de-mystifying-the-dark-corners-of-windows-the-registry-5880876>
 
 如果你的 Windows 印章扩展到任何能力以外的新手，你毫无疑问遇到了永远神秘的 Windows 注册表，DLL 文件，用户帐户控制，和其他工具看似黑暗和神秘的力量。在这里，我们将解释一些 Windows 最令人困惑的特性，这样当你去编辑它们时，你就能确切地知道发生了什么。
 

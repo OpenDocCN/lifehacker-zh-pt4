@@ -1,6 +1,6 @@
 # 利用群众的智慧，选出最棒的梦幻足球队
 
-> 原文:[https://life hacker . com/use-the-wisdom of-crowds-to-draft-the-best-fantasy-foot-1617837803](https://lifehacker.com/use-the-wisdom-of-crowds-to-draft-the-best-fantasy-foot-1617837803)
+> 原文：<https://lifehacker.com/use-the-wisdom-of-crowds-to-draft-the-best-fantasy-foot-1617837803>
 
 又到了一年中的这个时候——梦幻足球迷们开始挑选选秀权。但是，与其依赖盲目的直觉，不如利用群体的智慧，几乎每次都能让你的选择凌驾于专家之上。
 

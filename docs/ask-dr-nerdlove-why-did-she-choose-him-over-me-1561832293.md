@@ -1,6 +1,6 @@
 # 问问 Nerdlove 博士:为什么她选择了他而不是我？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-why-she-choose-him-over-me-1561832293](https://kotaku.com/ask-dr-nerdlove-why-did-she-choose-him-over-me-1561832293)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-why-did-she-choose-him-over-me-1561832293>
 
 大家好吗？欢迎来到最新一期的 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是唯一一个了解傲娇和 Yandere 之间的区别以及为什么你应该逃离他们的约会建议专栏。
 

@@ -1,6 +1,6 @@
 # 适合各种写作的最佳应用
 
-> 原文:[https://life hacker . com/the-best-apps-for-any-kind-of-writing-1563998071](https://lifehacker.com/the-best-apps-for-any-kind-of-writing-1563998071)
+> 原文：<https://lifehacker.com/the-best-apps-for-any-kind-of-writing-1563998071>
 
 写作是一项非常个人化的实践，因此你有一百万个专注于写作的应用程序可供选择。从占据整个屏幕的无干扰应用程序到像 Microsoft Word 这样功能丰富的主要应用程序，我们整理了一份指南来帮助您选择适合您的写作软件。
 

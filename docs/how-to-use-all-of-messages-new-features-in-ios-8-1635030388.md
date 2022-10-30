@@ -1,6 +1,6 @@
 # 如何使用 iOS 8 中“信息”的所有新功能
 
-> 原文:[https://life hacker . com/how-to-use-all-of-messages-new-features-in-IOs-8-1635030388](https://lifehacker.com/how-to-use-all-of-messages-new-features-in-ios-8-1635030388)
+> 原文：<https://lifehacker.com/how-to-use-all-of-messages-new-features-in-ios-8-1635030388>
 
 iOS 8 中令人惊讶的改革之一是消息。苹果公司改变了大量的东西，给信息增加了一些新功能，使其使用起来更加舒适。这是你需要知道的一切。
 

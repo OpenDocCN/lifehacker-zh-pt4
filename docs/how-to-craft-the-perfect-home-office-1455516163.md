@@ -1,6 +1,6 @@
 # 如何打造完美的家庭办公室
 
-> 原文:[https://life hacker . com/how-to-craft-the-perfect-home-office-1455516163](https://lifehacker.com/how-to-craft-the-perfect-home-office-1455516163)
+> 原文：<https://lifehacker.com/how-to-craft-the-perfect-home-office-1455516163>
 
 无论你是全职在家工作还是加班加点，家庭办公室都是不错的选择。任何人都可以在房间里放一张桌子，但如果你想要一个好的布置，你需要知道一些策略来获得最佳的布置，并避免可能影响你工作效率的常见陷阱。
 

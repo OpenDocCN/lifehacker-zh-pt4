@@ -1,6 +1,6 @@
 # 问专家:关于创造完美的演示文稿
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-creating-the-perfect-presentat-1615697626](https://lifehacker.com/ask-an-expert-all-about-creating-the-perfect-presentat-1615697626)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-creating-the-perfect-presentat-1615697626>
 
 你如何准备一个有意义的演讲，而不会让你的听众厌烦到流泪？您应该在幻灯片中包含每一条信息，还是只包含一些有趣的剪贴画？这里回答那些问题的是 [南希](http://www.duarte.com/)杜阿尔特。
 

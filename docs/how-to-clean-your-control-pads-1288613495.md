@@ -1,6 +1,6 @@
 # 如何清洁你的控制垫
 
-> 原文:[https://kotaku . com/如何清洁控制面板-1288613495](https://kotaku.com/how-to-clean-your-control-pads-1288613495)
+> 原文：<https://kotaku.com/how-to-clean-your-control-pads-1288613495>
 
 我知道你用控制垫，我也知道你从来不清理。没人知道。这很恶心，所以我来这里试着说服你改变你恶心的方式。
 

@@ -1,6 +1,6 @@
 # 机器式工作日的三步替代方案
 
-> 原文:[https://life hacker . com/a-3-step-alternative-to-a-machine-like-work day-1465085719](https://lifehacker.com/a-3-step-alternative-to-a-machine-like-workday-1465085719)
+> 原文：<https://lifehacker.com/a-3-step-alternative-to-a-machine-like-workday-1465085719>
 
 人类不是机器。这是在陈述显而易见的事实，但这一显而易见的事实似乎还没有被理解。我们组织我们的工作日，就像我们是机器一样，即使回到家也从不关机。这些工作习惯是错误的、无益的、不健康的。
 

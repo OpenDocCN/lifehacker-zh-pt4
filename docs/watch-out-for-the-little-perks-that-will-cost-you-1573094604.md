@@ -1,6 +1,6 @@
 # 小心那些会让你付出代价的小福利
 
-> 原文:[https://life hacker . com/当心那些会让你付出代价的小好处 1573094604](https://lifehacker.com/watch-out-for-the-little-perks-that-will-cost-you-1573094604)
+> 原文：<https://lifehacker.com/watch-out-for-the-little-perks-that-will-cost-you-1573094604>
 
 你知道新车的味道吗？这增加了购买一辆全新汽车的愉快和兴奋的体验。但是像气味这样的东西可能不值得这么多钱。我们经常在我们并不真正需要的功能上花钱，在开支票之前应该停下来想一想。
 

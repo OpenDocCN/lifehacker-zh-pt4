@@ -1,6 +1,6 @@
 # 当你在家工作时，如何克服惰性，多出去走走
 
-> 原文:[https://life hacker . com/how-to-beat-inertia-and-get-frequency-when-you-wor-1655128954](https://lifehacker.com/how-to-beat-inertia-and-get-out-more-often-when-you-wor-1655128954)
+> 原文：<https://lifehacker.com/how-to-beat-inertia-and-get-out-more-often-when-you-wor-1655128954>
 
 在家工作很棒，但有时感觉像是不自觉地被关在家里。你整天坐在家里，只是为了整晚呆在家里——你呆在家里的时间越多，惯性就越让你不愿离开房子。以下是如何摆脱这种困境的方法。
 

@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:我担心我的女朋友实际上并不存在
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-im-worried-my-friend-first-actu-1630640756](https://kotaku.com/ask-dr-nerdlove-im-worried-my-girlfriend-doesnt-actu-1630640756)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-im-worried-my-girlfriend-doesnt-actu-1630640756>
 
 你好，互联网！欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个知道老杰克伯顿在这种时候总是说什么的约会建议专栏。
 

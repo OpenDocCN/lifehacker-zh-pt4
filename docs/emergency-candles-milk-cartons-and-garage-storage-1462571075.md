@@ -1,6 +1,6 @@
 # 应急蜡烛、牛奶盒和车库储存
 
-> 原文:[https://life hacker . com/emergency-candles-milk-cartos-and-garage-storage-1462571075](https://lifehacker.com/emergency-candles-milk-cartons-and-garage-storage-1462571075)
+> 原文：<https://lifehacker.com/emergency-candles-milk-cartons-and-garage-storage-1462571075>
 
 读者们提供了制作即兴蜡烛、用吸管喝牛奶和制作廉价车库货架的最佳技巧。
 

@@ -1,6 +1,6 @@
 # 如何一个人生活
 
-> 原文:[https://deadspin.com/how-to-live-alone-1697496877](https://deadspin.com/how-to-live-alone-1697496877)
+> 原文：<https://deadspin.com/how-to-live-alone-1697496877>
 
 去年年底，在我 30 多年的室内生活中，我第一次有了自己的空间。没有父母，没有室友，没有女朋友分享这个空间——只有我自己，以及我每天晚上回家时，都是空荡荡的公寓。这是美好的，自由的，但也可能是艰难和孤独的。不需要这样。
 

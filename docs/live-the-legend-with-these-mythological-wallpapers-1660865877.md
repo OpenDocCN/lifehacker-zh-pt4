@@ -1,6 +1,6 @@
 # 用这些神话壁纸演绎传奇
 
-> 原文:[https://life hacker . com/live-the-legend-with-these-mythological-wallpapers-1660865877](https://lifehacker.com/live-the-legend-with-these-mythological-wallpapers-1660865877)
+> 原文：<https://lifehacker.com/live-the-legend-with-these-mythological-wallpapers-1660865877>
 
 没有什么比一个好的神话更能激发想象力了。今天的壁纸调用历史上最伟大的故事的力量，把昔日的神话带到你的桌面上。
 

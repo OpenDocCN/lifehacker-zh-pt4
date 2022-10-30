@@ -1,6 +1,6 @@
 # 我怎样才能让我的家庭更有条理？
 
-> 原文:[https://life hacker . com/how-can-I-get-my-family-more-organized-1536448858](https://lifehacker.com/how-can-i-get-my-family-more-organized-1536448858)
+> 原文：<https://lifehacker.com/how-can-i-get-my-family-more-organized-1536448858>
 
 亲爱的生活黑客，我认为自己是一个非常有条理的人。我的家人呢？没有那么多。这并不是说我们完全失去了控制或什么，但有了三个孩子，有很多活动，混乱比比皆是，学校作业总是一个麻烦。我能做些什么来让我们更有组织性，更协调一致？
 

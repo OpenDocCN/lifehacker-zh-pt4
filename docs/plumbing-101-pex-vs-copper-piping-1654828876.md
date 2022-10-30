@@ -1,6 +1,6 @@
 # 管道 101: PEX 与铜管
 
-> 原文:[https://life hacker . com/plumbing-101-PEX-vs-copper-piping-1654828876](https://lifehacker.com/plumbing-101-pex-vs-copper-piping-1654828876)
+> 原文：<https://lifehacker.com/plumbing-101-pex-vs-copper-piping-1654828876>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-B42VSzmgOp4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-B42VSzmgOp4&start=0) 
 

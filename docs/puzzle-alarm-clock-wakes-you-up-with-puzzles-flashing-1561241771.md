@@ -1,6 +1,6 @@
 # 拼图闹钟用拼图、闪光、邪恶叫醒你
 
-> 原文:[https://life hacker . com/puzzle-alarm-clock-wake-you-up-with-puzzles-flash-1561241771](https://lifehacker.com/puzzle-alarm-clock-wakes-you-up-with-puzzles-flashing-1561241771)
+> 原文：<https://lifehacker.com/puzzle-alarm-clock-wakes-you-up-with-puzzles-flashing-1561241771>
 
 安卓:我们中的一些人需要有人踢一下裤子才能起床。如果你在期待 [醒来后有愉快的事情](http://lifehacker.com/how-can-i-wake-up-to-something-pleasant-instead-of-horr-1154292955) ，拼图闹钟对你来说是完全错误的。然而，如果你想在每次小睡时被谜题、数学、闪光灯和 1 美元的费用唤醒，那你就来对地方了。
 

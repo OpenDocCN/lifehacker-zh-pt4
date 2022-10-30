@@ -1,6 +1,6 @@
 # 什么时候买两台电脑比买一台便宜
 
-> 原文:[https://life hacker . com/when-buying-two-computers-be-buying-one-5950321](https://lifehacker.com/when-buying-two-computers-is-cheaper-than-buying-one-5950321)
+> 原文：<https://lifehacker.com/when-buying-two-computers-is-cheaper-than-buying-one-5950321>
 
 如今，你可以买到一些非常强大的笔记本电脑，许多人很快就会利用像 [MacBook Pro](http://store.apple.com/us/browse/home/shop_mac/family/macbook_pro) 这样的野兽或像华硕 G55VW 这样的大型游戏笔记本电脑。然而，你可能没有意识到，买一台功能强大的台式机和一台更便携的笔记本电脑可能会更便宜。原因如下。
 

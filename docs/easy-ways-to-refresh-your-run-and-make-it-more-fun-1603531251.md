@@ -1,6 +1,6 @@
 # 轻松刷新跑步记录，让跑步变得更有趣
 
-> 原文:[https://life hacker . com/easy-ways-to-refresh-your-run-and-make-it-more-fun-1603531251](https://lifehacker.com/easy-ways-to-refresh-your-run-and-make-it-more-fun-1603531251)
+> 原文：<https://lifehacker.com/easy-ways-to-refresh-your-run-and-make-it-more-fun-1603531251>
 
 跑步是你能得到的最好的有氧运动之一。然而，一遍又一遍地做同样的事情也会变得重复和无聊。无论你是经验丰富的跑步者，跑步新手，还是正在寻找开始跑步的理由，这些建议都可以让你站起来。
 

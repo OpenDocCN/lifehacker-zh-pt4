@@ -1,6 +1,6 @@
 # 翻新电子产品的最佳品牌
 
-> 原文:[https://life hacker . com/the-top-brands-for-refined-electronics-1550369519](https://lifehacker.com/the-top-brands-for-refurbished-electronics-1550369519)
+> 原文：<https://lifehacker.com/the-top-brands-for-refurbished-electronics-1550369519>
 
 随着每年数百万吨的电子产品被扔掉，购买翻新产品是一个更环保的选择，同时也对你的钱包有好处。除了在路边找到一台能用的 60 英寸高清电视，购买翻新的是我们知道的以绝对最低的价格买到完好如新的电子产品的最佳方式。
 

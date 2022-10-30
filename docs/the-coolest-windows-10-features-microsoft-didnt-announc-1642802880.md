@@ -1,6 +1,6 @@
 # 微软没有宣布的最酷的 Windows 10 功能
 
-> 原文:[https://life hacker . com/the-coolest-windows-10-features-Microsoft-not-anno unc-1642802880](https://lifehacker.com/the-coolest-windows-10-features-microsoft-didnt-announc-1642802880)
+> 原文：<https://lifehacker.com/the-coolest-windows-10-features-microsoft-didnt-announc-1642802880>
 
 微软上周发布了其最新版本的 Windows。虽然该公司非常乐意告诉我们关于 [和](https://lifehacker.com/all-the-new-stuff-in-windows-10-1640838152) 的一系列新功能，但他们自然漏掉了几个。以下是我们在使用新操作系统时发现的一些最好的东西。
 

@@ -1,6 +1,6 @@
 # 2013 年最受欢迎的长形体特征
 
-> 原文:[https://life hacker . com/most-popular-longform-features-of-2013-1491780262](https://lifehacker.com/most-popular-longform-features-of-2013-1491780262)
+> 原文：<https://lifehacker.com/most-popular-longform-features-of-2013-1491780262>
 
 在 Lifehacker，我们可能因我们的 [操作指南](http://bit.ly/1eRXMsG) 和 [讲解者](http://bit.ly/1ajq9fL) 而闻名，但每隔一段时间，我们就喜欢大声咆哮。或者分享一些有用的信息，但没有明确的目标。以下是我们今年推出的一些不属于任何其他类别的最佳长期功能。
 

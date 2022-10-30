@@ -1,6 +1,6 @@
 # Parallels Desktop 10 让在 Mac 上运行 Windows 变得不那么烦人
 
-> 原文:[https://gizmodo . com/parallels-desktop-10-makes-running-windows-on-a-MAC-les-1624220181](https://gizmodo.com/parallels-desktop-10-makes-running-windows-on-a-mac-les-1624220181)
+> 原文：<https://gizmodo.com/parallels-desktop-10-makes-running-windows-on-a-mac-les-1624220181>
 
 被锁定在一个软件生态系统中是等待任何热爱技术的人的残酷命运。在我们的台式机和智能手机上，我们与那些希望我们完全忠于他们的应用和服务的公司一起建造了监狱。
 

@@ -1,6 +1,6 @@
 # BitTorrent 捆绑包包含免费的书籍、音乐和电影
 
-> 原文:[https://life hacker . com/the-BitTorrent-bundle-is-packed-with-free-books-music-510392794](https://lifehacker.com/the-bittorrent-bundle-is-packed-with-free-books-music-510392794)
+> 原文：<https://lifehacker.com/the-bittorrent-bundle-is-packed-with-free-books-music-510392794>
 
 BitTorrent ( [公司](http://www.bittorrent.com/) )发布了第一个 BitTorrent 捆绑包，让你可以免费或按你想要的价格下载新发布的音乐、视频、电影、书籍等。蒂姆·费里斯的书*《4 小时厨师》*、来自卡斯科的新音乐和《美丽的灯》等等都可以在当前的捆绑包中找到。
 

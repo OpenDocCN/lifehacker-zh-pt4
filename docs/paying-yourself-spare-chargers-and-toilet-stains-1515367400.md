@@ -1,6 +1,6 @@
 # 支付自己，备用充电器，和厕所污渍
 
-> 原文:[https://life hacker . com/paying-yourself-spare-chargers-and-toilet-stains-1515367400](https://lifehacker.com/paying-yourself-spare-chargers-and-toilet-stains-1515367400)
+> 原文：<https://lifehacker.com/paying-yourself-spare-chargers-and-toilet-stains-1515367400>
 
 读者们提供了他们的最佳建议，来节省一点额外的钱，住在酒店时找到备用充电器，以及去除顽固的厕所污渍。
 

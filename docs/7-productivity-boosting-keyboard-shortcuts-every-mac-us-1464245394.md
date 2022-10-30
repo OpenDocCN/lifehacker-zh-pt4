@@ -1,6 +1,6 @@
 # 每个 Mac 用户都应该知道的 7 个提高工作效率的键盘快捷键
 
-> 原文:[https://life hacker . com/7-生产力提升-键盘快捷方式-every-mac-us-1464245394](https://lifehacker.com/7-productivity-boosting-keyboard-shortcuts-every-mac-us-1464245394)
+> 原文：<https://lifehacker.com/7-productivity-boosting-keyboard-shortcuts-every-mac-us-1464245394>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-14g053DAWw8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-14g053DAWw8&start=0) 
 

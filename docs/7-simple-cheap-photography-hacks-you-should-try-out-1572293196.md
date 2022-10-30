@@ -1,6 +1,6 @@
 # 你应该尝试的 7 个简单、便宜的摄影技巧
 
-> 原文:[https://gizmodo . com/7-simple-cheap-photography-hacks-you-should-try-out-1572293196](https://gizmodo.com/7-simple-cheap-photography-hacks-you-should-try-out-1572293196)
+> 原文：<https://gizmodo.com/7-simple-cheap-photography-hacks-you-should-try-out-1572293196>
 
  [https://gizmodo.com/embed/inset/iframe?id=youtube-video-Z3MohNj9eVo&start=0](https://gizmodo.com/embed/inset/iframe?id=youtube-video-Z3MohNj9eVo&start=0) 
 

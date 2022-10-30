@@ -1,6 +1,6 @@
 # 最好的 Linux 桌面环境是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-Linux-desktop-environment-1646862177](https://lifehacker.com/whats-the-best-linux-desktop-environment-1646862177)
+> 原文：<https://lifehacker.com/whats-the-best-linux-desktop-environment-1646862177>
 
 定制 Linux 安装的方法并不缺乏，但是最大的一个方法是 [选择你的桌面环境](https://lifehacker.com/wtf-desktop-environments-gnome-kde-and-more-explaine-5762081) 。有些发行版有一个首选版本，但是您可以随时更改它。其他人会提前问你喜欢什么。本周，我们将目光投向你的 Linux 用户——你认为哪个是最好的？
 

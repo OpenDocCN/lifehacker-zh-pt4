@@ -1,6 +1,6 @@
 # 用树莓皮制作一个动画 GIF 相框
 
-> 原文:[https://life hacker . com/make-an-animated-gif-photo-frame-with-a-raspberry-pi-1658839211](https://lifehacker.com/make-an-animated-gif-photo-frame-with-a-raspberry-pi-1658839211)
+> 原文：<https://lifehacker.com/make-an-animated-gif-photo-frame-with-a-raspberry-pi-1658839211>
 
 Raspberry Pi 非常适合各种有趣而复杂的项目。对于愚蠢的项目来说也很棒，比如我这周做的这个动画 GIF 相框。以下是如何为自己制作一个。
 

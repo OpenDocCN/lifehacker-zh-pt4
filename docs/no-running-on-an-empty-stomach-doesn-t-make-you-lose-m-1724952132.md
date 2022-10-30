@@ -1,6 +1,6 @@
 # 不，空腹跑步不会让你减掉更多体重
 
-> 原文:[https://life hacker . com/no-running-on-a-empty-not-make-you-lose-m-1724952132](https://lifehacker.com/no-running-on-an-empty-stomach-doesn-t-make-you-lose-m-1724952132)
+> 原文：<https://lifehacker.com/no-running-on-an-empty-stomach-doesn-t-make-you-lose-m-1724952132>
 
 逻辑似乎很合理:如果你一点都没吃，然后去做有氧运动，比如跑步，你的身体会消耗更多的脂肪，减轻更多的体重，对吗？虽然是的，你在活动中倾向于使用更多的脂肪，但长期禁食有氧运动本身对减肥没有额外的影响。
 

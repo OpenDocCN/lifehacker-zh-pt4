@@ -1,6 +1,6 @@
 # 2014 年最受欢迎的 Chrome 扩展和帖子
 
-> 原文:[https://life hacker . com/most-popular-chrome-extensions-and-post-of-2014-1674273297](https://lifehacker.com/most-popular-chrome-extensions-and-posts-of-2014-1674273297)
+> 原文：<https://lifehacker.com/most-popular-chrome-extensions-and-posts-of-2014-1674273297>
 
 Chrome 很快从谷歌的宠物项目一飞冲天，成为世界上最受欢迎的浏览器。以下是 Lifehacker 在 2014 年发布的一些最受欢迎的 Chrome 扩展和指南。
 

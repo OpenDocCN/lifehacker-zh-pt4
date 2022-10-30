@@ -1,6 +1,6 @@
 # 给你的财务状况一个年终调整的九种方法
 
-> 原文:[https://life hacker . com/nine-ways-to-give your finance-an-end-of-year-tune-up-1661265604](https://lifehacker.com/nine-ways-to-give-your-finances-an-end-of-year-tune-up-1661265604)
+> 原文：<https://lifehacker.com/nine-ways-to-give-your-finances-an-end-of-year-tune-up-1661265604>
 
 随着这一年的结束，是时候开始考虑最后期限了——年底前有一些财务上的最后期限要满足。这里有几个你应该在新年前做的金钱交易。
 

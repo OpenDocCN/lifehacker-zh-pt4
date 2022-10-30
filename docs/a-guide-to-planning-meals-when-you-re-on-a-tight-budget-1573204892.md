@@ -1,6 +1,6 @@
 # 当你预算紧张时，如何计划你的膳食
 
-> 原文:[https://life hacker . com/a-guide-to-planning-footprints-when-you-re-on-a-tight-budget-1573204892](https://lifehacker.com/a-guide-to-planning-meals-when-you-re-on-a-tight-budget-1573204892)
+> 原文：<https://lifehacker.com/a-guide-to-planning-meals-when-you-re-on-a-tight-budget-1573204892>
 
 饮食计划可以节省时间，但是，理想情况下，它也可以为你省钱。当你预算吃紧的时候，饮食计划会是一项艰巨的任务。如果你没有足够的杂货钱，也不知道从哪里开始，那么就用这个指南来计划预算紧张的膳食吧。
 

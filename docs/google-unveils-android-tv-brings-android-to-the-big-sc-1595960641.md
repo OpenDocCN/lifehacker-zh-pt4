@@ -1,6 +1,6 @@
 # 谷歌推出安卓电视，将安卓带到大屏幕上
 
-> 原文:[https://life hacker . com/Google-unveils-Android-TV-brings-Android-to-the-big-sc-1595960641](https://lifehacker.com/google-unveils-android-tv-brings-android-to-the-big-sc-1595960641)
+> 原文：<https://lifehacker.com/google-unveils-android-tv-brings-android-to-the-big-sc-1595960641>
 
 谷歌今天发布了 Android TV，这是一个嵌入式平台，将预装在高清电视和其他设备上，将 Android 带到大屏幕上，并允许你用 Android 手机或平板电脑控制你的大屏幕。
 

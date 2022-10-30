@@ -1,6 +1,6 @@
 # 最好的待办事项列表管理器是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-to-do-list-manager-1542661877](https://lifehacker.com/whats-the-best-to-do-list-manager-1542661877)
+> 原文：<https://lifehacker.com/whats-the-best-to-do-list-manager-1542661877>
 
 有很多工具可以帮助你跟上你的待办事项，保持有序，提高工作效率，但我们已经有一段时间没有看你最喜欢的了——事实上，这么长时间了，是时候再看看了。本周，我们想知道哪些待办应用是你的最爱。
 

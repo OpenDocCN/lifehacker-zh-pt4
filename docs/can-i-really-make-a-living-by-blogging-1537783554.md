@@ -1,6 +1,6 @@
 # 我真的可以靠写博客谋生吗？
 
-> 原文:[https://life hacker . com/can-I-really-make-a-living-blog-1537783554](https://lifehacker.com/can-i-really-make-a-living-by-blogging-1537783554)
+> 原文：<https://lifehacker.com/can-i-really-make-a-living-by-blogging-1537783554>
 
 亲爱的生活黑客，我正在考虑开一个自己的博客。我不指望它能让我变得非常富有，但是我能辞掉日常工作，仅仅靠写博客谋生的可能性有多大呢？我看到了所有这些成功的故事，但我真的能赚多少钱呢？
 

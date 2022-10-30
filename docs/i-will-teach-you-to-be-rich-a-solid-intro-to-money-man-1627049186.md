@@ -1,6 +1,6 @@
 # 我将教你变得富有:理财入门
 
-> 原文:[https://life hacker . com/I-will-teach-you-to-be-rich-a-solid-intro-to-money-man-1627049186](https://lifehacker.com/i-will-teach-you-to-be-rich-a-solid-intro-to-money-man-1627049186)
+> 原文：<https://lifehacker.com/i-will-teach-you-to-be-rich-a-solid-intro-to-money-man-1627049186>
 
 我们都有不同的人生目标，但我们大多数人可能有一个共同点:我们都想成为那种“善于理财”的人。你知道，那个在一起的男孩或女孩。拉米特·塞提的 [*我会教你变得富有*](http://www.iwillteachyoutoberich.com/book/) 也许不会让你成为百万富翁，但它会告诉你如何用最少的麻烦让你的钱井然有序。
 

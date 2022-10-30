@@ -1,6 +1,6 @@
 # 你应该每年至少访问一次的 10 大网站
 
-> 原文:[https://life hacker . com/top-10-web-sites-you-should-visit-at-you-that-you-could-visit-that-only-a-only-only-only-a-time-only 一年一次 1661658045](https://lifehacker.com/top-10-web-sites-you-should-visit-at-least-once-a-year-1661658045)
+> 原文：<https://lifehacker.com/top-10-web-sites-you-should-visit-at-least-once-a-year-1661658045>
 
 年度体检和其他我们应该定期做的事情——但不一定那么频繁——很容易被其他 364 天的事件所遗忘。不过，把这十个网站(或网站类型)放在你每年访问的日历上，你可以省钱，确保你的信息安全，否则检查你是否在轨道上。
 

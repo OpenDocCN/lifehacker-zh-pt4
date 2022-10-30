@@ -1,6 +1,6 @@
 # 五款最佳小型电脑
 
-> 原文:[https://life hacker . com/five-best-small-form-factor-PCs-1701619172](https://lifehacker.com/five-best-small-form-factor-pcs-1701619172)
+> 原文：<https://lifehacker.com/five-best-small-form-factor-pcs-1701619172>
 
 如果您正在寻找一台可以在任何地方使用、几乎可以做任何事情的计算机，小型 PC 是您的最佳选择。最好的产品提供强大的功能和便携性，做出正确的妥协，并且价格合理。本周，我们将根据您的提名和建议，选出五位最佳候选人。
 

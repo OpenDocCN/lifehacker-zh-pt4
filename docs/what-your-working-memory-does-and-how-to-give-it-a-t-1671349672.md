@@ -1,6 +1,6 @@
 # 你的“工作记忆”是做什么的(以及如何调整它)
 
-> 原文:[https://life hacker . com/what-your-working-memory-does-and-how-to-give it-a-t-1671349672](https://lifehacker.com/what-your-working-memory-does-and-how-to-give-it-a-t-1671349672)
+> 原文：<https://lifehacker.com/what-your-working-memory-does-and-how-to-give-it-a-t-1671349672>
 
 工作记忆就像你大脑的便笺簿，在你一天的工作中管理信息。但是我们日常的信息泛滥会让我们感到注意力分散，就像我们的工作记忆有太多东西要处理一样。以下是如何调整你的工作记忆并保持专注。
 

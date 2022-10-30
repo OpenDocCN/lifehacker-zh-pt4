@@ -1,6 +1,6 @@
 # 如果你的车被困在暴风雪中要做的十件事
 
-> 原文:[https://jalopnik . com/10-things-to-do-if-your car-stuck-in-a-snow-storm-1682026080](https://jalopnik.com/ten-things-to-do-if-your-car-is-stuck-in-a-snow-storm-1682026080)
+> 原文：<https://jalopnik.com/ten-things-to-do-if-your-car-is-stuck-in-a-snow-storm-1682026080>
 
 关于冬季驾驶会有多危险和戏剧性，有很多相互矛盾的观点在流传。因此，这里有一个清晰、简单的指南，告诉你当你发现自己在雪中迷路时该怎么做。
 

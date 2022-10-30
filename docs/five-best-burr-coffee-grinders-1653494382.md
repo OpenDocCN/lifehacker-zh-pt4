@@ -1,6 +1,6 @@
 # 五个最好的伯尔咖啡研磨机
 
-> 原文:[https://life hacker . com/five-best-burr-coffee-grinders-1653494382](https://lifehacker.com/five-best-burr-coffee-grinders-1653494382)
+> 原文：<https://lifehacker.com/five-best-burr-coffee-grinders-1653494382>
 
 我们中的许多人在 [购买的咖啡豆](https://lifehacker.com/where-can-i-buy-better-coffee-beans-1524434140)[和我们用来冲泡的机械](http://lifehacker.com/the-best-at-home-coffee-making-gear-1564012367) 上投入了大量的金钱，但对坐在它们之间的卑微的研磨机却不屑一顾。真遗憾——一个好的磨工可以创造一个不同的世界。本周我们将根据你们的提名选出五位最佳选手。
 

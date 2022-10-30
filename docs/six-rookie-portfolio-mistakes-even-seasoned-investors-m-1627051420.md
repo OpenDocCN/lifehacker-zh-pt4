@@ -1,6 +1,6 @@
 # 即使是经验丰富的投资者也会犯的六个投资组合新手错误
 
-> 原文:[https://life hacker . com/six-新秀-投资组合-失误-甚至-经验丰富-投资者-m-1627051420](https://lifehacker.com/six-rookie-portfolio-mistakes-even-seasoned-investors-m-1627051420)
+> 原文：<https://lifehacker.com/six-rookie-portfolio-mistakes-even-seasoned-investors-m-1627051420>
 
 即使你已经持有了几十年的经纪账户，或者一直关注每日股市新闻，有一点是明确的:只有一个 [沃伦·巴菲特](https://lifehacker.com/warren-buffett-s-best-money-advice-1597691871)——你不是他。这没关系。我们都可以从中吸取教训。
 

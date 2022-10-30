@@ -1,6 +1,6 @@
 # 被揭穿的 10 种时尚饮食
 
-> 原文:[https://gizmodo . com/10-证明你不能吃任何东西的减肥书-1654378939](https://gizmodo.com/10-types-of-diet-books-that-prove-you-cant-eat-anything-1654378939)
+> 原文：<https://gizmodo.com/10-types-of-diet-books-that-prove-you-cant-eat-anything-1654378939>
 
 为了更健康，你应该从饮食中剔除什么？一切。根据市场上最受欢迎的饮食书籍，地球上几乎没有可以安全食用的食物。但是这些饮食的实际好处是什么呢？以下是科学的说法。
 

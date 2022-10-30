@@ -1,6 +1,6 @@
 # 如何让 Windows 在超高分辨率显示器上更好地工作
 
-> 原文:[https://life hacker . com/how-to-make-windows-work-better-super-high-resolut-1711254465](https://lifehacker.com/how-to-make-windows-work-better-with-super-high-resolut-1711254465)
+> 原文：<https://lifehacker.com/how-to-make-windows-work-better-with-super-high-resolut-1711254465>
 
 超高分辨率显示器在 Windows 笔记本电脑上变得越来越普遍，但将像素密集地打包到一个小屏幕上会有一些权衡。最终的图像可能很棒——文本看起来很平滑，高质量的图像令人惊叹——但并不是所有的应用程序都设计为以高分辨率运行，这导致了非常混杂的体验。
 

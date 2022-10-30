@@ -1,6 +1,6 @@
 # 古董路演评估我的 2008 年东芝电视
 
-> 原文:[https://gizmodo . com/antiques-roadshow-estimated-my-2008-Toshiba-TV-1612316097](https://gizmodo.com/antiques-roadshow-appraised-my-2008-toshiba-tv-1612316097)
+> 原文：<https://gizmodo.com/antiques-roadshow-appraised-my-2008-toshiba-tv-1612316097>
 
  [https://gizmodo.com/embed/inset/iframe?id=youtube-video-BAdoaGYpSaA&start=0](https://gizmodo.com/embed/inset/iframe?id=youtube-video-BAdoaGYpSaA&start=0) 
 

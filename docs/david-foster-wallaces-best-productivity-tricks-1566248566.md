@@ -1,6 +1,6 @@
 # 戴维·福斯特·华莱士最佳生产力诀窍
 
-> 原文:[https://life hacker . com/David-foster-Wallace-best-productivity-tricks-1566248566](https://lifehacker.com/david-foster-wallaces-best-productivity-tricks-1566248566)
+> 原文：<https://lifehacker.com/david-foster-wallaces-best-productivity-tricks-1566248566>
 
 戴维·福斯特·华莱士 于 2008 年自杀，时年 46 岁，但尽管时间短暂，他仍然是 21 世纪最有创造力和最有趣的作家之一。我们来看看他是怎么做到的。
 

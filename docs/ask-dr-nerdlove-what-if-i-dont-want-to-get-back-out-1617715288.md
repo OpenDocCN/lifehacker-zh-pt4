@@ -1,6 +1,6 @@
 # 问问 Nerdlove 博士:如果我不想“回到那里”呢？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-what-if-I-dont-want-to-get-back-out-1617715288](https://kotaku.com/ask-dr-nerdlove-what-if-i-dont-want-to-get-back-out-1617715288)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-what-if-i-dont-want-to-get-back-out-1617715288>
 
 你好，互联网！欢迎来到 [问问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，唯一秘密负责结束时间战争的约会建议专栏。
 

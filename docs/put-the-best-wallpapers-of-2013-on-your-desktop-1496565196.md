@@ -1,6 +1,6 @@
 # 把 2013 年最好的壁纸放在你的桌面上
 
-> 原文:[https://life hacker . com/put-the-best-wallpapers-of-2013-on-your-desktop-1496565196](https://lifehacker.com/put-the-best-wallpapers-of-2013-on-your-desktop-1496565196)
+> 原文：<https://lifehacker.com/put-the-best-wallpapers-of-2013-on-your-desktop-1496565196>
 
 假期让我们在周三离开了办公室，这意味着整整两周没有壁纸！现在我们回来了，我们给你一个特大号包装，展示 2013 年的最佳产品。
 

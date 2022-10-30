@@ -1,6 +1,6 @@
 # 管理你的自我怀疑，并利用它为你服务
 
-> 原文:[https://life hacker . com/manage-your-self-question-and-use-it-to-your-advantage-1592056792](https://lifehacker.com/manage-your-self-doubt-and-use-it-to-your-advantage-1592056792)
+> 原文：<https://lifehacker.com/manage-your-self-doubt-and-use-it-to-your-advantage-1592056792>
 
 即使是我们中最自信的人，也会在工作和生活中经历自我怀疑，有些人比其他人更甚。但是通过一些仔细的计划，你的批判性眼光可以被用来提高你的工作质量。
 

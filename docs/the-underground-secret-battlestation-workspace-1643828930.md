@@ -1,6 +1,6 @@
 # 地下秘密战斗站工作区
 
-> 原文:[https://life hacker . com/the-underground-secret-battle station-workspace-1643828930](https://lifehacker.com/the-underground-secret-battlestation-workspace-1643828930)
+> 原文：<https://lifehacker.com/the-underground-secret-battlestation-workspace-1643828930>
 
 需要离开你的五个孩子去完成一些工作(或者读一些漫画书)？Imgur 用户 [vannatter](http://vannatter.imgur.com/) 知道这种感觉，所以他在他的地下室精心制作了这个超棒的办公室。
 

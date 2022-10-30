@@ -1,6 +1,6 @@
 # 超越活动跳跃:如何加强你的职业关系网
 
-> 原文:[https://life hacker . com/beyond-event-hopping-how-to-step-up-your-professional-1657396328](https://lifehacker.com/beyond-event-hopping-how-to-step-up-your-professional-1657396328)
+> 原文：<https://lifehacker.com/beyond-event-hopping-how-to-step-up-your-professional-1657396328>
 
 有时候，职业关系网会让人感觉像是一个永无止境的循环，不停地跳来跳去，遇见随机的人。如果你感到沮丧，我们有一些久经考验的信息，可以帮助你提高你的网络工作。
 

@@ -1,6 +1,6 @@
 # 创建一个航空旅行“应急”工具包，以应对常见的飞机灾难
 
-> 原文:[https://life hacker . com/create-an-air-travel-emergency-kit-to-survive-common-1464477090](https://lifehacker.com/create-an-air-travel-emergency-kit-to-survive-common-1464477090)
+> 原文：<https://lifehacker.com/create-an-air-travel-emergency-kit-to-survive-common-1464477090>
 
 天气好的时候，你会到机场， [轻而易举地通过安检](https://lifehacker.com/get-through-the-airport-in-record-time-with-this-checkl-5861949) ，登上你的飞机，准时起飞降落。然而，我们大多数人都知道这种事情发生的频率有多高，并且已经开始预料到某种形式的延迟。虽然你不能让旅行进行得更快，但你可以准备一个工具包，这样当你的飞机停飞时，你就不会感到无聊、饥饿或太不舒服。
 

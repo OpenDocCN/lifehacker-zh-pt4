@@ -1,6 +1,6 @@
 # 如何适应更高的海拔
 
-> 原文:[https://life hacker . com/how-to-adjust-to-higher-altitudes-1595545029](https://lifehacker.com/how-to-adjust-to-higher-altitudes-1595545029)
+> 原文：<https://lifehacker.com/how-to-adjust-to-higher-altitudes-1595545029>
 
 随着夏季进入高潮，是时候冒险去山上和其他海拔更高的地方度假了。但是你爬得越高，你的身体就越讨厌它。在你到达那些更高的高度之前，这里有什么可以期待的。
 

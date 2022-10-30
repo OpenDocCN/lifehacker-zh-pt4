@@ -1,6 +1,6 @@
 # 破产时如何做预算
 
-> 原文:[https://life hacker . com/how-to-budget-when-you-re-broke-1561620381](https://lifehacker.com/how-to-budget-when-you-re-broke-1561620381)
+> 原文：<https://lifehacker.com/how-to-budget-when-you-re-broke-1561620381>
 
 这需要承诺和时间，但是即使你没有多少钱，你也可以学会管理你的钱。如果你破产了，按照以下步骤建立预算。
 

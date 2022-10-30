@@ -1,6 +1,6 @@
 # 健康不是二元的:对你来说，任何事情都可能是健康的(或不健康的)
 
-> 原文:[https://life hacker . com/health-is-not-binary-any-can-be-health-or-un he-1679941684](https://lifehacker.com/health-is-not-binary-anything-can-be-healthy-or-unhe-1679941684)
+> 原文：<https://lifehacker.com/health-is-not-binary-anything-can-be-healthy-or-unhe-1679941684>
 
 作为追求健康的人类，我们自动习惯于将行为分为“健康”和“不健康”两类。走楼梯而不是电梯？绝对健康。在一天结束的时候吃奥利奥？绝对不健康，对吧？没那么快。这就是为什么以这种方式思考可能会阻碍你的进步。
 

@@ -1,6 +1,6 @@
 # 如何应对最严格的航运限制
 
-> 原文:[https://life hacker . com/how-to-charge-the-tough-the-stable-shipping-restrictions-1640723136](https://lifehacker.com/how-to-tackle-the-toughest-shipping-restrictions-1640723136)
+> 原文：<https://lifehacker.com/how-to-tackle-the-toughest-shipping-restrictions-1640723136>
 
 秋天是向世界各地运送奇怪物品的季节。虽然大多数包裹不会引起人们的惊讶，但有些东西，如酒精、锂离子电池和易腐物品，有它们自己的特殊规则。以下是如何管理一些较难运送的物品。
 

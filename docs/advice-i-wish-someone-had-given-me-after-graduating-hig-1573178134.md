@@ -1,6 +1,6 @@
 # 我希望有人在我高中毕业后给我的建议
 
-> 原文:[https://life hacker . com/advice-I-wish-someone-have-give-when-during-hig-1573178134](https://lifehacker.com/advice-i-wish-someone-had-given-me-after-graduating-hig-1573178134)
+> 原文：<https://lifehacker.com/advice-i-wish-someone-had-given-me-after-graduating-hig-1573178134>
 
 随着毕业的临近，又到了一年中我们都倾向于回忆高中时光的时候。对我们中的许多人来说，这意味着在把瓶盖抛向空中后，思考我们做错的所有事情。这里有几条我希望有人传给我的建议。
 

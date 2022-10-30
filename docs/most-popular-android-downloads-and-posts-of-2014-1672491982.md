@@ -1,6 +1,6 @@
 # 2014 年最受欢迎的 Android 下载和帖子
 
-> 原文:[https://life hacker . com/most-popular-Android-downloads-and-post-of-2014-1672491982](https://lifehacker.com/most-popular-android-downloads-and-posts-of-2014-1672491982)
+> 原文：<https://lifehacker.com/most-popular-android-downloads-and-posts-of-2014-1672491982>
 
 棒棒糖。材料设计。Android Wear。对于谷歌最喜欢的操作系统来说，2014 年是重要的一年。这给了我们很多新东西去修补。这里是过去一年里我们关于这个话题的一些最好的帖子。
 

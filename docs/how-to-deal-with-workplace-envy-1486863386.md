@@ -1,6 +1,6 @@
 # 如何应对职场羡慕
 
-> 原文:[https://life hacker . com/how-to-deal-with-workplace-envy-1486863386](https://lifehacker.com/how-to-deal-with-workplace-envy-1486863386)
+> 原文：<https://lifehacker.com/how-to-deal-with-workplace-envy-1486863386>
 
 当你的销售同事完成一笔大交易时，你有什么感觉？或者当一位同事因为领导了公司最好的项目之一而被认可时？或者当一位同事被选中参加特殊任务或培训项目时？政治上正确的答案是，我们应该感到高兴。
 

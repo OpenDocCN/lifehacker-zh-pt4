@@ -1,6 +1,6 @@
 # 《职业大器晚成者赶超指南》
 
-> 原文:[https://life hacker . com/the-late-career-bloomer-s-guide-to-catching-up-1677833182](https://lifehacker.com/the-late-career-bloomer-s-guide-to-catching-up-1677833182)
+> 原文：<https://lifehacker.com/the-late-career-bloomer-s-guide-to-catching-up-1677833182>
 
 无论你是准备尝试职业转换还是从一张白纸起步，赶上新领域的其他人都是令人生畏的。作为一名职业大器晚成者，你可以做些什么来与你的同龄人平起平坐，甚至超越他们。
 

@@ -1,6 +1,6 @@
 # 华硕 ZenWatch 评论:第一款我会当手表戴的智能手表
 
-> 原文:[https://gizmodo . com/ASUS-Zen watch-review-the-first-smart watch-id-wear-as-a-1665903706](https://gizmodo.com/asus-zenwatch-review-the-first-smartwatch-id-wear-as-a-1665903706)
+> 原文：<https://gizmodo.com/asus-zenwatch-review-the-first-smartwatch-id-wear-as-a-1665903706>
 
 多年来，我一直想要一款智能手表:一款融合时尚和数字便利的设备。不幸的是，第一批智能手表主要是体积庞大的塑料和玻璃，用“优雅”这样的形容词来形容似乎有些言不由衷。但华硕 ZenWatch 是情况正在好转的证据。
 

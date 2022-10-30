@@ -1,6 +1,6 @@
 # 关于高温跑步你需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-the-heat-1597028647](https://lifehacker.com/everything-you-need-to-know-about-running-in-the-heat-1597028647)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-running-in-the-heat-1597028647>
 
 夏季训练不容易。气温飙升，湿度高，烈日炎炎，让人感觉不可能跑得很好。你怎样才能在不燃烧的情况下进行锻炼呢？
 

@@ -1,6 +1,6 @@
 # 如何修改一个便宜的烧烤吸烟者更好地品尝肉类
 
-> 原文:[https://life hacker . com/how-to-modify-a-cheap-BBQ-smoker-for-better-tasting-mea-1705644115](https://lifehacker.com/how-to-modify-a-cheap-bbq-smoker-for-better-tasting-mea-1705644115)
+> 原文：<https://lifehacker.com/how-to-modify-a-cheap-bbq-smoker-for-better-tasting-mea-1705644115>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-xV_pZOElQ-A&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-xV_pZOElQ-A&start=0) 
 

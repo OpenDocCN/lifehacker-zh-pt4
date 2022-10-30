@@ -1,6 +1,6 @@
 # 无聊的苹果应用程序的高级替代品
 
-> 原文:[https://life hacker . com/superior-alternatives-to-boring-stock-MAC-apps-5870406](https://lifehacker.com/superior-alternatives-to-boring-stock-mac-apps-5870406)
+> 原文：<https://lifehacker.com/superior-alternatives-to-boring-stock-mac-apps-5870406>
 
 苹果电脑捆绑了大量的软件。有些很棒，但有些过于简单。这是许多默认 Mac 软件的问题:它很容易，但当你想用它做更多事情时，你就没那么幸运了。因此，我们为通常可行但通常无聊的 OS X 默认软件编制了一个我们最喜欢的替代品列表。
 

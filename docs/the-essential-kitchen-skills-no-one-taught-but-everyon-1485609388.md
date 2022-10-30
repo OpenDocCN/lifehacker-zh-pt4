@@ -1,6 +1,6 @@
 # 没有人教的基本厨房技能(但每个人都应该知道)
 
-> 原文:[https://life hacker . com/the-essential-kitchen-skills-not-one-but-every on-1485609388](https://lifehacker.com/the-essential-kitchen-skills-no-one-taught-but-everyon-1485609388)
+> 原文：<https://lifehacker.com/the-essential-kitchen-skills-no-one-taught-but-everyon-1485609388>
 
 我们大多数人从来没有上过烹饪速成班，也不知道如何在厨房里摸索。我们向他人学习:朋友、父母、烹饪节目或烹饪书。这意味着我们的知识中很容易出现空白，比如我们真的应该知道的事情，一直做错了，或者只是从来没有学习过。让我们来看看其中的一些。
 

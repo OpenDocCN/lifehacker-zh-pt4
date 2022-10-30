@@ -1,6 +1,6 @@
 # 旧礼品卡的最佳妙用
 
-> 原文:[https://life hacker . com/the-best-clever-uses-for-old-gift-cards-1489819822](https://lifehacker.com/the-best-clever-uses-for-old-gift-cards-1489819822)
+> 原文：<https://lifehacker.com/the-best-clever-uses-for-old-gift-cards-1489819822>
 
 如果你和大多数人一样，这周你会收到很多礼品卡。一旦它们干了，只剩下空塑料板，不要把它们扔掉或扔进回收箱——它们有很多乐趣。让我们来看看如何在家里好好利用那些现在已经空了的卡片。
 

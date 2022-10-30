@@ -1,6 +1,6 @@
 # 如何使用 rsync 在一夜之间从旧 NAS 迁移到新 NAS
 
-> 原文:[https://life hacker . com/how-to-migrate-from-an-old-nas-to-a-new-one-隔夜-w-1705768233](https://lifehacker.com/how-to-migrate-from-an-old-nas-to-a-new-one-overnight-w-1705768233)
+> 原文：<https://lifehacker.com/how-to-migrate-from-an-old-nas-to-a-new-one-overnight-w-1705768233>
 
 NAS 或网络连接存储设备非常适合存储您可以从家中任何一台计算机访问的文件。但是当你升级到一个新的硬盘时，你不得不手动拷贝所有的内容，交换硬盘，并且冒着数据丢失的风险。这里有一个更可靠的方法。
 

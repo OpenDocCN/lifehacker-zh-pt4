@@ -1,6 +1,6 @@
 # 六个移动 Safari 提示将改善您的浏览体验
 
-> 原文:[https://life hacker . com/six-mobile-safari-tips-that-will-improve-your-browsing-1489952128](https://lifehacker.com/six-mobile-safari-tips-that-will-improve-your-browsing-1489952128)
+> 原文：<https://lifehacker.com/six-mobile-safari-tips-that-will-improve-your-browsing-1489952128>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-QNxr9ufLcrE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-QNxr9ufLcrE&start=0) 
 

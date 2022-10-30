@@ -1,6 +1,6 @@
 # 问问 Nerdlove 博士:我真嫉妒幸福的夫妻
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-im-so-giused-of-happy-couples-1580229973](https://kotaku.com/ask-dr-nerdlove-im-so-jealous-of-happy-couples-1580229973)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-im-so-jealous-of-happy-couples-1580229973>
 
 你好互联网！欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是唯一一个完全用瓦雷利亚钢笔写成的约会建议专栏。
 

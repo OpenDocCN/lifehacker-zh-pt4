@@ -1,6 +1,6 @@
 # 复选框综合症:为什么我们花钱买我们不需要的东西
 
-> 原文:[https://life hacker . com/checkbox-syndrome-why-we-speed-money-we-dont-5910356](https://lifehacker.com/checkbox-syndrome-why-we-spend-money-on-things-we-dont-5910356)
+> 原文：<https://lifehacker.com/checkbox-syndrome-why-we-spend-money-on-things-we-dont-5910356>
 
 有没有因为比竞争对手拥有更多的功能就想买最新的闪亮产品*的经历？我们称之为“复选框综合症”，或者仅仅因为一个新的小工具或产品是升级版，而不是因为它比*好*。在你在一个盛大的发布会上被一系列旨在打动观众的技术规格所吸引之前，停下来想想这对你来说是否真的是一次升级*。**
 

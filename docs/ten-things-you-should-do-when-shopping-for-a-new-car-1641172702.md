@@ -1,6 +1,6 @@
 # 购买新车时你应该做的十件事
 
-> 原文:[https://jalopnik . com/1641172702](https://jalopnik.com/ten-things-you-should-do-when-shopping-for-a-new-car-1641172702)
+> 原文：<https://jalopnik.com/ten-things-you-should-do-when-shopping-for-a-new-car-1641172702>
 
 买新车？先看看这个建议。
 

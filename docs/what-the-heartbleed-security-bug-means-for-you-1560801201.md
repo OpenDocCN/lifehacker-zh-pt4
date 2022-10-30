@@ -1,6 +1,6 @@
 # “心脏出血”安全漏洞对您意味着什么
 
-> 原文:[https://life hacker . com/what-the-heart bleed-security-bug-mean-for-you-1560801201](https://lifehacker.com/what-the-heartbleed-security-bug-means-for-you-1560801201)
+> 原文：<https://lifehacker.com/what-the-heartbleed-security-bug-means-for-you-1560801201>
 
 安全研究人员在 OpenSSL 中发现了一个严重的漏洞，OpenSSL 是一个保护互联网上许多网站的加密软件库。这对于普通用户来说意味着什么。
 

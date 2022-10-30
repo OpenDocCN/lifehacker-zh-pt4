@@ -1,6 +1,6 @@
 # 当你错过工作的最后期限时该怎么办
 
-> 原文:[https://life hacker . com/what-do what-what-to-do what-you-miss-a-deadline-on-work-1655116937](https://lifehacker.com/what-to-do-when-you-miss-a-deadline-at-work-1655116937)
+> 原文：<https://lifehacker.com/what-to-do-when-you-miss-a-deadline-at-work-1655116937>
 
 这种事在我们大多数人身上都会发生——也许会计部门没有及时给你提供数据。也许你原以为要花 4 个小时的设计工作现在花了 14 个小时。也许玉米卷星期二变成了食物中毒星期二，你知道你不会让你的最后期限。
 

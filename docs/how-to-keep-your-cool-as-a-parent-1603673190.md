@@ -1,6 +1,6 @@
 # 作为父母如何保持冷静
 
-> 原文:[https://life hacker . com/how-to-keep-your-cool-as-parent-1603673190](https://lifehacker.com/how-to-keep-your-cool-as-a-parent-1603673190)
+> 原文：<https://lifehacker.com/how-to-keep-your-cool-as-a-parent-1603673190>
 
 当孩子行为不端时，哪个父母没有发过脾气？当然，没有时不时发脾气的父母比独角兽还罕见，但发脾气和大喊大叫可能是无效的养育。如果你保持冷静，对大家都好。
 

@@ -1,6 +1,6 @@
 # 为什么你永远不应该对节俭感到难为情
 
-> 原文:[https://life hacker . com/why-you-should-never-feel-on-being-fr-1639167300](https://lifehacker.com/why-you-should-never-feel-self-conscious-about-being-fr-1639167300)
+> 原文：<https://lifehacker.com/why-you-should-never-feel-self-conscious-about-being-fr-1639167300>
 
 几乎每个人都会尽可能地省钱，但是当你和朋友出去的时候，去拿优惠券会很尴尬。就好像存钱有什么不酷的。但是节俭并不意味着对每个人都一样，你永远不应该对此感到难为情。
 

@@ -1,6 +1,6 @@
 # 我是 danah boyd，微软的研究员，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-danah-Boyd-research-at-Microsoft-and-this-is-how-1599067041](https://lifehacker.com/im-danah-boyd-researcher-at-microsoft-and-this-is-how-1599067041)
+> 原文：<https://lifehacker.com/im-danah-boyd-researcher-at-microsoft-and-this-is-how-1599067041>
 
 多年来，danah boyd 一直从学术角度观察互联网，研究社会如何与技术互动。她的新书讲述了出生于网络世界的青少年如何驾驭社交媒体，以及他们是否因此过得更好。
 

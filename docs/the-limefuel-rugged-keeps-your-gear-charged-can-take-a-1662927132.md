@@ -1,6 +1,6 @@
 # Limefuel Rugged 能让你的装备充满电，能承受打击
 
-> 原文:[https://life hacker . com/the-lime fuel-rugged-keep-your-gear-charged-can-take-a-1662927132](https://lifehacker.com/the-limefuel-rugged-keeps-your-gear-charged-can-take-a-1662927132)
+> 原文：<https://lifehacker.com/the-limefuel-rugged-keeps-your-gear-charged-can-take-a-1662927132>
 
 电池组很容易获得，但要找到一个能让你的设备保持充电状态的电池组有点困难，如果电池电量低，可以完全充电，并且仍然足够坚固和结实，可以带着你去任何地方——我们指的是任何地方。Limefuel Rugged 完全符合要求。原因如下。
 

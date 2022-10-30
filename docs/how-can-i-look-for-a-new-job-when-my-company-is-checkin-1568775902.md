@@ -1,6 +1,6 @@
 # 当我的公司正在检查员工时，我如何才能找到新工作？
 
-> 原文:[https://life hacker . com/how-can-look-for-a-new-job-when-my-company-in-check-in-1568775902](https://lifehacker.com/how-can-i-look-for-a-new-job-when-my-company-is-checkin-1568775902)
+> 原文：<https://lifehacker.com/how-can-i-look-for-a-new-job-when-my-company-is-checkin-1568775902>
 
 亲爱的 Lifehacker，
 我正在找一份新工作，但我的公司会定期浏览求职网站和 LinkedIn，查看员工何时更新简历或个人资料。然后他们向他们的经理报告。我怎样才能私下找工作而不被任何人发现？

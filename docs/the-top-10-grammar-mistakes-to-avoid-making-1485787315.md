@@ -1,6 +1,6 @@
 # 要避免犯的 10 大语法错误
 
-> 原文:[https://life hacker . com/the-top-10-grammar-missons-to-avoid-making-1485787315](https://lifehacker.com/the-top-10-grammar-mistakes-to-avoid-making-1485787315)
+> 原文：<https://lifehacker.com/the-top-10-grammar-mistakes-to-avoid-making-1485787315>
 
 无论你是以写作为生还是偶尔写作，正确的语法都很重要。如果你在找工作 或试图给新客户留下深刻印象，这一点尤为重要。在这张信息图中，GrammarCheck 收集了一些人们最常犯的语法错误以及如何避免它们。
 

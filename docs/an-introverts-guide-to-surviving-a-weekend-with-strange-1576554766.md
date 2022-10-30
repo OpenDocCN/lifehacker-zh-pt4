@@ -1,6 +1,6 @@
 # 内向者与陌生人共度周末指南
 
-> 原文:[https://life hacker . com/an-intrinters-guide-to-surviding-a-weekend-with-strange-1576554766](https://lifehacker.com/an-introverts-guide-to-surviving-a-weekend-with-strange-1576554766)
+> 原文：<https://lifehacker.com/an-introverts-guide-to-surviving-a-weekend-with-strange-1576554766>
 
 无论内向还是外向，一个被陌生人包围的周末——无论是公司度假、婚礼还是家庭旅行——总是有点挑战性。对于内向的人来说，这是关于找到一种平衡，这样你就可以度过周末。以下是我如何在不丧失理智的情况下学会应对的。
 

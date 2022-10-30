@@ -1,6 +1,6 @@
 # 我如何最终还清了一生的信用卡债务
 
-> 原文:[https://life hacker . com/how-I-finally-还清一生的信用卡债务-1462432758](https://lifehacker.com/how-i-finally-paid-off-a-lifetime-of-credit-card-debt-1462432758)
+> 原文：<https://lifehacker.com/how-i-finally-paid-off-a-lifetime-of-credit-card-debt-1462432758>
 
 凯瑟琳·菲茨杰拉德一生都负债累累——多达 10 万美元。在这里，她解释了她最初是如何到达那里的，以及她是如何在 40 岁时还清最后一张信用卡的。
 

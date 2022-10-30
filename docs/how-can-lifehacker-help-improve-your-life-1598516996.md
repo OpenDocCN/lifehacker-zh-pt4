@@ -1,6 +1,6 @@
 # Lifehacker 如何帮助改善你的生活？
 
-> 原文:[https://life hacker . com/how-can-life hacker-help-improve-your-life-1598516996](https://lifehacker.com/how-can-lifehacker-help-improve-your-life-1598516996)
+> 原文：<https://lifehacker.com/how-can-lifehacker-help-improve-your-life-1598516996>
 
 我们大多数人都没有过上理想的生活。我们对自己挣的钱不满意，我们在不喜欢的工作上花了太多时间，我们太容易屈服于日常压力。但是这些事情不是我们不快乐的原因——它们是症状。
 

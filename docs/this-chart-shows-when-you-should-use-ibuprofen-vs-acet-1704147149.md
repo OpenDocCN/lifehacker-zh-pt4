@@ -1,6 +1,6 @@
 # 此图表显示了您何时应该使用布洛芬和对乙酰氨基酚
 
-> 原文:[https://life hacker . com/this-chart-shows-when-you-should-use-布洛芬 vs . acet-1704147149](https://lifehacker.com/this-chart-shows-when-you-should-use-ibuprofen-vs-acet-1704147149)
+> 原文：<https://lifehacker.com/this-chart-shows-when-you-should-use-ibuprofen-vs-acet-1704147149>
 
 不是所有的止痛药都是一样的。布洛芬(Advil)和对乙酰氨基酚(Tylenol)对身体有不同的作用。这个方便的图表可以快速告诉你哪一个用于哪一个目的，以及何时避免它们。
 

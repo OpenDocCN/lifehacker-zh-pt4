@@ -1,6 +1,6 @@
 # 如何和你的孩子谈论死亡
 
-> 原文:[https://life hacker . com/how-to-talk to-your-kids-about-death-1517421198](https://lifehacker.com/how-to-talk-to-your-kids-about-death-1517421198)
+> 原文：<https://lifehacker.com/how-to-talk-to-your-kids-about-death-1517421198>
 
 和其他成年人谈论死亡已经够尴尬的了。当你不得不向易受影响的孩子们解释所爱的人已经永远离开时，那就更难了。这里有一些以最佳方式处理这个不可避免的话题的技巧。
 

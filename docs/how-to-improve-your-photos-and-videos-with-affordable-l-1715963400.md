@@ -1,6 +1,6 @@
 # 如何用实惠的照明改善照片和视频
 
-> 原文:[https://life hacker . com/how-to-improve-your-photos and videos-with-affordable-l-1715963400](https://lifehacker.com/how-to-improve-your-photos-and-videos-with-affordable-l-1715963400)
+> 原文：<https://lifehacker.com/how-to-improve-your-photos-and-videos-with-affordable-l-1715963400>
 
 好看的照片和视频与糟糕的照片和视频之间的最大区别在于事物的照明程度。无论你是一个正在建造家庭工作室的业余摄影师，还是一个初露头角的 YouTube 明星，这里都有一些简单的技巧，可以在不花费大量金钱购买专业设备的情况下投射出合适的光线。
 

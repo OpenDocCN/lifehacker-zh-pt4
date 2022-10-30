@@ -1,6 +1,6 @@
 # 如果您的密码管理器丢失了主密码，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-lost-the-master-pass-1686432765](https://lifehacker.com/what-to-do-if-you-lose-the-master-password-to-your-pass-1686432765)
+> 原文：<https://lifehacker.com/what-to-do-if-you-lose-the-master-password-to-your-pass-1686432765>
 
 使用密码管理器是智能安全。那是 [没什么新鲜的](https://lifehacker.com/the-only-secure-password-is-the-one-you-can-t-remember-5785420) 。然而， [最好的密码管理器](http://lifehacker.com/the-five-best-password-managers-5529133) 把你的凭证锁在一个只有你自己知道的“主”密码后面。但是，如果您丢失了主密码，会发生什么呢？
 

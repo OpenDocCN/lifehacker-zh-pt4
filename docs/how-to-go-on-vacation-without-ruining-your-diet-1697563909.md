@@ -1,6 +1,6 @@
 # 如何去度假而不破坏你的饮食
 
-> 原文:[https://life hacker . com/how-to-go-on-vacation-without-breaking-your diet-1697563909](https://lifehacker.com/how-to-go-on-vacation-without-ruining-your-diet-1697563909)
+> 原文：<https://lifehacker.com/how-to-go-on-vacation-without-ruining-your-diet-1697563909>
 
 如果你担心破坏你来之不易的进步，即使是最令人兴奋的假期也会变成巨大的焦虑来源。但是你并没有转向更适合的生活方式去成为一个隐士。以下是如何享受巴哈马的阳光，而不会让自己回到起点。
 

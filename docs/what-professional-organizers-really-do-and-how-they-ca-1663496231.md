@@ -1,6 +1,6 @@
 # 专业组织者真正在做什么，以及他们如何能提供帮助
 
-> 原文:[https://life hacker . com/what-professional-organizer-really-do-and-how-they-ca-1663496231](https://lifehacker.com/what-professional-organizers-really-do-and-how-they-ca-1663496231)
+> 原文：<https://lifehacker.com/what-professional-organizers-really-do-and-how-they-ca-1663496231>
 
 当你听到“专业组织者”时，你最喜欢的关于背包鼠和囤积者的电视真人秀可能会出现在你的脑海中。专业的组织者肯定会帮助那些人，但是这个职业远不止这些。组织者可以帮助我们这些太忙、太困惑、太累或压力太大而无法自己处理杂物的人。以下是他们真正做的事情，以及他们可能如何帮助你。
 

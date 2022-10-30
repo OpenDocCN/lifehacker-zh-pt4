@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:12 月 6 日至 13 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-December-6-to-13-1482777208](https://lifehacker.com/this-weeks-most-popular-posts-december-6th-to-13th-1482777208)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-december-6th-to-13th-1482777208>
 
 本周我们 [通过双因素认证](https://lifehacker.com/heres-everywhere-you-should-enable-two-factor-authentic-5938565)[加强了我们的安全性，修复了我们最大的服装烦恼](http://lifehacker.com/top-10-clothing-annoyances-fixed-1477546618)[在 4 小时内做了 46 顿饭](http://lifehacker.com/make-46-meals-for-under-100-in-4-hours-1480339310)[了解了哪些名牌做了自己的通用品牌](http://lifehacker.com/stop-wasting-money-buy-the-identical-cheaper-versions-1481925774) 。这里回顾一下。
 

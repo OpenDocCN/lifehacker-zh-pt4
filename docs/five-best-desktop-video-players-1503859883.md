@@ -1,6 +1,6 @@
 # 五款最佳桌面视频播放器
 
-> 原文:[https://life hacker . com/five-best-desktop-video-players-1503859883](https://lifehacker.com/five-best-desktop-video-players-1503859883)
+> 原文：<https://lifehacker.com/five-best-desktop-video-players-1503859883>
 
 在电脑上观看电影和电视节目很容易，但如果你需要大量下载或翻录，你需要一个轻量级的视频播放器，可以处理几乎任何你扔给它的东西，无论它是有字幕，很久以前用一些模糊的编解码器编码，还是以一种奇怪的文件格式出现。根据你的提名，本周我们来看看五个最好的桌面视频播放器。
 

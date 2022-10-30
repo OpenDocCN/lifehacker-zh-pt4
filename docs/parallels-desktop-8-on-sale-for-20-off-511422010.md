@@ -1,6 +1,6 @@
 # Parallels Desktop 8 打折 20 美元
 
-> 原文:[https://life hacker . com/parallels-desktop-8-on-sale-for-20-off-511422010](https://lifehacker.com/parallels-desktop-8-on-sale-for-20-off-511422010)
+> 原文：<https://lifehacker.com/parallels-desktop-8-on-sale-for-20-off-511422010>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-BaTOtH7XZm0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-BaTOtH7XZm0&start=0) 
 

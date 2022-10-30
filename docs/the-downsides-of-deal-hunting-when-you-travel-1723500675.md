@@ -1,6 +1,6 @@
 # 旅行时寻找交易的不利之处
 
-> 原文:[https://life hacker . com/the-down sides-of-deal-hunting-when-you-travel-1723500675](https://lifehacker.com/the-downsides-of-deal-hunting-when-you-travel-1723500675)
+> 原文：<https://lifehacker.com/the-downsides-of-deal-hunting-when-you-travel-1723500675>
 
 旅行可能会很贵，谢天谢地，有很多省钱的方法。但是作为一个既喜欢省钱又喜欢旅行的人，我意识到这些省钱的旅行建议有时也有不好的一面。意识到这一点可以帮助你选择哪些储蓄建议值得，哪些不值得。
 

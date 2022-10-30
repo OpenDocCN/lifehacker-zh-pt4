@@ -1,6 +1,6 @@
 # 你可能不知道的 10 个 Xbox One 功能
 
-> 原文:[https://kotaku . com/10-Xbox-one-features-you-may-not-know-on-1703114162](https://kotaku.com/10-xbox-one-features-you-might-not-know-about-1703114162)
+> 原文：<https://kotaku.com/10-xbox-one-features-you-might-not-know-about-1703114162>
 
 你知道它玩*光环*游戏。你知道它会运行*战争机器*。你可能知道，如果你站得离它越远，它看起来就越小。但是你知道 Xbox One 的这些其他事情吗？
 

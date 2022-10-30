@@ -1,6 +1,6 @@
 # 地面桌面
 
-> 原文:[https://lifehacker.com/the-earthbound-desktop-1721828694](https://lifehacker.com/the-earthbound-desktop-1721828694)
+> 原文：<https://lifehacker.com/the-earthbound-desktop-1721828694>
 
 读者 [bionicfemme](http://kinja.com/bionicfemme) 分享了这个桌面到我们的 [桌面展示区](http://kinja.com/tag/desktop-showcase) 我们喜欢它，部分是因为我们分享了对地球的爱。如果你像我们一样喜欢它，这里有一些你可以设置它的方法。
 

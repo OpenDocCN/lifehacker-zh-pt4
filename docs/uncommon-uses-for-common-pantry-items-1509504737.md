@@ -1,6 +1,6 @@
 # 常见餐具室物品的不常见用途
 
-> 原文:[https://life hacker . com/uncommon-uses-for-common-pantry-items-1509504737](https://lifehacker.com/uncommon-uses-for-common-pantry-items-1509504737)
+> 原文：<https://lifehacker.com/uncommon-uses-for-common-pantry-items-1509504737>
 
 有人认为备餐间是用来吃东西的，这也许是情有可原的。然而，一个库存充足的储藏室可以包括许多在厨房之外有各种用途的物品。
 

@@ -1,6 +1,6 @@
 # 保持汽车平稳行驶你应该检查的五种液体
 
-> 原文:[https://life hacker . com/five-fluids-you-should-check-to-keep your-car-running-s-1556413981](https://lifehacker.com/five-fluids-you-should-check-to-keep-your-car-running-s-1556413981)
+> 原文：<https://lifehacker.com/five-fluids-you-should-check-to-keep-your-car-running-s-1556413981>
 
 汽车需要大量的保养才能保持平稳行驶。任何人都可以做的最简单的事情就是检查液体，以确保您的汽车保持健康。记住这一点，以下是你应该定期检查的五种液体。
 

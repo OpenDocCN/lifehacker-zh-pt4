@@ -1,6 +1,6 @@
 # 如何谈论敏感话题，让人们愿意倾听
 
-> 原文:[https://life hacker . com/how-to-talk-about-sensitive-topics-so-the-people-will-1578544857](https://lifehacker.com/how-to-talk-about-sensitive-topics-so-that-people-will-1578544857)
+> 原文：<https://lifehacker.com/how-to-talk-about-sensitive-topics-so-that-people-will-1578544857>
 
 我们与人们谈论改变他们生活的方式对他们是否愿意接受我们的反馈有着巨大的影响。无论你面对的是你爱的人关于药物滥用，破坏性行为，还是任何情绪化的问题，利用积极的沟通会影响别人对你的看法。
 

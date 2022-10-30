@@ -1,6 +1,6 @@
 # 买房时要小心这些关闭成本
 
-> 原文:[https://life hacker . com/watch-for-these-closing-costs-when-buy-a-home-1566828810](https://lifehacker.com/watch-out-for-these-closing-costs-when-buying-a-home-1566828810)
+> 原文：<https://lifehacker.com/watch-out-for-these-closing-costs-when-buying-a-home-1566828810>
 
 平均而言，成交成本占房屋购买价格的 2%到 5%。2%似乎不是一个很高的数字，除非你记得房子是相当昂贵的。平均房价为 152，000 美元，这意味着你可能要多付 3，000 至 7，600 美元。这只是平均水平。这对新房主来说可能是一个相当大的惊喜，所以这里有一个要注意的交易成本汇总。
 

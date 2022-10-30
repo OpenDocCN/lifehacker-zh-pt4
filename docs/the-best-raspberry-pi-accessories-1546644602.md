@@ -1,6 +1,6 @@
 # 最佳树莓派配饰
 
-> 原文:[https://life hacker . com/the-best-raspberry-pi-accessories-1546644602](https://lifehacker.com/the-best-raspberry-pi-accessories-1546644602)
+> 原文：<https://lifehacker.com/the-best-raspberry-pi-accessories-1546644602>
 
 Raspberry Pi 是一款非常棒的设备，事实上它是开源的，这意味着它有各种各样很棒的附件。所以，让我们为你的各种 DIY 项目建立一个最佳配件清单。
 

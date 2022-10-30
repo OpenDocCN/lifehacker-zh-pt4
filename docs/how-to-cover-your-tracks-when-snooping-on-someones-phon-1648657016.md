@@ -1,6 +1,6 @@
 # 偷窥别人的电话或电脑时如何掩盖痕迹
 
-> 原文:[https://life hacker . com/how-to-cover-your-tracks-when-snooping-on-someones-phon-1648657016](https://lifehacker.com/how-to-cover-your-tracks-when-snooping-on-someones-phon-1648657016)
+> 原文：<https://lifehacker.com/how-to-cover-your-tracks-when-snooping-on-someones-phon-1648657016>
 
 如果你要窥探某人的个人数字财产，你要确保不留下任何痕迹。这里有一些建议，告诉你如何进出而不留下任何确凿的证据。
 

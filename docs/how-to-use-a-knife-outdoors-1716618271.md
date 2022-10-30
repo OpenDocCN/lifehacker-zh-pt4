@@ -1,6 +1,6 @@
 # 如何在户外使用小刀
 
-> 原文:[https://gizmodo.com/how-to-use-a-knife-outdoors-1716618271](https://gizmodo.com/how-to-use-a-knife-outdoors-1716618271)
+> 原文：<https://gizmodo.com/how-to-use-a-knife-outdoors-1716618271>
 
 刀子是你外出时可以随身携带的最基本、最有用的工具。但是，你知道如何充分利用它吗？让我们复习一下基础知识，给你看看刀子能做的所有事情。
 

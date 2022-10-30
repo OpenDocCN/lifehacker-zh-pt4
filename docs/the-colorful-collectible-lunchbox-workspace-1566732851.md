@@ -1,6 +1,6 @@
 # 丰富多彩、可收藏的午餐盒工作区
 
-> 原文:[https://life hacker . com/the-colorful-collective-lunch box-workspace-1566732851](https://lifehacker.com/the-colorful-collectible-lunchbox-workspace-1566732851)
+> 原文：<https://lifehacker.com/the-colorful-collectible-lunchbox-workspace-1566732851>
 
 即使你有无聊的白墙和不伦不类的家具，你也可以拥有一个充满活力、时尚的家。这是从今天的特色工作空间及其对彩色配件的热爱中学到的。
 

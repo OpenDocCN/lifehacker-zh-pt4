@@ -1,6 +1,6 @@
 # 学习撬锁取乐
 
-> 原文:[https://lifehacker.com/learn-to-pick-locks-for-fun-5672326](https://lifehacker.com/learn-to-pick-locks-for-fun-5672326)
+> 原文：<https://lifehacker.com/learn-to-pick-locks-for-fun-5672326>
 
 学习撬锁是一项有趣的练习，可以学习锁的机制，磨练一项有用的技能，并更好地了解锁是如何工作的，以及如何保护或无法保护你和你的东西。
 

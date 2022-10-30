@@ -1,6 +1,6 @@
 # 搜索 AmazonBasics 寻找更便宜的非品牌商品
 
-> 原文:[https://life hacker . com/search-amazonbasics-for-bleed-off-brand-items-1698856869](https://lifehacker.com/search-amazonbasics-for-cheaper-off-brand-items-1698856869)
+> 原文：<https://lifehacker.com/search-amazonbasics-for-cheaper-off-brand-items-1698856869>
 
 大多数零售店都有自己的畅销产品的非品牌版本。亚马逊也没有什么不同，尽管它可能更难找到。要达成交易，请将“AmazonBasics”添加到您的搜索中。
 

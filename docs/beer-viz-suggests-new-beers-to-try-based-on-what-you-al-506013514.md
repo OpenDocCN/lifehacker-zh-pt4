@@ -1,6 +1,6 @@
 # Beer Viz 会根据你已经喜欢的啤酒来推荐新的啤酒
 
-> 原文:[https://life hacker . com/beer-viz-suggests-new-beers-to-try-based-on-what-you-al-506013514](https://lifehacker.com/beer-viz-suggests-new-beers-to-try-based-on-what-you-al-506013514)
+> 原文：<https://lifehacker.com/beer-viz-suggests-new-beers-to-try-based-on-what-you-al-506013514>
 
 如果你正在寻找一种新的啤酒来尝试，或者只是想扩大一下你的味觉，Beer Viz 会问你几个关于你已经喜欢的啤酒的问题，并为你提供大量可能很适合你的选择。有点像啤酒的潘多拉星球。
 

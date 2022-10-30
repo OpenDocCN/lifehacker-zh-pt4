@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:需求问题
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-the-needy-problem-1636444902](https://kotaku.com/ask-dr-nerdlove-the-neediness-problem-1636444902)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-the-neediness-problem-1636444902>
 
 你好互联网！欢迎来到 [问问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，唯一知道一个人去很危险的约会建议专栏。当我们帮助你在 MMO 找到你的合作伙伴，这就是生活的时候，是时候看看 21 世纪约会礼仪的几个常见问题了。
 

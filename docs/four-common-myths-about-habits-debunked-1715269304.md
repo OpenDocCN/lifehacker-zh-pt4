@@ -1,6 +1,6 @@
 # 关于习惯的四个常见误区被揭穿
 
-> 原文:[https://life hacker . com/four-common-myths-about-habits-debunched-1715269304](https://lifehacker.com/four-common-myths-about-habits-debunked-1715269304)
+> 原文：<https://lifehacker.com/four-common-myths-about-habits-debunked-1715269304>
 
 养成习惯是很难的，所以令人惊讶的是，有各种各样的垃圾科学，关于这样做的最佳方式，需要多长时间，以及重复有多重要。让我们揭穿这些神话，这样我们就可以专注于什么是真正有效的。
 

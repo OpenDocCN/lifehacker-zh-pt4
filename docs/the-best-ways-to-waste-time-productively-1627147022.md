@@ -1,6 +1,6 @@
 # 有效浪费时间的最佳方式
 
-> 原文:[https://life hacker . com/the-best-was-waste-time-productive-1627147022](https://lifehacker.com/the-best-ways-to-waste-time-productively-1627147022)
+> 原文：<https://lifehacker.com/the-best-ways-to-waste-time-productively-1627147022>
 
 有时候你需要从工作中休息一下，但是你不想浪费时间什么都不做。生产性拖延是一个很大的中间点，所以我们正在整理一个什么类型的活动效果最好的列表。
 

@@ -1,6 +1,6 @@
 # 学会用味觉科学让你做的任何一道菜都更好
 
-> 原文:[https://life hacker . com/learn-to-make-any-dish-you-cook-better-with the-science-1477864259](https://lifehacker.com/learn-to-make-any-dish-you-cook-better-with-the-science-1477864259)
+> 原文：<https://lifehacker.com/learn-to-make-any-dish-you-cook-better-with-the-science-1477864259>
 
 我们都曾遇到过这样或那样的情况:你做的菜太咸、太辣，或者可能就是太辣了...咩。纠正和防止这种情况的关键是平衡，当这道菜的所有味道和谐相处时。以下是你应该知道的，这样你就可以做出美味的菜肴，不管你是按照菜谱做还是即兴发挥。
 

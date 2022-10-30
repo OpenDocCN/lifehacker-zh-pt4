@@ -1,6 +1,6 @@
 # 引导你内心的企业家在工作中出类拔萃
 
-> 原文:[https://life hacker . com/channel-your-inner-entrepreneur-to-excel-in-work-1599801631](https://lifehacker.com/channel-your-inner-entrepreneur-to-excel-at-work-1599801631)
+> 原文：<https://lifehacker.com/channel-your-inner-entrepreneur-to-excel-at-work-1599801631>
 
 在当今的职场中，每个人都对硅谷的企业家成功故事如此着迷，以至于他们忘记了在公司环境中创业的能力。事实上，你用企业家的心态来超越你的工作。
 

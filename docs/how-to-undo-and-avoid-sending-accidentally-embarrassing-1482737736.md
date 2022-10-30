@@ -1,6 +1,6 @@
 # 如何撤销和避免意外发送令人尴尬的消息
 
-> 原文:[https://life hacker . com/how-to-undo-and-avoid-incidential-painting-1482737736](https://lifehacker.com/how-to-undo-and-avoid-sending-accidentally-embarrassing-1482737736)
+> 原文：<https://lifehacker.com/how-to-undo-and-avoid-sending-accidentally-embarrassing-1482737736>
 
 科技可以让你的生活变得方便...太方便了。舒适会让你不知所措，尴尬的事情也会发生。你会发错邮件给别人，或者不小心把私人邮件公之于众。这些简单的小错误可能会造成灾难性的后果，但是你可以实施一个安全网来尝试和避免技术失误的可怕耻辱。
 

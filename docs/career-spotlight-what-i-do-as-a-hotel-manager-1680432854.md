@@ -1,6 +1,6 @@
 # 职业聚焦:作为酒店经理我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-a-hotel-manager-1680432854](https://lifehacker.com/career-spotlight-what-i-do-as-a-hotel-manager-1680432854)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-hotel-manager-1680432854>
 
 经营一家酒店能有多难？不过是叠毛巾换床单，对吧？当您将规模扩大到包括数百个房间，每天都有客人进进出出时，资源管理(包括劳动力和床单)可能会变得非常混乱。
 

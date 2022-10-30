@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:艰难模式下的约会
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-dating-on-hard-mode-1641724259](https://kotaku.com/ask-dr-nerdlove-dating-on-hard-mode-1641724259)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-dating-on-hard-mode-1641724259>
 
 你好互联网！欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一的约会建议专栏，帮助你回答为史诗般的人生最后突袭寻找团队的永恒召唤。
 

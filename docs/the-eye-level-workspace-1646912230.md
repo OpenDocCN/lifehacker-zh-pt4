@@ -1,6 +1,6 @@
 # 令人振奋的视线水平工作空间
 
-> 原文:[https://lifehacker.com/the-eye-level-workspace-1646912230](https://lifehacker.com/the-eye-level-workspace-1646912230)
+> 原文：<https://lifehacker.com/the-eye-level-workspace-1646912230>
 
 读者 [鲍比·凯恩](https://www.flickr.com/photos/bobbyjkane/) 很好地利用了显示器支架，让一切都保持在视线水平，并在他狭小但舒适的工作空间里隐藏了不雅观的扬声器。
 

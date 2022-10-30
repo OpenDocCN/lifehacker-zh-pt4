@@ -1,6 +1,6 @@
 # 10 个最令人困惑的汽车按钮和符号——以及它们的含义
 
-> 原文:[https://jalopnik . com/the-10-most-missing-car-buttons-and-symbols-and-wha-1486368891](https://jalopnik.com/the-10-most-confusing-car-buttons-and-symbols-and-wha-1486368891)
+> 原文：<https://jalopnik.com/the-10-most-confusing-car-buttons-and-symbols-and-wha-1486368891>
 
 每个司机都见过一个奇怪的仪表板符号，或在他们的车里发现一个不熟悉的按钮，并想知道，“那到底是什么？”幸运的是，Jalopnik 的读者知道他们的意思，他们在这里提供帮助。
 

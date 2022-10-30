@@ -1,6 +1,6 @@
 # 你没有使用(但应该使用)的最佳流媒体音乐服务
 
-> 原文:[https://life hacker . com/the-best-streaming-music-services-you-arent-use-but-476372723](https://lifehacker.com/the-best-streaming-music-services-you-arent-using-but-476372723)
+> 原文：<https://lifehacker.com/the-best-streaming-music-services-you-arent-using-but-476372723>
 
 流媒体音乐应用和发现服务多如牛毛，但即使是最好的也很难与众所周知的名字竞争。即便如此，稍微走出你的舒适区，尝试一项新的服务只会给你带来大量的新音乐。这里有一些我们喜欢的服务，我们认为你也会喜欢。
 

@@ -1,6 +1,6 @@
 # 如何决定下一步去哪里旅行
 
-> 原文:[https://life hacker . com/how-to-decision-where-travel-next-1618985315](https://lifehacker.com/how-to-decide-where-to-travel-next-1618985315)
+> 原文：<https://lifehacker.com/how-to-decide-where-to-travel-next-1618985315>
 
 现代旅行提供了如此多的选择——如果你有时间和金钱，你几乎可以去地球上的任何地方。选择下一个探险地点可能会让人不知所措，所以这里有五种方法可以帮助你锁定下一个目的地。
 

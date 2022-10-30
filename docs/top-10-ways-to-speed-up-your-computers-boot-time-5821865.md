@@ -1,6 +1,6 @@
 # 加速计算机启动时间的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-speed-your-computers-boot-time-5821865](https://lifehacker.com/top-10-ways-to-speed-up-your-computers-boot-time-5821865)
+> 原文：<https://lifehacker.com/top-10-ways-to-speed-up-your-computers-boot-time-5821865>
 
 如果有一件事每个人都害怕，那就是重启他们的电脑。这可能只需要一两分钟，但它可能会像永远。以下是我们的 10 大调整，可以让你的电脑启动得更快一点。
 

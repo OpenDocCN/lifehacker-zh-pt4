@@ -1,6 +1,6 @@
 # PowerInbox 将您的社交网络订阅源添加到您的电子邮件边栏中
 
-> 原文:[https://life hacker . com/power inbox-adds-your-social-network-feeds-to-your-email-509554285](https://lifehacker.com/powerinbox-adds-your-social-network-feeds-to-your-email-509554285)
+> 原文：<https://lifehacker.com/powerinbox-adds-your-social-network-feeds-to-your-email-509554285>
 
 社交网络有一个讨厌的习惯，会把你从正在做的事情中拉出来。PowerInbox 让您无需离开电子邮件选项卡即可了解最新动态。
 

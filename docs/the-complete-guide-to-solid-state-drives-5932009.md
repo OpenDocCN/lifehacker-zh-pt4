@@ -1,6 +1,6 @@
 # 固态硬盘完全指南
 
-> 原文:[https://life hacker . com/the-complete-guide-to-solid-state-drives-5932009](https://lifehacker.com/the-complete-guide-to-solid-state-drives-5932009)
+> 原文：<https://lifehacker.com/the-complete-guide-to-solid-state-drives-5932009>
 
 给你的电脑添加一个固态硬盘(SSD)只是简单的 [最好的升级](https://lifehacker.com/what-hardware-upgrade-will-best-speed-up-my-pc-if-i-ca-5883376) ，能够以你想不到的方式加速你的电脑。但是和任何新技术一样，还有很多东西需要学习。这里是你应该知道的关于你的固态硬盘的一切，无论你是对升级感兴趣还是只想知道你的硬件的来龙去脉。
 

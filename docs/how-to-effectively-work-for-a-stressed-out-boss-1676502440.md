@@ -1,6 +1,6 @@
 # 如何有效地为压力重重的老板工作
 
-> 原文:[https://life hacker . com/how-to-effectively-work for-a-stress-out-boss-1676502440](https://lifehacker.com/how-to-effectively-work-for-a-stressed-out-boss-1676502440)
+> 原文：<https://lifehacker.com/how-to-effectively-work-for-a-stressed-out-boss-1676502440>
 
 这是一个恶性循环:你可以告诉你的老板压力很大，所以你试图做更多的事情让他们开心。但是你越是过度表达，他们似乎就越不回应，你就变得沮丧。你如何与一个 [不一定很坏](https://lifehacker.com/your-boss-is-bad-for-you-why-bad-bosses-infect-your-li-5888886) 或 [疯狂](http://lifehacker.com/how-to-deal-with-your-crazy-boss-5825982) 但看起来不知所措的老板共事？
 

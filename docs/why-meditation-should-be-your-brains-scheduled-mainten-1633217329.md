@@ -1,6 +1,6 @@
 # 为什么冥想应该是你大脑的“定期维护”
 
-> 原文:[https://life hacker . com/why-冥想-应该是你的大脑-预定-mainten-1633217329](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329)
+> 原文：<https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-FAcTIrA2Qhk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-FAcTIrA2Qhk&start=0) 
 

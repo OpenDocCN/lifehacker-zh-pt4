@@ -1,6 +1,6 @@
 # 如何开始使用 LittleBits 狄莺任何东西
 
-> 原文:[https://life hacker . com/how-to-get-started-狄莺-任何有小比特的东西-1617311793](https://lifehacker.com/how-to-get-started-diying-anything-with-littlebits-1617311793)
+> 原文：<https://lifehacker.com/how-to-get-started-diying-anything-with-littlebits-1617311793>
 
 用电子设备制作东西很难，但是如果你刚刚开始，littleBits 是一种开始尝试各种项目的简单方法。你可以立即将现实世界的组件连接到云端，编写 [如果这然后是](https://ifttt.com/) 食谱，甚至将它们都连接到一个 Arduino。以下是如何开始使用它们。
 

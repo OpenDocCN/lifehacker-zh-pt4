@@ -1,6 +1,6 @@
 # 成为一名职业程序员真正需要什么
 
-> 原文:[https://life hacker . com/what-it-really-take-to-a-be-a-professional-programmer-1674327537](https://lifehacker.com/what-it-really-takes-to-be-a-professional-programmer-1674327537)
+> 原文：<https://lifehacker.com/what-it-really-takes-to-be-a-professional-programmer-1674327537>
 
 专业编程不仅仅是写代码。从与团队合作解决问题到版本控制，如果没有其他关键技能的工具包，你将无法进入大联盟。我们问了你和其他一些专业开发人员，那些技能是什么，下面是我们学到的。
 

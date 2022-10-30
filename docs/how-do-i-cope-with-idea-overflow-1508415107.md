@@ -1,6 +1,6 @@
 # 我如何应对“想法溢出”？
 
-> 原文:[https://life hacker . com/how-do-I-cope-with-idea-overflow-1508415107](https://lifehacker.com/how-do-i-cope-with-idea-overflow-1508415107)
+> 原文：<https://lifehacker.com/how-do-i-cope-with-idea-overflow-1508415107>
 
 写下你的想法，忘掉它们，然后埋头苦干。扼杀过度活跃的头脑是可能的。个人生产力专家在[*Stack Exchange*](http://productivity.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=productivity-102)*提供完成工作的建议。*
 

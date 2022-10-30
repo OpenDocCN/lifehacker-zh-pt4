@@ -1,6 +1,6 @@
 # 层叠桌面
 
-> 原文:[https://lifehacker.com/the-cascading-desktop-1599156834](https://lifehacker.com/the-cascading-desktop-1599156834)
+> 原文：<https://lifehacker.com/the-cascading-desktop-1599156834>
 
 Flickr 用户 [深刻 Grafx](https://www.flickr.com/photos/profoundgrafx/) 对坞站和发射器情有独钟。这个桌面就是一个证明，但它也保持游戏，生产力工具，网站，媒体，更整齐地分离和组织。这是所有设置的方式。
 

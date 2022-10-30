@@ -1,6 +1,6 @@
 # 原子多边形桌面
 
-> 原文:[https://life hacker . com/the-atomic-polygon-desktop-1557300850](https://lifehacker.com/the-atomic-polygon-desktop-1557300850)
+> 原文：<https://lifehacker.com/the-atomic-polygon-desktop-1557300850>
 
 这个桌面上的图标又大又亮，但这并没有让 Flickr 用户 [Aswath](http://www.flickr.com/photos/101083521@N04/) 的这个桌面变得不那么有趣。这是乐趣和功能的完美结合，非常适合笔记本电脑显示器。他是这样设置的。
 

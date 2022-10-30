@@ -1,6 +1,6 @@
 # 当你建造自己的电脑时如何省钱
 
-> 原文:[https://life hacker . com/how-to-save-money-when-you-build-your-own-PC-511195742](https://lifehacker.com/how-to-save-money-when-you-build-your-own-pc-511195742)
+> 原文：<https://lifehacker.com/how-to-save-money-when-you-build-your-own-pc-511195742>
 
 电脑很贵，如果你预算有限，每一美元都很重要。如果你选择正确的部件，在正确的商店购物，并使用一些简单的技巧，你可以在新电脑上节省相当多的钱。
 

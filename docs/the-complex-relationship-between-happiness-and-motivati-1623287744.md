@@ -1,6 +1,6 @@
 # 快乐和动机之间的复杂关系
 
-> 原文:[https://life hacker . com/the-complex-relationship-between-happy-and-motivati-1623287744](https://lifehacker.com/the-complex-relationship-between-happiness-and-motivati-1623287744)
+> 原文：<https://lifehacker.com/the-complex-relationship-between-happiness-and-motivati-1623287744>
 
 每个人都被自己的梦想和抱负所驱使，但是仔细观察幸福和动力之间的复杂关系可能会给我们一个提示，是什么驱使人们把工作做得最好。快乐会驱动动力吗？
 

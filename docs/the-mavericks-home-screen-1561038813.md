@@ -1,6 +1,6 @@
 # 小牛队的主屏幕
 
-> 原文:[https://lifehacker.com/the-mavericks-home-screen-1561038813](https://lifehacker.com/the-mavericks-home-screen-1561038813)
+> 原文：<https://lifehacker.com/the-mavericks-home-screen-1561038813>
 
 如果你喜欢你的安卓手机有苹果风格的一面，我的彩屏用户车乐·斯泰尔分享了一个从 OS X Mavericks 获得灵感的主屏幕。
 

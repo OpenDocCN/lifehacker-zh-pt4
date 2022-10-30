@@ -1,6 +1,6 @@
 # 如何辨别你的健康保险是否涵盖精神健康治疗
 
-> 原文:[https://life hacker . com/how-to-tell-if-your ' s health-insurance-covers-mental-heal-1625153418](https://lifehacker.com/how-to-tell-if-your-health-insurance-covers-mental-heal-1625153418)
+> 原文：<https://lifehacker.com/how-to-tell-if-your-health-insurance-covers-mental-heal-1625153418>
 
 对一些人来说，与精神疾病相关的耻辱使他们不愿寻求帮助，但其他人可能只是因为不确定他们是否负担得起或他们的健康保险是否涵盖它而回避治疗。
 

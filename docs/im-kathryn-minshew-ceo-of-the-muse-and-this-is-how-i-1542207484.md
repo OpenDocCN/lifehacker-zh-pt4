@@ -1,6 +1,6 @@
 # 我是凯瑟琳·明舍，缪斯的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Kathryn-min shew-the-muse-and-this-is-how-I-1542207484](https://lifehacker.com/im-kathryn-minshew-ceo-of-the-muse-and-this-is-how-i-1542207484)
+> 原文：<https://lifehacker.com/im-kathryn-minshew-ceo-of-the-muse-and-this-is-how-i-1542207484>
 
 28 岁的凯瑟琳·敏舍正在以极快的速度发展她的 [职业建议和求职工具](http://www.themuse.com/) 缪斯。Muse 于 2011 年推出，只有不到 3000 美元和一个小型的作家和编辑团队，现在每月用户超过 100 万。在加入 Muse 之前，Kathryn 在克林顿健康计划工作，专注于非洲的疫苗获取。我采访了这位忙碌的企业家，讨论了节省时间的技巧、工作空间、泰勒·斯威夫特等等。
 

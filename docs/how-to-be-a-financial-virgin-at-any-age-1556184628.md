@@ -1,6 +1,6 @@
 # 如何在任何年龄重新启动你的财务
 
-> 原文:[https://life hacker . com/how-to-be-a-a-what-any-age-1556184628](https://lifehacker.com/how-to-be-a-financial-virgin-at-any-age-1556184628)
+> 原文：<https://lifehacker.com/how-to-be-a-financial-virgin-at-any-age-1556184628>
 
 任何人都可能在财务方面搞得一团糟——无论是负债太多，把 401(k)当成存钱罐，还是买了一栋超出你实际支付能力的房子。但是你仍然有机会进行金融改革。有第二次机会这种东西。
 

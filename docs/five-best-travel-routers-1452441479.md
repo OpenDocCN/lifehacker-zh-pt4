@@ -1,6 +1,6 @@
 # 五款最佳旅行路由器
 
-> 原文:[https://lifehacker.com/five-best-travel-routers-1452441479](https://lifehacker.com/five-best-travel-routers-1452441479)
+> 原文：<https://lifehacker.com/five-best-travel-routers-1452441479>
 
 如果你在旅途中带着你的小工具，一个好的旅行路由器将帮助你在你的酒店、办公室或任何其他地方与他们共享 Wi-Fi。最好的产品没有麻烦，安装简单，小巧，可以很好地放在手提包里。有些人甚至会在你的设备连接时给它们充电。本周，我们将根据您的提名，来看看五款最佳旅行路由器。
 

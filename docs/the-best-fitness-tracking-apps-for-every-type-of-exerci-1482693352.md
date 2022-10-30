@@ -1,6 +1,6 @@
 # 适用于各种锻炼的最佳健身追踪应用
 
-> 原文:[https://life hacker . com/the-best-fitness-tracking-apps-for-every-type-of-exercise ci-1482693352](https://lifehacker.com/the-best-fitness-tracking-apps-for-every-type-of-exerci-1482693352)
+> 原文：<https://lifehacker.com/the-best-fitness-tracking-apps-for-every-type-of-exerci-1482693352>
 
 如果你仔细阅读 Google Play 或 iTunes 应用商店上的健康和健身类别，你会看到数以千计的活动跟踪器，它们会自动跟踪你的位置、步数、跑步、骑自行车等。这有点让人不知所措，所以这里有一些我们在不同类别中最喜欢的。
 

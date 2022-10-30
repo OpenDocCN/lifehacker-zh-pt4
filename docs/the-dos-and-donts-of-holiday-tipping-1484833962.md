@@ -1,6 +1,6 @@
 # 假日小费的注意事项
 
-> 原文:[https://life hacker . com/the-dos and-donts of-holiday-tipping-1484833962](https://lifehacker.com/the-dos-and-donts-of-holiday-tipping-1484833962)
+> 原文：<https://lifehacker.com/the-dos-and-donts-of-holiday-tipping-1484833962>
 
 你会给环卫工人或邮递员小费吗？咖啡师上假日班怎么样？假日小费的问题让许多人想知道，作为扮演圣诞老人的年度仪式的一部分，该给(或不给)多大(或多小)的小费。
 

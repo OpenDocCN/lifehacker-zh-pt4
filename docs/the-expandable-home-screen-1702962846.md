@@ -1,6 +1,6 @@
 # 可扩展的主屏幕
 
-> 原文:[https://life hacker . com/the-expandable-home-screen-1702962846](https://lifehacker.com/the-expandable-home-screen-1702962846)
+> 原文：<https://lifehacker.com/the-expandable-home-screen-1702962846>
 
 有时候，少即是多。今天的主屏幕保持简单，开放的主屏幕有透气的空间。向右滑动，你会看到一个覆盖图，上面布满了最少的插件。
 

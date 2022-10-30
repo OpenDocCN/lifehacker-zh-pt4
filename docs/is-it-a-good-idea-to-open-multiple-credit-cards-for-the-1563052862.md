@@ -1,6 +1,6 @@
 # 为了奖励开多张信用卡是个好主意吗？
 
-> 原文:[https://life hacker . com/为 1563052862 人开多张信用卡是个好主意吗](https://lifehacker.com/is-it-a-good-idea-to-open-multiple-credit-cards-for-the-1563052862)
+> 原文：<https://lifehacker.com/is-it-a-good-idea-to-open-multiple-credit-cards-for-the-1563052862>
 
 你曾经为了得到奖励而注册信用卡吗？在信用卡奖励爱好者中，为了赚取多次签约奖金而申请众多卡的策略被称为 [信用卡翻腾](http://blog.credit.com/2014/01/upgrade-your-credit-card-73859/?utm_source=Lifehacker&utm_medium=content&utm_content=IB_1&utm_campaign=CC_churning) 。但这是一个好的做法吗，它会影响你的信用评分吗？
 

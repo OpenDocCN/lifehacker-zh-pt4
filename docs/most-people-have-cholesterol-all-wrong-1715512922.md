@@ -1,6 +1,6 @@
 # 大多数人的胆固醇都错了
 
-> 原文:[https://life hacker . com/most-people-hacket-all-wrong-1715512922](https://lifehacker.com/most-people-have-cholesterol-all-wrong-1715512922)
+> 原文：<https://lifehacker.com/most-people-have-cholesterol-all-wrong-1715512922>
 
 你知道哪些食物含有好的胆固醇，哪些含有坏的胆固醇吗？如果你认为你有，哈！这是个棘手的问题！我们食物中的胆固醇没有“好的”和“坏的”之分，但血液测试中的胆固醇读数有，而且这两者并不像我们过去认为的那样密切相关。
 

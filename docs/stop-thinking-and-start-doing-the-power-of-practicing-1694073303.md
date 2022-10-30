@@ -1,6 +1,6 @@
 # 停止思考，开始行动:多练习的力量
 
-> 原文:[https://life hacker . com/stop-thinking-and-start-do-the-power of-practice-1694073303](https://lifehacker.com/stop-thinking-and-start-doing-the-power-of-practicing-1694073303)
+> 原文：<https://lifehacker.com/stop-thinking-and-start-doing-the-power-of-practicing-1694073303>
 
 我们都有想要在生活中实现的目标。这些目标可能包括学习一门新语言，吃得更健康和减肥，成为一个更好的父母，存更多的钱，等等。但是有一个时间点，你需要停止计划这些目标，开始朝着它们努力。
 

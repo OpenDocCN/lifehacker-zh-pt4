@@ -1,6 +1,6 @@
 # 故意节食失败的好处
 
-> 原文:[https://life hacker . com/the-benefits-of-intentional-failed-on-your diet-1682610160](https://lifehacker.com/the-benefits-of-intentionally-failing-on-your-diet-1682610160)
+> 原文：<https://lifehacker.com/the-benefits-of-intentionally-failing-on-your-diet-1682610160>
 
 我听过很多人们节食失败的原因。其中被引用最多的是“生活碍事”婚礼、单身派对或欢乐时光甚至会让那些自诩意志力最强的人出轨。这里有一个非常简单的解决方案，它经常被忽视。
 

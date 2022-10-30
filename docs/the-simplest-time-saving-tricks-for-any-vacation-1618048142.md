@@ -1,6 +1,6 @@
 # 任何假期最简单的省时窍门
 
-> 原文:[https://life hacker . com/the-simple-time-saving-tricks-for-any-vacation-1618048142](https://lifehacker.com/the-simplest-time-saving-tricks-for-any-vacation-1618048142)
+> 原文：<https://lifehacker.com/the-simplest-time-saving-tricks-for-any-vacation-1618048142>
 
 你的假期应该是放松，而不是浪费时间去那里。根据这些节省时间的建议，减少放松和享受生活的压力。
 

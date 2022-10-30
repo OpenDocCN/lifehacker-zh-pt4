@@ -1,6 +1,6 @@
 # 你应该保存你的财务文件多长时间
 
-> 原文:[https://life hacker . com/how-long-should-I-keep-my-financial-documents-1546666865](https://lifehacker.com/how-long-should-i-keep-my-financial-documents-1546666865)
+> 原文：<https://lifehacker.com/how-long-should-i-keep-my-financial-documents-1546666865>
 
 到了缴税的时候，我们可能都在翻那些积了多年灰尘的文件:旧的纳税申报表、公用事业账单、信用卡账单。它恰好与一年中春季大扫除的时间相吻合。但是哪些文件应该保留，哪些可以折腾呢？是否需要撕碎，以免引诱身份窃贼？
 

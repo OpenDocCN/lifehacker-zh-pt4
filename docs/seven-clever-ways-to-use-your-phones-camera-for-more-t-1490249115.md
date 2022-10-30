@@ -1,6 +1,6 @@
 # 七种巧妙的方法让你的手机摄像头不仅仅是用来拍照
 
-> 原文:[https://life hacker . com/seven-smart-ways-to-use-your-phones-camera-for-more-t-1490249115](https://lifehacker.com/seven-clever-ways-to-use-your-phones-camera-for-more-t-1490249115)
+> 原文：<https://lifehacker.com/seven-clever-ways-to-use-your-phones-camera-for-more-t-1490249115>
 
 智能手机相机越来越好，但它们可以做的不仅仅是拍摄美丽的照片。他们可以把你的智能手机变成一个翻译器，产品价格匹配器，扫描仪等等。你只需要知道如何使用它。
 

@@ -1,6 +1,6 @@
 # 史蒂夫·乔布斯的最佳生产率诀窍
 
-> 原文:[https://life hacker . com/Steve-jobs-best-productivity-tricks-1632476352](https://lifehacker.com/steve-jobs-best-productivity-tricks-1632476352)
+> 原文：<https://lifehacker.com/steve-jobs-best-productivity-tricks-1632476352>
 
 不管你对苹果的感觉如何， [史蒂夫·乔布斯](http://en.wikipedia.org/wiki/Steve_Jobs) 是一位多产的 CEO，他不仅仅是公司的代言人。在他 2011 年去世之前，他设法改变了苹果的面貌，并提供了一个因其生产力而受到称赞的独特工作场所。让我们来看看他做这件事的几种方式。
 

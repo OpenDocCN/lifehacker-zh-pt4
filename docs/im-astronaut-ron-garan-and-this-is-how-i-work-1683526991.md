@@ -1,6 +1,6 @@
 # 我是宇航员罗恩·嘎兰，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Australia n-Ron-garan-and-this-is-how-I-work-1683526991](https://lifehacker.com/im-astronaut-ron-garan-and-this-is-how-i-work-1683526991)
+> 原文：<https://lifehacker.com/im-astronaut-ron-garan-and-this-is-how-i-work-1683526991>
 
 或许从远处看，地球面临的挑战会变得更加清晰。这就是罗恩·嘎兰上校的经历，他是一名宇航员、资深战斗机飞行员和社会企业家，倡导国际合作和同情，以帮助我们解决世界问题。
 

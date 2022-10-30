@@ -1,6 +1,6 @@
 # 成功人士最大的失败(以及他们如何东山再起)
 
-> 原文:[https://life hacker . com/the-maximum-failures-of-successful-people-how-they-1642858952](https://lifehacker.com/the-biggest-failures-of-successful-people-and-how-they-1642858952)
+> 原文：<https://lifehacker.com/the-biggest-failures-of-successful-people-and-how-they-1642858952>
 
 当你搞砸了，丢了球，搞砸了，或者经历了一次史诗般的失败，你会觉得世界末日到了，你的职业生涯也完蛋了。第一:深呼吸，放轻松。你不是第一个遭遇失败的人。事实上，世界上一些最成功、最有影响力、最鼓舞人心的人都遭遇过一些重大的失败。
 

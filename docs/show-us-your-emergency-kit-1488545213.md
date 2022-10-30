@@ -1,6 +1,6 @@
 # 给我们看看你的急救包
 
-> 原文:[https://life hacker . com/show-us-your-emergency-kit-1488545213](https://lifehacker.com/show-us-your-emergency-kit-1488545213)
+> 原文：<https://lifehacker.com/show-us-your-emergency-kit-1488545213>
 
 应急包可以有多种形式:简单的急救、生存、汽车的季节性需求，甚至是在非常糟糕的时候使用的成熟的末日包。不管你做了什么样的急救包，我们都想看看。
 

@@ -1,6 +1,6 @@
 # 哪些桌面电子邮件客户端比网络邮件做得更好
 
-> 原文:[https://life hacker . com/what-desktop-email-clients-still-do-better-than-webmail-1552450068](https://lifehacker.com/what-desktop-email-clients-still-do-better-than-webmail-1552450068)
+> 原文：<https://lifehacker.com/what-desktop-email-clients-still-do-better-than-webmail-1552450068>
 
 网络邮件很棒，可移植，随处可访问，但是桌面邮件客户端也有很多好处。从你可以信赖的加密到简单的备份，有许多很棒的功能你只能通过像邮箱、雷鸟或 Outlook 这样的桌面客户端来获得，或者很容易获得。这里有一些最好的。
 

@@ -1,6 +1,6 @@
 # 用我们喜欢的东西送上令人敬畏的礼物
 
-> 原文:[https://life hacker . com/give-the-give-gift-of-awesome-with-things-like-1671247401](https://lifehacker.com/give-the-gift-of-awesome-with-stuff-we-like-1671247401)
+> 原文：<https://lifehacker.com/give-the-gift-of-awesome-with-stuff-we-like-1671247401>
 
 每年，我们都会发现很多我们喜欢的很酷的东西，因为它们就是很酷。它们可能不适合某个特定的类别，所以这就是它们的最终位置。这里有一些我们喜欢的最有趣的东西。
 

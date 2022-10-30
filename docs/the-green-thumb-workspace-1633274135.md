@@ -1,6 +1,6 @@
 # 绿色拇指工作区
 
-> 原文:[https://lifehacker.com/the-green-thumb-workspace-1633274135](https://lifehacker.com/the-green-thumb-workspace-1633274135)
+> 原文：<https://lifehacker.com/the-green-thumb-workspace-1633274135>
 
 你知道吗，在工作中，植物会让你更快乐，效率提高 15%？如果是这样的话，今天的特色工作区的所有者一定是非常高效的。
 

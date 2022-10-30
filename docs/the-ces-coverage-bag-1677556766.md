@@ -1,6 +1,6 @@
 # CES 报道包
 
-> 原文:[https://lifehacker.com/the-ces-coverage-bag-1677556766](https://lifehacker.com/the-ces-coverage-bag-1677556766)
+> 原文：<https://lifehacker.com/the-ces-coverage-bag-1677556766>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-eTsSXzApUco&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-eTsSXzApUco&start=0) 
 

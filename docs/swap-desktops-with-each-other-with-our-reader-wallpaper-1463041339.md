@@ -1,6 +1,6 @@
 # 使用我们的 Reader 壁纸包 9.0 互相交换桌面
 
-> 原文:[https://life hacker . com/swap-desktops-with-other-with-our-reader-wallpaper-1463041339](https://lifehacker.com/swap-desktops-with-each-other-with-our-reader-wallpaper-1463041339)
+> 原文：<https://lifehacker.com/swap-desktops-with-each-other-with-our-reader-wallpaper-1463041339>
 
 我们发现的一些最好的壁纸来自你。你可以在网上找到很棒的东西，或者自己动手制作。这些壁纸并不总是适合一个类别，因此阅读器壁纸包就诞生了。这是我们的第九个。来看看你的读者朋友们的一些精彩图片吧。
 

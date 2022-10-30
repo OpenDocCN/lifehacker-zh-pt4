@@ -1,6 +1,6 @@
 # 如何选择你的人生伴侣
 
-> 原文:[https://Jezebel . com/how-to-pick-your life-partner-1530769033](https://jezebel.com/how-to-pick-your-life-partner-1530769033)
+> 原文：<https://jezebel.com/how-to-pick-your-life-partner-1530769033>
 
 对于一个失意的单身人士来说，生活常常是这样的:
 

@@ -1,6 +1,6 @@
 # 如何用社交媒体到处省钱
 
-> 原文:[https://life hacker . com/how-to-use-your-social-media-accounts-to-be-a-money-1692249972](https://lifehacker.com/how-to-use-your-social-media-accounts-to-become-a-money-1692249972)
+> 原文：<https://lifehacker.com/how-to-use-your-social-media-accounts-to-become-a-money-1692249972>
 
 社交媒体对于查看你前任的个人资料和邻居的度假照片很有用，但它真正的作用在于为你省钱。你可以找到优惠券，交易，甚至直接与公司谈判。这里有一些简单的方法来利用这些联系，从日常购物到每月账单，为每一件事省钱。
 

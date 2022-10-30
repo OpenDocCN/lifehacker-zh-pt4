@@ -1,6 +1,6 @@
 # 如果你附近爆发麻疹，该怎么办
 
-> 原文:[https://life hacker . com/1684708438](https://lifehacker.com/what-to-do-if-theres-a-measles-outbreak-near-you-1684708438)
+> 原文：<https://lifehacker.com/what-to-do-if-theres-a-measles-outbreak-near-you-1684708438>
 
 *本文首次发表于 2015 年 2 月 9 日。我们今天重提此事是为了应对美国不断增加的* [*麻疹病例*](https://vitals.lifehacker.com/do-you-need-another-measles-vaccine-1834241586?_ga=2.215603415.1795354313.1556112068-777882226.1547155109)
 

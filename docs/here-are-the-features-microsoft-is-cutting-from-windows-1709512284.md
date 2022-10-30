@@ -1,6 +1,6 @@
 # 以下是微软从 Windows 10 中删减的功能
 
-> 原文:[https://gizmodo . com/here-are-the-features-Microsoft-is-cutting-from-windows-1709512284](https://gizmodo.com/here-are-the-features-microsoft-is-cutting-from-windows-1709512284)
+> 原文：<https://gizmodo.com/here-are-the-features-microsoft-is-cutting-from-windows-1709512284>
 
 Windows 10 即将到来，虽然没有立即从 8.1 甚至 7 升级的需要，但很可能你最终会想要进行升级。在你这么做之前，你最好看看 Windows 10 的“功能弃用部分”，确保你最喜欢的 [功能没有从最新发布的](http://www.gizmodo.com.au/2015/06/six-reasons-its-worth-being-cautious-about-windows-10/) 中被删除。
 

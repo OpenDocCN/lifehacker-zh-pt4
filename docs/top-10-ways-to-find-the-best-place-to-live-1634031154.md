@@ -1,6 +1,6 @@
 # 寻找最佳居住地的十大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-find-the-best-place-to-live-1634031154](https://lifehacker.com/top-10-ways-to-find-the-best-place-to-live-1634031154)
+> 原文：<https://lifehacker.com/top-10-ways-to-find-the-best-place-to-live-1634031154>
 
 你应该搬到哪里去？在哪里你会有家的感觉？这些都是需要考虑许多变量的复杂问题，所以今天我们来看看为你找到合适的社区(或城市或州)的技巧，以及可能揭示为什么一些地区对你来说比其他地区更有吸引力或更没有吸引力的地图和统计数据。
 

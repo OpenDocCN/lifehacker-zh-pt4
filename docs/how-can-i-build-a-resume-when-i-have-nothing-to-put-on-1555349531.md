@@ -1,6 +1,6 @@
 # 没什么可放的，怎么建简历？
 
-> 原文:[https://life hacker . com/how-can-I-build-a-resume-when-I ' s not-to-put-on-1555349531](https://lifehacker.com/how-can-i-build-a-resume-when-i-have-nothing-to-put-on-1555349531)
+> 原文：<https://lifehacker.com/how-can-i-build-a-resume-when-i-have-nothing-to-put-on-1555349531>
 
 亲爱的生活黑客，我正在找工作，但我的简历却很空白。我只在几个地方工作过，我不太确定我的推荐人，我担心我所拥有的不能和其他候选人相提并论。我还能写一份能让我脱颖而出的好简历吗？
 

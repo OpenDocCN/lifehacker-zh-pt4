@@ -1,6 +1,6 @@
 # 当你得到一部新手机时，你应该检查的每一个 iOS 设置
 
-> 原文:[https://life hacker . com/every-IOs-setting-you-should-check-when-you-get-a-new-p-1726908274](https://lifehacker.com/every-ios-setting-you-should-check-when-you-get-a-new-p-1726908274)
+> 原文：<https://lifehacker.com/every-ios-setting-you-should-check-when-you-get-a-new-p-1726908274>
 
 曾几何时，iOS 开箱即用。但是这些年来，苹果给 iOS 引入了我们大多数人不想使用的各种功能。我从一开始就是 iOS 用户，最近第一次决定进行全新安装，而不是从备份中加载我的设置。我忘了为了让 iOS 可用，我必须更改多少默认设置
 

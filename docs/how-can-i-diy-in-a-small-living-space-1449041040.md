@@ -1,6 +1,6 @@
 # 如何在狭小的生活空间里 DIY？
 
-> 原文:[https://life hacker . com/how-can-I-DIY-in-a-small-living-space-1449041040](https://lifehacker.com/how-can-i-diy-in-a-small-living-space-1449041040)
+> 原文：<https://lifehacker.com/how-can-i-diy-in-a-small-living-space-1449041040>
 
 亲爱的 Lifehacker，
 我喜欢 DIY 项目——无论是家用的还是电子的——但是我住在城市的公寓里，没有太多的工作空间。我怎样才能自己动手修理，而不用担心油烟、储存、锯屑，或者用电动工具的噪音打扰邻居？

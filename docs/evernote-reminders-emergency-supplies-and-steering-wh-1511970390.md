@@ -1,6 +1,6 @@
 # Evernote 提醒、应急物资和方向盘
 
-> 原文:[https://life hacker . com/evernote-reminders-emergency-supplies-and-steering-wh-1511970390](https://lifehacker.com/evernote-reminders-emergency-supplies-and-steering-wh-1511970390)
+> 原文：<https://lifehacker.com/evernote-reminders-emergency-supplies-and-steering-wh-1511970390>
 
 读者们提供了在 Evernote 中查找完整提醒、在好市多购买应急用品以及制作自己的方向盘包装的最佳技巧。
 

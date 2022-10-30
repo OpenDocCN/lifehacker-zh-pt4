@@ -1,6 +1,6 @@
 # 将您的手写内容转换成数字笔记，两全其美
 
-> 原文:[https://life hacker . com/convert-handled-notes-to-digital-text-for-the-best-1583892163](https://lifehacker.com/convert-handwritten-notes-to-digital-text-for-the-best-1583892163)
+> 原文：<https://lifehacker.com/convert-handwritten-notes-to-digital-text-for-the-best-1583892163>
 
 随着世界对应用程序和智能手机的痴迷，人们很容易忘记一张简单的手写便条有时是记录你想法的最简单方式。幸运的是，您仍然可以获得可搜索、可同步的手写笔记数据库的好处，并获得两个世界的最佳效果。
 

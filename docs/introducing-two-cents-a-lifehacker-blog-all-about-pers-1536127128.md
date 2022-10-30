@@ -1,6 +1,6 @@
 # 介绍两分钱:一个关于个人理财的 Lifehacker 博客
 
-> 原文:[https://life hacker . com/introducing-two-cents-a-life hacker-blog-all-about-pers-1536127128](https://lifehacker.com/introducing-two-cents-a-lifehacker-blog-all-about-pers-1536127128)
+> 原文：<https://lifehacker.com/introducing-two-cents-a-lifehacker-blog-all-about-pers-1536127128>
 
 你可能已经在 Lifehacker 的 看到了一些子博客，在这里我们可以更深入地研究特定主题或探索新事物。今天，我们推出了两美分，一个致力于个人理财的生活黑客子博客。
 

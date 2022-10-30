@@ -1,6 +1,6 @@
 # 招聘经理真正想了解你的什么
 
-> 原文:[https://life hacker . com/what-hiring-managers-actually-want-to-know-on-you-1684287238](https://lifehacker.com/what-hiring-managers-actually-want-to-know-about-you-1684287238)
+> 原文：<https://lifehacker.com/what-hiring-managers-actually-want-to-know-about-you-1684287238>
 
 当面试官问你关于你自己的情况时，他们当然想了解关于 [你以前的经历和资历](https://lifehacker.com/what-the-people-reading-your-resume-wish-you-knew-1680315298) ，但那只是一部分。他们在考虑给你一份工作时，真的在试图衡量各种因素，比如你与公司的契合程度等等。
 

@@ -1,6 +1,6 @@
 # 为什么宫内节育器是你完美的避孕方法
 
-> 原文:[https://life hacker . com/why-the-IUD-can-be-your-perfect-节育方法-1718250795](https://lifehacker.com/why-the-iud-could-be-your-perfect-birth-control-method-1718250795)
+> 原文：<https://lifehacker.com/why-the-iud-could-be-your-perfect-birth-control-method-1718250795>
 
 宫内节育器，或称 [宫内节育器](https://en.wikipedia.org/wiki/Intrauterine_device) 最近重新流行起来，目前是美国医生最推荐的避孕方式。如果你需要避孕，以下是你应该考虑的原因。
 

@@ -1,6 +1,6 @@
 # 工具学校:精确而不知疲倦的钻床
 
-> 原文:[https://life hacker . com/tool-school-the-accurate-and-irritable-drill-press-1723561845](https://lifehacker.com/tool-school-the-accurate-and-tireless-drill-press-1723561845)
+> 原文：<https://lifehacker.com/tool-school-the-accurate-and-tireless-drill-press-1723561845>
 
 一个钻床比一个标准的手持钻孔机提供更好的精确度和更大的力量。这就是为什么它应该是你投资的第一批独立商店工具之一。
 

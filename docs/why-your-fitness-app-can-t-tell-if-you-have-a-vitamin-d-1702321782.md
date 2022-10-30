@@ -1,6 +1,6 @@
 # 为什么你的健身应用程序不能判断你是否缺乏维生素
 
-> 原文:[https://life hacker . com/why-your-fitness-app-can-t-tell-if-you-a-vitamin-d-1702321782](https://lifehacker.com/why-your-fitness-app-can-t-tell-if-you-have-a-vitamin-d-1702321782)
+> 原文：<https://lifehacker.com/why-your-fitness-app-can-t-tell-if-you-have-a-vitamin-d-1702321782>
 
 饮食跟踪工具通常包括你正在(或没有)摄入的维生素和矿物质的数据。虽然以此为动机多吃一些蔬菜是好的，但你不应该妄下结论，认为你缺乏维生素或需要大剂量补充。原因如下。
 

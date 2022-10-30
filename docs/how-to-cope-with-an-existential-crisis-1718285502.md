@@ -1,6 +1,6 @@
 # 如何应对生存危机
 
-> 原文:[https://gizmodo . com/how-to-cope-a-an-existence-crisis-1718285502](https://gizmodo.com/how-to-cope-with-an-existential-crisis-1718285502)
+> 原文：<https://gizmodo.com/how-to-cope-with-an-existential-crisis-1718285502>
 
 尽管存在怪异之处，但我们大多数人都能够继续生活，避免绝望、个人失败和宇宙无意义的衰弱感。但是每隔一段时间，我们就会被从自满中拽出来，被迫重新评估我们的生活。以下是你需要了解的关于生存危机的知识，以及如何应对它们。
 

@@ -1,6 +1,6 @@
 # 如何买到幸福:最有可能带给你快乐的东西
 
-> 原文:[https://life hacker . com/how-to-buy-happy-the-purchases-most-likely-Brin-1681780686](https://lifehacker.com/how-to-buy-happiness-the-purchases-most-likely-to-brin-1681780686)
+> 原文：<https://lifehacker.com/how-to-buy-happiness-the-purchases-most-likely-to-brin-1681780686>
 
 虽然真正的幸福可能只能在心中找到，但有大量的论据表明金钱确实可以在各处买到一些幸福。这里有一些专家说的方法，可以让你开出一张让你开心的支票。
 

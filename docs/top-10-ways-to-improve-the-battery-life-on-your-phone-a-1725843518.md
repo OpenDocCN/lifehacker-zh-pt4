@@ -1,6 +1,6 @@
 # 提高手机和笔记本电脑电池寿命的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-on-a-1725843518](https://lifehacker.com/top-10-ways-to-improve-the-battery-life-on-your-phone-a-1725843518)
+> 原文：<https://lifehacker.com/top-10-ways-to-improve-the-battery-life-on-your-phone-a-1725843518>
 
 电池不会永远用下去。很快，你就会发现你的笔记本电脑和/或智能手机不再像以前那样耐用了。为了最大限度地延长电池的寿命(有时用户无法更换),并在一天中获得更多电力，请遵循以下十大建议。
 

@@ -1,6 +1,6 @@
 # 如何护理你的包皮:未割包皮男性指南
 
-> 原文:[https://life hacker . com/how-to-take-the-care-of-your-wraith-a-guide-for-un circum-1720796581](https://lifehacker.com/how-to-take-care-of-your-foreskin-a-guide-for-uncircum-1720796581)
+> 原文：<https://lifehacker.com/how-to-take-care-of-your-foreskin-a-guide-for-uncircum-1720796581>
 
 尽管在过去的几十年里，包皮环切术的比率一直在直线下降，但美国大多数成年男性都没有包皮。因为包皮环切术的流行，没有很多关于如何正确护理未割包皮的阴茎的教育。如果你的包皮完好无损，以下是你需要知道的让它保持快乐的方法。
 

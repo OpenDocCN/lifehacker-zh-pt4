@@ -1,6 +1,6 @@
 # 对付有毒人的七个策略
 
-> 原文:[https://life hacker . com/seven-strategies-for-dealing-toxic-people-1714225365](https://lifehacker.com/seven-strategies-for-dealing-with-toxic-people-1714225365)
+> 原文：<https://lifehacker.com/seven-strategies-for-dealing-with-toxic-people-1714225365>
 
 有没有人不断的批评你，告诉你你做不了事情，让你自我感觉很差，甚至对你大吼大叫？这些是有毒的人。处理它们从来都不容易，但这是一个如此困难的问题，以至于值得你考虑一些策略。
 

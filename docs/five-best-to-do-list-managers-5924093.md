@@ -1,6 +1,6 @@
 # 五个最佳待办事项经理
 
-> 原文:[https://life hacker . com/five-best-to-do-list-managers-5924093](https://lifehacker.com/five-best-to-do-list-managers-5924093)
+> 原文：<https://lifehacker.com/five-best-to-do-list-managers-5924093>
 
 找到合适的工具来跟踪你的待办事项是高度个人化的，一个人的最好就是另一个人的垃圾——但是有一些比其他人更好。最好的提供了伟大的同步和日程安排选项，伟大的应用程序，通知和提醒，或者只是功能和灵活性的正确组合，使其易于保持有序。根据你的提名，这里有五个最好的。
 

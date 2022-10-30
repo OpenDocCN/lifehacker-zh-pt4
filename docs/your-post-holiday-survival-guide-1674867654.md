@@ -1,6 +1,6 @@
 # 你的节后生存指南
 
-> 原文:[https://life hacker . com/your-post-holiday-survival-guide-1674867654](https://lifehacker.com/your-post-holiday-survival-guide-1674867654)
+> 原文：<https://lifehacker.com/your-post-holiday-survival-guide-1674867654>
 
 假期结束了。你有一个包着包装纸的客厅，一些要归还的礼物，还有一棵慢慢死去的树。这里是你需要知道的在今年的庆典后清理的一切。
 

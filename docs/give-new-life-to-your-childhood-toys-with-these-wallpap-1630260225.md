@@ -1,6 +1,6 @@
 # 用这些壁纸给你的童年玩具赋予新的生命
 
-> 原文:[https://life hacker . com/give-new-life-to-your-childhood-toys with these-wallpap-1630260225](https://lifehacker.com/give-new-life-to-your-childhood-toys-with-these-wallpap-1630260225)
+> 原文：<https://lifehacker.com/give-new-life-to-your-childhood-toys-with-these-wallpap-1630260225>
 
 玩具可能是面向儿童销售的，但老实说:我们都喜欢沉浸在一点怀旧情绪中。本周，用这些基于玩具的壁纸重温你的童年。
 

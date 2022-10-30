@@ -1,6 +1,6 @@
 # 三星 Galaxy Tab 的评论:天哪，那个显示器
 
-> 原文:[https://gizmodo . com/Samsung-galaxy-tab-s-review-good-Lord-that-display-1595179884](https://gizmodo.com/samsung-galaxy-tab-s-review-good-lord-that-display-1595179884)
+> 原文：<https://gizmodo.com/samsung-galaxy-tab-s-review-good-lord-that-display-1595179884>
 
 过去几年，三星的平板电脑策略一直是把所有能想到的尺寸都扔进商店，看看有没有合适的。他们往往看起来都一样，表现也一样(不太好)，只是在这里和那里有一两英寸的差异。不过，Galaxy Tab S 有所不同。它抓住你的眼球不放。
 

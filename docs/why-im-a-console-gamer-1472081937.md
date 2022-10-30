@@ -1,6 +1,6 @@
 # 为什么我是一个游戏机玩家
 
-> 原文:[https://lifehacker.com/why-im-a-console-gamer-1472081937](https://lifehacker.com/why-im-a-console-gamer-1472081937)
+> 原文：<https://lifehacker.com/why-im-a-console-gamer-1472081937>
 
 随着每一款新主机的发布，我总是要问自己:今年是我回归 PC 游戏并停止购买主机的一年吗？答案每次都是响亮的“不”。原因如下。
 

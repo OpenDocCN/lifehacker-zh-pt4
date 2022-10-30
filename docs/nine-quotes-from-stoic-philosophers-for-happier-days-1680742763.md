@@ -1,6 +1,6 @@
 # 斯多葛派哲学家的九句名言
 
-> 原文:[https://life hacker . com/nine-quotes-from-stoic-philosopher-for-happy-days-1680742763](https://lifehacker.com/nine-quotes-from-stoic-philosophers-for-happier-days-1680742763)
+> 原文：<https://lifehacker.com/nine-quotes-from-stoic-philosophers-for-happier-days-1680742763>
 
 哲学可以是实用的。纵观历史，一些世界上最伟大的人使用斯多葛派哲学来忍受高压环境，并充分利用艰难时期。最重要的是，它们今天仍然适用。
 

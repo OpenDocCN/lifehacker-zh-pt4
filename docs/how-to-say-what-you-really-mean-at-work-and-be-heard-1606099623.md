@@ -1,6 +1,6 @@
 # 如何在工作中说出自己的真实想法(并被别人听到)
 
-> 原文:[https://life hacker . com/how-to-say-what-you-mean-in-work and-be-heard-1606099623](https://lifehacker.com/how-to-say-what-you-really-mean-at-work-and-be-heard-1606099623)
+> 原文：<https://lifehacker.com/how-to-say-what-you-really-mean-at-work-and-be-heard-1606099623>
 
 在工作场所进行交谈经常会让你处理“假话”和无用的行话，以避免冲突和困难的话题，但有时你需要大声说出来，让别人听到。
 

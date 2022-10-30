@@ -1,6 +1,6 @@
 # 更好工作的关键？减少电子邮件，增加流量
 
-> 原文:[https://life hacker . com/the-key to-better-work-email-less-flow-more-1617833183](https://lifehacker.com/the-key-to-better-work-email-less-flow-more-1617833183)
+> 原文：<https://lifehacker.com/the-key-to-better-work-email-less-flow-more-1617833183>
 
 你有没有觉得你所做的只是检查你的电子邮件？事实上，我们在工作中不断回复电子邮件的需求会极大地分散我们对重要任务的注意力，但事情不一定是这样的。你必须重新投入寻找心流——一种深度的专注状态。
 

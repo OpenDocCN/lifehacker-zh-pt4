@@ -1,6 +1,6 @@
 # 你实际使用的最好的厨房和烹饪捷径
 
-> 原文:[https://life hacker . com/the-best-kitchen-and-cooking-shortcut s-you-actual-use-1688520382](https://lifehacker.com/the-best-kitchen-and-cooking-shortcuts-you-actually-use-1688520382)
+> 原文：<https://lifehacker.com/the-best-kitchen-and-cooking-shortcuts-you-actually-use-1688520382>
 
 从 10 秒内将一个 [石榴去籽](https://lifehacker.com/deseed-a-pomegranate-in-10-seconds-using-a-wooden-spoon-5895852) 到 [用水瓶分离一个蛋黄](http://lifehacker.com/separate-eggs-with-a-water-bottle-and-keep-your-hands-m-5936889) ，厨房里有成千上万种节省时间的方法。但是我们中有多少人真正使用了这些技巧呢？让我们列出最好的。
 

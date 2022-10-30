@@ -1,6 +1,6 @@
 # 如何为家人和朋友找到可靠的技术支持
 
-> 原文:[https://life hacker . com/how-to-find-reliable-tech-support-for-family and-friend-1634876092](https://lifehacker.com/how-to-find-reliable-tech-support-for-family-and-friend-1634876092)
+> 原文：<https://lifehacker.com/how-to-find-reliable-tech-support-for-family-and-friend-1634876092>
 
 我们都知道，有些人的设备遇到了技术问题，他们只想把设备修好。他们对学习帮助自己不感兴趣，而且你没有时间在他们每次得到错误信息的时候提供帮助。幸运的是，有办法让他们得到可以求助的帮助——不是你的帮助。以下是方法。
 

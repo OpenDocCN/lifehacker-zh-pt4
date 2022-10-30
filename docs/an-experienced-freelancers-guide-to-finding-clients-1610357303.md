@@ -1,6 +1,6 @@
 # 有经验的自由职业者寻找客户指南
 
-> 原文:[https://life hacker . com/an-experied-freelancers-guide-to-finding-clients-1610357303](https://lifehacker.com/an-experienced-freelancers-guide-to-finding-clients-1610357303)
+> 原文：<https://lifehacker.com/an-experienced-freelancers-guide-to-finding-clients-1610357303>
 
 当你决定从事自由职业时，你可能不知道如何找到客户。但是如果你从研究开始，询问企业他们对自由职业者有什么要求，以及向你的同行征求建议，你的关系网将开始扩大，你将已经知道客户在寻找什么。
 

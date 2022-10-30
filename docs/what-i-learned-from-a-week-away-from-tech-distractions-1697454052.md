@@ -1,6 +1,6 @@
 # 远离科技干扰的一周，我学到了什么
 
-> 原文:[https://life hacker . com/I-what-I-learn-from-a-week-offer-1697454052](https://lifehacker.com/what-i-learned-from-a-week-away-from-tech-distractions-1697454052)
+> 原文：<https://lifehacker.com/what-i-learned-from-a-week-away-from-tech-distractions-1697454052>
 
 我的每一天都充满了电子邮件、pings 和通知。以至于我忘记了远离我已经习惯的所有技术干扰的感觉。以下是我学到的一些经验——或重新学到的——花一周时间远离这一切，以及如何将它们融入你自己的生活。
 

@@ -1,6 +1,6 @@
 # 启动管理器的四倍显示工作区
 
-> 原文:[https://life hacker . com/the-startup-managers-四联-display-workspace-1693371164](https://lifehacker.com/the-startup-managers-quadruple-display-workspace-1693371164)
+> 原文：<https://lifehacker.com/the-startup-managers-quadruple-display-workspace-1693371164>
 
 当你在管理一家由十几个远程团队成员和三十多个实时产品组成的初创公司时，你所拥有的技术会让一切变得不同。该工作站配备了同时运行大量应用程序和任务的设备。
 

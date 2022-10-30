@@ -1,6 +1,6 @@
 # 你的 Android Wear 手表已经可以做到的 11 个愚蠢和令人敬畏的技巧
 
-> 原文:[https://gizmodo . com/11-dumb-and-awesome-your-Android-wear-watch-can-do-1601079356](https://gizmodo.com/11-dumb-and-awesome-your-android-wear-watch-can-do-1601079356)
+> 原文：<https://gizmodo.com/11-dumb-and-awesome-your-android-wear-watch-can-do-1601079356>
 
 智能手表在这里！首批 Android Wear 手表的预购从 [LG](http://gizmodo.com/lg-g-watch-review-a-wearable-youll-actually-consider-1598219864) 和 [三星](http://gizmodo.com/samsung-gear-live-review-thats-a-pretty-big-baby-step-1598386417) 今日发货。但是当你的新玩具真的出现时，你能拿它怎么办呢？可以在手腕上获得通知(！)当然，但还有更多来自那里。以下是一些亮点。
 

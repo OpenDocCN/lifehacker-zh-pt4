@@ -1,6 +1,6 @@
 # 当你在财务改革上一再失败时
 
-> 原文:[https://life hacker . com/when-you-repeally-fail-at-financial-change-1592220821](https://lifehacker.com/when-you-repeatedly-fail-at-financial-change-1592220821)
+> 原文：<https://lifehacker.com/when-you-repeatedly-fail-at-financial-change-1592220821>
 
 在 2004 年、2005 年和 2006 年初，我做了很多无力的尝试来扭转我们的财务状况。我会对自己做出这些小小的承诺，不再花那么多钱，或者开始偿还信用卡。没过多久，这些承诺就土崩瓦解了，不久，我甚至都不相信那些承诺了。
 

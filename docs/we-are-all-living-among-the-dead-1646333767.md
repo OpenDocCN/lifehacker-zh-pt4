@@ -1,6 +1,6 @@
 # 我们都生活在死亡之中
 
-> 原文:[https://gizmodo . com/we-are-all-living-in-the-dead-1646333767](https://gizmodo.com/we-are-all-living-among-the-dead-1646333767)
+> 原文：<https://gizmodo.com/we-are-all-living-among-the-dead-1646333767>
 
 你活得越久，你的日常生活就越有可能被死人占据。你看到一个老朋友，他上周去世了，消失在人群中。你听到去年去世的父亲讲着你曾经喜欢的笑话。这就像一部僵尸电影，只是更加忧郁——而且没有太多显而易见的生存方式。
 

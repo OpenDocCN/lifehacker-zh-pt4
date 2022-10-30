@@ -1,6 +1,6 @@
 # 五种最适合初学者的编程语言
 
-> 原文:[https://life hacker . com/five-best-programming-languages-for-first-students-1494256243](https://lifehacker.com/five-best-programming-languages-for-first-time-learners-1494256243)
+> 原文：<https://lifehacker.com/five-best-programming-languages-for-first-time-learners-1494256243>
 
 如果你正在考虑学习编码，你决定首先学习的语言与你想学什么、你想用这项技能做什么以及你最终想从那里去哪里有很大关系。尽管如此，一些语言比其他语言更容易掌握，有专门的教学社区，或者一旦你学会了它们就能提供更多有用的技能。根据你的提名，这里有五个最好的。
 

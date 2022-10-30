@@ -1,6 +1,6 @@
 # 让艰难严肃的对话更有成效的四种方法
 
-> 原文:[https://life hacker . com/four-way-to-make-different-serious-conversations-more-1691115976](https://lifehacker.com/four-ways-to-make-difficult-serious-conversations-more-1691115976)
+> 原文：<https://lifehacker.com/four-ways-to-make-difficult-serious-conversations-more-1691115976>
 
 艰难的对话——无论是与朋友、家人还是配偶——已经够艰难了，只要一步走错，就可能演变成一场全面的战斗。这里有四种方法来确保你保持他们的生产力，而不是爆炸性的。
 

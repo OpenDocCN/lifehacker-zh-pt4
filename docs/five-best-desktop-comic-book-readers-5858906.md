@@ -1,6 +1,6 @@
 # 五款最佳桌面漫画书阅读器
 
-> 原文:[https://life hacker . com/five-best-desktop-comic-book-readers-5858906](https://lifehacker.com/five-best-desktop-comic-book-readers-5858906)
+> 原文：<https://lifehacker.com/five-best-desktop-comic-book-readers-5858906>
 
 阅读纸质漫画很有趣，但如果你想在笔记本电脑上阅读大量精彩内容，或者在电脑的大显示屏上阅读你最喜欢的标题，你需要一个可靠的漫画阅读器。本周我们将根据你们的提名选出五位最佳选手。
 

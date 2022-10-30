@@ -1,6 +1,6 @@
 # 最好的电脑包是什么？
 
-> 原文:[https://lifehacker.com/whats-the-best-laptop-bag-1616905409](https://lifehacker.com/whats-the-best-laptop-bag-1616905409)
+> 原文：<https://lifehacker.com/whats-the-best-laptop-bag-1616905409>
 
 无论你是带着你的笔记本去上班还是在课间休息，一个好的、结实的电脑包都是合适的。本周，我们想知道你认为哪种包最适合这项工作，是信使包、笔记本电脑包、公文包还是旅行包。
 

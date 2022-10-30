@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:9 月 26 日至 10 月 3 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-9 月 26 日至 10 月 1642159120](https://lifehacker.com/this-weeks-most-popular-posts-september-26th-to-octobe-1642159120)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-september-26th-to-octobe-1642159120>
 
 本周我们 [为我们的亚马逊购物](https://lifehacker.com/top-10-tricks-for-shopping-at-amazon-1639616751)[在照片中更好看](http://lifehacker.com/how-to-look-better-in-photos-based-on-your-body-type-1640221096)[推出了我们自己的原创网飞扩展](http://lifehacker.com/flix-plus-customizes-netflix-to-your-hearts-desire-1640968001) ， [解决了当你的整个生活糟透了的时候该怎么办](http://lifehacker.com/where-to-start-when-it-feels-like-nothing-is-going-righ-1640250197) 。这里回顾一下。
 

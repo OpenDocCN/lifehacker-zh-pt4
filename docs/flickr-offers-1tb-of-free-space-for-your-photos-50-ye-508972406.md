@@ -1,6 +1,6 @@
 # Flickr 为你的照片提供 1TB 的免费空间，没有广告每年 50 美元
 
-> 原文:[https://life hacker . com/Flickr-offers-1tb 的可用空间用于您的照片-50-ye-508972406](https://lifehacker.com/flickr-offers-1tb-of-free-space-for-your-photos-50-ye-508972406)
+> 原文：<https://lifehacker.com/flickr-offers-1tb-of-free-space-for-your-photos-50-ye-508972406>
 
 雅虎试图让其图片托管服务 Flickr 再次发挥作用，决定向所有用户提供 1TB 的免费空间。坏处呢？每年不支付 50 美元的每个人都可以得到广告。
 

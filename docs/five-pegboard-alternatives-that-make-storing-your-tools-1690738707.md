@@ -1,6 +1,6 @@
 # 五种替代钉板，让存放工具变得轻而易举
 
-> 原文:[https://life hacker . com/five-peg board-alternatives-that-make-storing-your-tools-1690738707](https://lifehacker.com/five-pegboard-alternatives-that-make-storing-your-tools-1690738707)
+> 原文：<https://lifehacker.com/five-pegboard-alternatives-that-make-storing-your-tools-1690738707>
 
 在任何地方的车间和车库里，钉板都是常见的景象，但并不是每个人都有墙壁空间或愿望安装一个。这里有几个替代的钉板，为存放(和保护)你的工具提供一个方便安全的地方。
 

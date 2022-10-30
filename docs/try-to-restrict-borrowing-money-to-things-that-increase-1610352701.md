@@ -1,6 +1,6 @@
 # 尽量把借钱限制在增值的东西上
 
-> 原文:[https://life hacker . com/try-to-restrict-lending-money-to-this-the-increase-1610352701](https://lifehacker.com/try-to-restrict-borrowing-money-to-things-that-increase-1610352701)
+> 原文：<https://lifehacker.com/try-to-restrict-borrowing-money-to-things-that-increase-1610352701>
 
 我们大多数人决定是否借钱是基于我们是否有能力很快还清。商业作家 Seth Godin 提出了一个不同的范例:当你买的东西增值时，试着只借钱。
 

@@ -1,6 +1,6 @@
 # 现在的力量:活在当下的冥想方式
 
-> 原文:[https://life hacker . com/the-power of-now-a-meditative-approach-to-living-in-th-1691668213](https://lifehacker.com/the-power-of-now-a-meditative-approach-to-living-in-th-1691668213)
+> 原文：<https://lifehacker.com/the-power-of-now-a-meditative-approach-to-living-in-th-1691668213>
 
 没有比现在更好的时机了。艾克哈特·托尔的《现在的力量》向你展示了如何在古代教义和现代思想的帮助下克服痛苦、压力和焦虑，通过活在当下来平衡你的生活。
 

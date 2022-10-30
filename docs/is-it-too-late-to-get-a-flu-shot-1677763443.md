@@ -1,6 +1,6 @@
 # 现在注射流感疫苗还来得及吗？
 
-> 原文:[https://life hacker . com/is-it-a-tain-to-a-stay-to-a-flu-shot-1677763443](https://lifehacker.com/is-it-too-late-to-get-a-flu-shot-1677763443)
+> 原文：<https://lifehacker.com/is-it-too-late-to-get-a-flu-shot-1677763443>
 
 所以你认识的每个人都生病了，如果你生病了，你就抽不出时间去工作。吃得好、睡得好、经常洗手是有帮助的，但是现在也许你正在后悔今年没有注射流感疫苗。太迟了吗？
 

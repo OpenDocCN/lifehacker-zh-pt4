@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:1 月 16 日至 23 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-1 月 16 日至 23 日 1682758931](https://lifehacker.com/this-weeks-most-popular-posts-january-16th-to-23rd-1682758931)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-january-16th-to-23rd-1682758931>
 
 这一周我们 [固定了姿势](https://lifehacker.com/improve-your-posture-with-these-exercises-from-the-army-1681443896)[改进了电脑显示器](http://lifehacker.com/top-10-ways-to-improve-your-monitor-the-screen-you-sta-1681451262)[买了点幸福](http://lifehacker.com/how-to-buy-happiness-the-purchases-most-likely-to-brin-1681780686)[不再示好](http://lifehacker.com/why-you-should-stop-caring-about-being-nice-and-just-be-1681433778) 。这里回顾一下。
 

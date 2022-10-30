@@ -1,6 +1,6 @@
 # “按日期吃饭”的海量数据库会告诉你食物何时真正过期
 
-> 原文:[https://life hacker . com/eat-by-dates-massive-database-tell-you when-food-reall-1693223406](https://lifehacker.com/eat-by-dates-massive-database-tells-you-when-food-reall-1693223406)
+> 原文：<https://lifehacker.com/eat-by-dates-massive-database-tells-you-when-food-reall-1693223406>
 
 过期日期通常会误导人。 [他们通常指的是质量，而不是安全](https://lifehacker.com/what-do-these-expiration-dates-on-my-food-really-mean-5921708) 。“按日期吃”是一个巨大的食品数据库，它给你真实的保质期，以及许多其他有用的信息。
 

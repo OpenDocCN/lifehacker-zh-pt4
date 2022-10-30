@@ -1,6 +1,6 @@
 # 公共核心的家长指南
 
-> 原文:[https://life hacker . com/the-parents-guide-to-the-common-core-1655150625](https://lifehacker.com/the-parents-guide-to-the-common-core-1655150625)
+> 原文：<https://lifehacker.com/the-parents-guide-to-the-common-core-1655150625>
 
 取决于你问谁,《共同核心州标准》( CCSS)要么是为我们的孩子创造一个更清晰、更一致的教育框架的一个进步……要么是完全的疯狂。以下是家长需要了解的共同核心，以及我们如何在这个陌生的学习环境中帮助我们的孩子。
 

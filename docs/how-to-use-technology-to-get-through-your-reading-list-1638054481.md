@@ -1,6 +1,6 @@
 # 如何利用科技来完成你的阅读清单
 
-> 原文:[https://life hacker . com/how-to-use-technology-to-get-through-your-reading-list-1638054481](https://lifehacker.com/how-to-use-technology-to-get-through-your-reading-list-1638054481)
+> 原文：<https://lifehacker.com/how-to-use-technology-to-get-through-your-reading-list-1638054481>
 
 网上全是你没看过的精彩文章。所以你以后再看的应用程序也是如此，无论是[可读性](https://www.readability.com/)[Instapaper](https://www.instapaper.com/)还是其他。以下是如何在科技的帮助下最终完成阅读清单的方法。
 

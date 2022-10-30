@@ -1,6 +1,6 @@
 # 放射状桌面
 
-> 原文:[https://lifehacker.com/the-radial-desktop-1723652049](https://lifehacker.com/the-radial-desktop-1723652049)
+> 原文：<https://lifehacker.com/the-radial-desktop-1723652049>
 
 读者 [jonredcorn2](https://www.flickr.com/photos/134554762@N08/) 在 Flickr 上分享了这个超级干净的桌面，挤满了有用的信息，有快捷方式和提要，信息丰富但不太忙。他是这样设置的。
 

@@ -1,6 +1,6 @@
 # 做一个更好的病人:你就诊时医生的建议
 
-> 原文:[https://life hacker . com/be-a-better-patient-when-your ' s doctor-suggestion-y-1527394524](https://lifehacker.com/be-a-better-patient-what-your-doctor-recommends-when-y-1527394524)
+> 原文：<https://lifehacker.com/be-a-better-patient-what-your-doctor-recommends-when-y-1527394524>
 
 你和医生的关系是你最重要的关系之一。尽管如此，看医生常常是一件麻烦事。有很多信息要处理，协议和保险要处理，让我们面对它:如果你花时间在医生的办公室，你并不总是处于最佳状态。以下是医生的建议，帮助事情顺利进行。
 

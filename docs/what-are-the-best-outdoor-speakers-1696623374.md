@@ -1,6 +1,6 @@
 # 最好的户外音箱有哪些？
 
-> 原文:[https://life hacker . com/what-is-the-best-outdoor-speakers-1696623374](https://lifehacker.com/what-are-the-best-outdoor-speakers-1696623374)
+> 原文：<https://lifehacker.com/what-are-the-best-outdoor-speakers-1696623374>
 
 随着天气变暖，我们更多的人想在户外度过时光。这并不意味着我们应该放弃我们的音乐。本周我们在寻找最好的户外全天候扬声器，非常适合后院和烧烤。
 

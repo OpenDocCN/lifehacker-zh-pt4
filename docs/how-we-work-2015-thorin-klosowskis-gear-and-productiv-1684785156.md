@@ -1,6 +1,6 @@
 # 我们如何工作，2015:索林·克洛索斯基的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-2015-thorin-klosowskis-gear-and-productivi-1684785156](https://lifehacker.com/how-we-work-2015-thorin-klosowskis-gear-and-productiv-1684785156)
+> 原文：<https://lifehacker.com/how-we-work-2015-thorin-klosowskis-gear-and-productiv-1684785156>
 
 每周，我们都会询问知名人士他们是如何工作的。本周，我们将目光转向自己的肚脐。今天，轮到我了，所以这里有一些我最喜欢的应用程序，技巧，以及我做的其他事情。
 

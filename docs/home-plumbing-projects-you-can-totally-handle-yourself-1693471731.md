@@ -1,6 +1,6 @@
 # 家庭管道工程你完全可以自己处理
 
-> 原文:[https://life hacker . com/home-plumbing-projects-you-can-total-handle-you-self-1693471731](https://lifehacker.com/home-plumbing-projects-you-can-totally-handle-yourself-1693471731)
+> 原文：<https://lifehacker.com/home-plumbing-projects-you-can-totally-handle-yourself-1693471731>
 
 管道工程一开始可能看起来有点令人生畏，但是它们真的不必如此。这里有八个常见的管道维修和更换，你可以自己做，不需要经验。
 

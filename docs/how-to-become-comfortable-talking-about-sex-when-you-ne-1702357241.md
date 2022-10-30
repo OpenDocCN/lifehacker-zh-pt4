@@ -1,6 +1,6 @@
 # 当你从未谈论过性时，如何变得自在
 
-> 原文:[https://life hacker . com/how-to-变得舒适-谈论性-当你-ne-1702357241](https://lifehacker.com/how-to-become-comfortable-talking-about-sex-when-you-ne-1702357241)
+> 原文：<https://lifehacker.com/how-to-become-comfortable-talking-about-sex-when-you-ne-1702357241>
 
 性是最难公开谈论的话题之一，有很多人从来没有和伴侣坦诚地谈论过他们的亲密关系。如果你是一个完全的性交流初学者，这里有一些简单的步骤来帮助你开始。
 

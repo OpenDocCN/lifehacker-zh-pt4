@@ -1,6 +1,6 @@
 # 如何在长途旅行中生存而不发疯
 
-> 原文:[https://life hacker . com/how-to-survive-long-road-trips-without-made-1699784546](https://lifehacker.com/how-to-survive-long-road-trips-without-going-crazy-1699784546)
+> 原文：<https://lifehacker.com/how-to-survive-long-road-trips-without-going-crazy-1699784546>
 
 长途旅行可能会很刺激——也可能会很无聊，让人筋疲力尽。以下是如何做的， [做一点准备](https://lifehacker.com/how-to-plan-the-perfect-road-trip-1581847075) ，你就能确保你 [安然度过你的旅程，而你的理智完好无损](http://lifehacker.com/an-introverts-guide-to-surviving-a-weekend-with-strange-1576554766) 。
 

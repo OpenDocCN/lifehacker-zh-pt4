@@ -1,6 +1,6 @@
 # 如何确保 Lyft 或优步骑手的良好评级，以获得更好的服务
 
-> 原文:[https://life hacker . com/how-to-assure-good-ratings-as-a-a-lyft-or-Uber-rider-for-1658253610](https://lifehacker.com/how-to-ensure-good-ratings-as-a-lyft-or-uber-rider-for-1658253610)
+> 原文：<https://lifehacker.com/how-to-ensure-good-ratings-as-a-lyft-or-uber-rider-for-1658253610>
 
 像 Lyft 和优步这样的拼车服务很棒，因为你可以评价你的司机，但他们也可以评价你。以下是来自优步车手的一些提示，让你获得更高的评分，并把自己变成 VIP 客户。
 

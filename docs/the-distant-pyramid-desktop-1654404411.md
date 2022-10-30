@@ -1,6 +1,6 @@
 # 远处的金字塔桌面
 
-> 原文:[https://life hacker . com/the-distance-pyramid-desktop-1654404411](https://lifehacker.com/the-distant-pyramid-desktop-1654404411)
+> 原文：<https://lifehacker.com/the-distant-pyramid-desktop-1654404411>
 
 我们的朋友 [Dobbie03](http://dobbie03.kinja.com/) 制作了一些非常好看的 Linux 桌面，这款也不例外。在与 Arch 幽会后，他最近搬回了 Manjaro，用一些易于下载的组件构建了这个桌面。以下是您也可以设置它的方法。
 

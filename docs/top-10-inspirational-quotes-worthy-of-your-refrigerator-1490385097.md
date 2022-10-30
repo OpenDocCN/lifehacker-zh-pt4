@@ -1,6 +1,6 @@
 # 你的冰箱值得拥有的十大励志名言
 
-> 原文:[https://life hacker . com/top-10-inspirational-quotes-worthy-of-your-冰箱-1490385097](https://lifehacker.com/top-10-inspirational-quotes-worthy-of-your-refrigerator-1490385097)
+> 原文：<https://lifehacker.com/top-10-inspirational-quotes-worthy-of-your-refrigerator-1490385097>
 
 有时候，你需要的只是一句合适的励志名言，在你情绪低落的时候给你一点鼓励。这里有几个我们多年来分享的最爱。
 

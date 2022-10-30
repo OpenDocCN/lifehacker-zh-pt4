@@ -1,6 +1,6 @@
 # 购买二手游戏和游戏机的五个最佳地点
 
-> 原文:[https://life hacker . com/five-best-places-to-buy-used-games-and-console-1637048086](https://lifehacker.com/five-best-places-to-buy-used-games-and-consoles-1637048086)
+> 原文：<https://lifehacker.com/five-best-places-to-buy-used-games-and-consoles-1637048086>
 
 如果你想在视频游戏上省钱，你有很多选择，从当地商店到大型在线零售商，都提供适用于所有平台的二手游戏，以及大幅折扣的游戏机和手持设备。本周，我们将根据您的提名，寻找五个可以买到二手游戏装备的最佳地点。
 

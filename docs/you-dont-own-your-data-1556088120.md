@@ -1,6 +1,6 @@
 # 你不拥有你的数据
 
-> 原文:[https://lifehacker.com/you-dont-own-your-data-1556088120](https://lifehacker.com/you-dont-own-your-data-1556088120)
+> 原文：<https://lifehacker.com/you-dont-own-your-data-1556088120>
 
 当涉及到我们的数据时，我们许多人都有一种保护的本能。毕竟是我们的。为什么别人要从中获利？只有一个问题:你可能有隐私法保护你免受监视，有版权法保护你创建的内容的所有权，但数据不仅仅因为与你有关就属于你。
 

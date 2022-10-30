@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:7 月 18 日至 25 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-July-18-to-25-1610923543](https://lifehacker.com/this-weeks-most-popular-posts-july-18th-to-25th-1610923543)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-july-18th-to-25th-1610923543>
 
 本周我们 [完成了我们一年一度的生活黑客包](https://lifehacker.com/lifehacker-pack-for-chrome-our-list-of-essential-chrom-880863393) ， [采访了伊拉·格拉斯关于他是如何工作的](http://lifehacker.com/im-ira-glass-host-of-this-american-life-and-this-is-h-1609562031) ， [搜出了最好的杀毒程序](http://lifehacker.com/five-best-desktop-antivirus-applications-1607557993) ， [黑了我们的烤架](http://lifehacker.com/top-10-ways-to-hack-your-grill-1607315381) 。这里回顾一下。
 

@@ -1,6 +1,6 @@
 # 每个人都应该学会做的另外六种酱
 
-> 原文:[https://life hacker . com/six-more-sauce-every one-should-learn-how-to-make-1580465771](https://lifehacker.com/six-more-sauces-everyone-should-learn-how-to-make-1580465771)
+> 原文：<https://lifehacker.com/six-more-sauces-everyone-should-learn-how-to-make-1580465771>
 
 一份好的酱汁可以让一道菜从平淡变得精彩，只需稍加调整，你就可以做出无穷无尽的菜肴。这里有更多的酱料可以添加到你的武器库中。
 

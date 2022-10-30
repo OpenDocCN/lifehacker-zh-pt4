@@ -1,6 +1,6 @@
 # 五款最佳电视调谐卡
 
-> 原文:[https://lifehacker.com/five-best-tv-tuner-cards-1600439009](https://lifehacker.com/five-best-tv-tuner-cards-1600439009)
+> 原文：<https://lifehacker.com/five-best-tv-tuner-cards-1600439009>
 
 如果你想要一个简单的方法来获得现场直播，广播电视到你的电脑上，你需要一个电视调谐器。无论是内部卡还是外部外围设备，它们都连接到您的天线，让您可以在计算机屏幕上观看电视直播。这里有五个最好的。
 

@@ -1,6 +1,6 @@
 # 用这些 Android 5.0 壁纸玩数码纸
 
-> 原文:[https://life hacker . com/play-with-digital-paper-with-these-Android-5-0-wallpape-1649521149](https://lifehacker.com/play-with-digital-paper-with-these-android-5-0-wallpape-1649521149)
+> 原文：<https://lifehacker.com/play-with-digital-paper-with-these-android-5-0-wallpape-1649521149>
 
 谷歌上周刚刚发布了 Android 5.0，同时推出了新的开发者预览版。包括在预览是一系列漂亮的新壁纸为您的手机装饰的乐趣。
 

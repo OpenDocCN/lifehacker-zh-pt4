@@ -1,6 +1,6 @@
 # 请教专家:关于汽车买卖的一切
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-buy-and-selling-cars-1708172503](https://lifehacker.com/ask-an-expert-all-about-buying-and-selling-cars-1708172503)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-buying-and-selling-cars-1708172503>
 
 选购汽车可能是一项繁重的工作，因为你要根据预算权衡自己的需求和愿望，并努力找到最适合自己的汽车。我们来自 Jalopnik 的 [购车博客](http://carbuying.jalopnik.com/) 的朋友可以帮助你回答一些关于买车的问题。
 

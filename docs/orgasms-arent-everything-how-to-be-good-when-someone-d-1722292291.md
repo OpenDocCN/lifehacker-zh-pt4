@@ -1,6 +1,6 @@
 # 高潮并不代表一切:当某人没有高潮时如何保持良好状态
 
-> 原文:[https://life hacker . com/orgasms-arent-everything-how-to-be-good-when-someone-d-1722292291](https://lifehacker.com/orgasms-arent-everything-how-to-be-good-when-someone-d-1722292291)
+> 原文：<https://lifehacker.com/orgasms-arent-everything-how-to-be-good-when-someone-d-1722292291>
 
 “等等，那是高潮吗？”如果你曾经和没有达到高潮的人发生过性关系，你可能对这种思路很熟悉。由于我们大多数人倾向于把高潮视为性的最终目的，所以当你的伴侣——无论他们是长期的爱情还是一夜情——没有达到高潮时，你可能很难知道该怎么办。下面是下次发生这种情况时你应该做的事情。
 

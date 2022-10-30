@@ -1,6 +1,6 @@
 # 偏执狂让我成为一个更好的电脑使用者
 
-> 原文:[https://gizmodo . com/paranodia-make-me-a-better-computer-user-1723383499](https://gizmodo.com/paranoia-made-me-a-better-computer-user-1723383499)
+> 原文：<https://gizmodo.com/paranoia-made-me-a-better-computer-user-1723383499>
 
 “你不会想在羊墙上结束的。”这是我的编辑在我飞往拉斯维加斯参加臭名昭著的黑客大会 DEF CON 之前告诉我的最后一件事。一周后，我发现自己站在墙前，疯狂地寻找我的名字和密码。尽管我过分小心，我知道我被黑了。
 

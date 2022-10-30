@@ -1,6 +1,6 @@
 # 2013 年网络星期一最佳交易
 
-> 原文:[https://gizmodo.com/the-best-cyber-monday-deals-1474441564](https://gizmodo.com/the-best-cyber-monday-deals-1474441564)
+> 原文：<https://gizmodo.com/the-best-cyber-monday-deals-1474441564>
 
 #### **更新:**寻找 [2014 年网络星期一最佳交易](http://gizmodo.com/the-best-black-friday-deals-1646773823?rev=1413401498594) ？头过到 [今年的岗位](http://gizmodo.com/the-best-cyber-monday-app-deals-1474660885) 。
 

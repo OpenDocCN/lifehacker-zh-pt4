@@ -1,6 +1,6 @@
 # DIY 3D 投影仪、团体活动照片和学习技巧
 
-> 原文:[https://life hacker . com/DIY-3d-projectors-group-event-photos-and-study-skills-1481518114](https://lifehacker.com/diy-3d-projectors-group-event-photos-and-study-skills-1481518114)
+> 原文：<https://lifehacker.com/diy-3d-projectors-group-event-photos-and-study-skills-1481518114>
 
 读者提供了他们的最佳技巧，用于构建自己的 3D 投影仪，协调活动的集体照片，以及更有效地学习。
 

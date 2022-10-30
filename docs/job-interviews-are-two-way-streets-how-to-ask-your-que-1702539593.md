@@ -1,6 +1,6 @@
 # 工作面试是双向的:如何问你的问题
 
-> 原文:[https://life hacker . com/job-visities-is-two-way-streets-how-to-quest-your-que-1702539593](https://lifehacker.com/job-interviews-are-two-way-streets-how-to-ask-your-que-1702539593)
+> 原文：<https://lifehacker.com/job-interviews-are-two-way-streets-how-to-ask-your-que-1702539593>
 
 工作面试是你最好的机会，如果你得到了一份工作，确保你不会走进雷区。不幸的是，我们大多数人整个时间都在回答问题。这应该是一条双行道。以下是如何控制和确保你的街道一侧确实有一些交通。
 

@@ -1,6 +1,6 @@
 # 最简单、最便宜的快速出售房屋的方法
 
-> 原文:[https://life hacker . com/the-easy-priest-ways-prep-your-home for-a-quic-1602951130](https://lifehacker.com/the-easiest-cheapest-ways-to-prep-your-home-for-a-quic-1602951130)
+> 原文：<https://lifehacker.com/the-easiest-cheapest-ways-to-prep-your-home-for-a-quic-1602951130>
 
 你不需要一大笔钱来让你的房子在潜在买家面前看起来更好。这里有一些你可以做的不贵的事情，当你卖掉你的房子的时候，这些事情会让一切变得不同。
 

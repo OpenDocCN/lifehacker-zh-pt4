@@ -1,6 +1,6 @@
 # 每个二手车买家都应该能够回答的问题
 
-> 原文:[https://jalopnik . com/the-question-every-二手车买家应能-ans-1693298950](https://jalopnik.com/the-question-every-used-car-buyer-should-be-able-to-ans-1693298950)
+> 原文：<https://jalopnik.com/the-question-every-used-car-buyer-should-be-able-to-ans-1693298950>
 
 平均来说，我每天会接到五个电话，是那些购买了有缺陷的二手车并寻求法律帮助的人打来的。我问的问题是哪一个最难？它有保修吗？ 不知道这个问题的答案就好比不知道汽车是否是带发动机出售的。
 

@@ -1,6 +1,6 @@
 # 当有人未经授权访问您的计算机时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-what-what-what-what-someone-get-unauthorized-access-to-you-1591404134](https://lifehacker.com/what-to-do-when-someone-gets-unauthorized-access-to-you-1591404134)
+> 原文：<https://lifehacker.com/what-to-do-when-someone-gets-unauthorized-access-to-you-1591404134>
 
 我们不愿意去想它，但它可能会发生:无论是通过黑客攻击还是盗窃，有人都可以访问您的计算机和计算机上的所有内容。当不可思议的事情发生时，以下是如何收拾残局。
 

@@ -1,6 +1,6 @@
 # 手淫如何帮助你和伴侣一起达到高潮
 
-> 原文:[https://life hacker . com/how-自慰可以帮助你与伴侣达到高潮-1717706415](https://lifehacker.com/how-masturbation-can-help-you-orgasm-with-a-partner-1717706415)
+> 原文：<https://lifehacker.com/how-masturbation-can-help-you-orgasm-with-a-partner-1717706415>
 
 自慰不只是自己一个人享受(虽然说实话，一个人也很有趣。)你也可以利用你在独处时学到的东西来帮助你和伴侣一起获得更多的乐趣(和更多的高潮)。来说说怎么做吧！
 

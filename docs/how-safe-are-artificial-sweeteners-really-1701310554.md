@@ -1,6 +1,6 @@
 # 人工甜味剂到底有多安全？
 
-> 原文:[https://life hacker . com/how-safe-are-artificial-sweeteners-really-1701310554](https://lifehacker.com/how-safe-are-artificial-sweeteners-really-1701310554)
+> 原文：<https://lifehacker.com/how-safe-are-artificial-sweeteners-really-1701310554>
 
 亲爱的生活黑客，每个人都在说像阿斯巴甜这样的人工甜味剂对你有害，现在百事可乐正在去除它。我应该担心我喝了多少无糖汽水吗？这些年来我暴露在什么样的健康危害下？我应该担心取代它的新甜味剂吗？
 

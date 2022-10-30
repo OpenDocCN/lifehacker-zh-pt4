@@ -1,6 +1,6 @@
 # 在你收养一只狗之前要考虑的重要事情
 
-> 原文:[https://life hacker . com/what-should-I-know-before-I-adopt-a-dog-1646725153](https://lifehacker.com/what-should-i-know-before-i-adopt-a-dog-1646725153)
+> 原文：<https://lifehacker.com/what-should-i-know-before-i-adopt-a-dog-1646725153>
 
 一只狗可以是一个可爱的伴侣，一个傻傻的伙伴，一个锻炼的伙伴，等等，但是养狗也是一项艰巨的任务。训练和照顾你的小狗需要时间和金钱，收养一只狗是一个重大的决定，不应该掉以轻心。
 

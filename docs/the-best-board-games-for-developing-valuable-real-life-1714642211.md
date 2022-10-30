@@ -1,6 +1,6 @@
 # 开发宝贵的现实生活技能的最佳棋盘游戏
 
-> 原文:[https://life hacker . com/the-best-board-games-for-development-valued-real-life-1714642211](https://lifehacker.com/the-best-board-games-for-developing-valuable-real-life-1714642211)
+> 原文：<https://lifehacker.com/the-best-board-games-for-developing-valuable-real-life-1714642211>
 
 玩棋盘游戏非常有趣，但是一些更难更复杂的游戏实际上也能帮助你学习东西。无论你是想提高你的数学技能，还是想成为一个更强的谈判者，这里有一些你可以培养的技能(以及帮助你培养这些技能的游戏)。
 

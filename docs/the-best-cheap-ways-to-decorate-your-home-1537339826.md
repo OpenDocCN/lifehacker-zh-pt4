@@ -1,6 +1,6 @@
 # 装饰你家的最便宜的方法
 
-> 原文:[https://life hacker . com/the-best-cheap-ways-to-decorating-your-home-1537339826](https://lifehacker.com/the-best-cheap-ways-to-decorate-your-home-1537339826)
+> 原文：<https://lifehacker.com/the-best-cheap-ways-to-decorate-your-home-1537339826>
 
 如果你想为你的家增添一点设计，或者只是用一些摆放得当、外观漂亮的升级产品或实用家具来装饰一下，你不必倾家荡产。无论你的个人审美倾向于现代和简约，还是乡村和装饰，让我们为任何家庭建立一个伟大的，负担得起的设计升级列表。
 

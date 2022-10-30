@@ -1,6 +1,6 @@
 # 如何处理国外的医疗问题
 
-> 原文:[https://Jezebel . com/how-to-process-to-deal-medical-issues-overseas-1716281759](https://jezebel.com/how-to-deal-with-medical-issues-abroad-1716281759)
+> 原文：<https://jezebel.com/how-to-deal-with-medical-issues-abroad-1716281759>
 
 想象一下:当你穿过一个偏远的越南村庄时，你感觉到一种酵母感染的痒感。或者你在危地马拉喝了一些受污染的水后，无法控制地从两头呕吐。不管怎样，你在国外，需要一个医生，而你不知道该怎么办。
 

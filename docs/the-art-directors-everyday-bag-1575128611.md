@@ -1,6 +1,6 @@
 # 艺术总监的日常包
 
-> 原文:[https://life hacker . com/the-art-directors-daily-bag-1575128611](https://lifehacker.com/the-art-directors-everyday-bag-1575128611)
+> 原文：<https://lifehacker.com/the-art-directors-everyday-bag-1575128611>
 
 作为一名艺术总监，你必须为各种情况做好准备，但这并不意味着你必须带着一吨垃圾。Alain Baburam 的这个包展示了一些方法，让事情变得简单，同时又能为不同的情况做好准备。
 

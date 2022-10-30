@@ -1,6 +1,6 @@
 # 打造完美预算的 10 大诀窍
 
-> 原文:[https://life hacker . com/top-10-tricks-for-build-the-perfect-budget-1485998627](https://lifehacker.com/top-10-tricks-for-building-the-perfect-budget-1485998627)
+> 原文：<https://lifehacker.com/top-10-tricks-for-building-the-perfect-budget-1485998627>
 
 财务成功的第一法则:花的比赚的少。最好的方法就是记录你的开销。以下是制定完美预算(并坚持执行)的 10 个诀窍。
 

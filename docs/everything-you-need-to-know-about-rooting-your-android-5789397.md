@@ -1,6 +1,6 @@
 # 你需要知道的一切关于支持你的安卓手机
 
-> 原文:[https://life hacker . com/everything-your-Android-5789397](https://lifehacker.com/everything-you-need-to-know-about-rooting-your-android-5789397)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-rooting-your-android-5789397>
 
 我们喜欢 Android，但支持你的手机可以让你有机会做比你的手机更多的事情——无论是无线网络共享，通过超频加速，还是用主题定制你的手机外观。以下是您需要了解的生根过程，以及在哪里可以找到您的手机指南。
 

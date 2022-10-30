@@ -1,6 +1,6 @@
 # 如何确保你拿回你的保证金
 
-> 原文:[https://life hacker . com/how-to-make-thank-you-get-you-security-deposit-back-1604938030](https://lifehacker.com/how-to-make-sure-you-get-your-security-deposit-back-1604938030)
+> 原文：<https://lifehacker.com/how-to-make-sure-you-get-your-security-deposit-back-1604938030>
 
 搬进新公寓通常需要预付一大笔钱。你交了第一个月的房租，外加一大笔保证金。理想情况下，你会拿回押金。但是在你搬进去和离开的这段时间里会发生很多事情。遵循这些提示，以确保您的保证金被退还。
 

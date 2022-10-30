@@ -1,6 +1,6 @@
 # 如何在任何场合买到一套好的、百搭的西装
 
-> 原文:[https://life hacker . com/how-to-buy-a good-versatile-suit for-any-place-1476050929](https://lifehacker.com/how-to-buy-a-good-versatile-suit-for-any-occasion-1476050929)
+> 原文：<https://lifehacker.com/how-to-buy-a-good-versatile-suit-for-any-occasion-1476050929>
 
 每个男人都应该至少有一套好衣服。然而，不同的活动通常需要不同的着装，而随身携带多套西装是我们很少有人能(或想)负担得起的奢侈品。尽管如此，如果你买了 smart 和合适的配件，你会惊讶于一套看起来很时髦的西装能有多种用途。穿上西装，伙计们:这是你们需要知道的。
 

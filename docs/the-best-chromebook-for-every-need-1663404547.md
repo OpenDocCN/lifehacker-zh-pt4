@@ -1,6 +1,6 @@
 # 满足各种需求的最佳 Chromebook
 
-> 原文:[https://gizmodo . com/the-best-chrome book-for-every-need-1663404547](https://gizmodo.com/the-best-chromebook-for-every-need-1663404547)
+> 原文：<https://gizmodo.com/the-best-chromebook-for-every-need-1663404547>
 
 我基本生活在谷歌的 Chrome 网络浏览器里。当每隔几周更换笔记本电脑成为我工作的一部分时，这是我为了保持理智而做出的决定。不需要这样备份文件！但这让我想知道，如果我能用 Chromebook 代替我的笔记本电脑，我能不能只使用 Chrome。
 

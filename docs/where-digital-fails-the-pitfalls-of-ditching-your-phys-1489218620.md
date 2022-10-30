@@ -1,6 +1,6 @@
 # 数字化失败的地方:抛弃物理媒体的陷阱
 
-> 原文:[https://life hacker . com/where-digital-fails-the-recipes-of-ditching-your-phys-1489218620](https://lifehacker.com/where-digital-fails-the-pitfalls-of-ditching-your-phys-1489218620)
+> 原文：<https://lifehacker.com/where-digital-fails-the-pitfalls-of-ditching-your-phys-1489218620>
 
 在过去的几年里，我已经从拥有一大堆 CD、DVD 和其他媒体转变为几乎什么都不拥有——并且只保留所有东西的数字副本。以下是我在过去几年里学到的，以及数码技术仍然不足的地方。
 

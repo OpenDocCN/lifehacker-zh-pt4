@@ -1,6 +1,6 @@
 # 当你还得工作时，如何处理悲伤
 
-> 原文:[https://life hacker . com/how-to-deal-when you-have-to-deal-you-have-to-work-1532387702](https://lifehacker.com/how-to-deal-with-grief-when-you-still-have-to-work-1532387702)
+> 原文：<https://lifehacker.com/how-to-deal-with-grief-when-you-still-have-to-work-1532387702>
 
 2014 年 1 月 17 日，小姐姐意外去世。她才 46 岁。在那个周五下午的晚些时候，我接到了电话，当时我正在结束我的工作日，并计算出下周的最后期限。
 

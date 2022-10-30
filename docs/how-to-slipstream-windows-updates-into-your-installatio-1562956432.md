@@ -1,6 +1,6 @@
 # 如何将 Windows 更新整合到安装光盘中
 
-> 原文:[https://life hacker . com/how-to-slipsstream-windows-updates-into-your-installation-1562956432](https://lifehacker.com/how-to-slipstream-windows-updates-into-your-installatio-1562956432)
+> 原文：<https://lifehacker.com/how-to-slipstream-windows-updates-into-your-installatio-1562956432>
 
 重新安装 Windows 的一个可怕之处是，为了保证安全、稳定和最新，需要进行无休止的软件更新和重启。但是有一个更好的方法:滑流。只需做一点准备，您就可以创建一个包含所有更新的新安装光盘，这样就可以一次安装所有内容。
 

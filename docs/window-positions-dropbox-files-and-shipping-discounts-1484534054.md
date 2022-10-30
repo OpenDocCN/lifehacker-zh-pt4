@@ -1,6 +1,6 @@
 # 窗口位置、收存箱文件和运费折扣
 
-> 原文:[https://life hacker . com/window-positions-Dropbox-files-and-shipping-discounts-1484534054](https://lifehacker.com/window-positions-dropbox-files-and-shipping-discounts-1484534054)
+> 原文：<https://lifehacker.com/window-positions-dropbox-files-and-shipping-discounts-1484534054>
 
 读者提供了让窗口出现在窗口中心屏幕的最佳技巧，一次下载多个 Dropbox 文件到 Android，以及在一些网站上获得运费折扣。
 

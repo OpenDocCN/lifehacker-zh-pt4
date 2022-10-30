@@ -1,6 +1,6 @@
 # 在 iOS 7 中找回按钮
 
-> 原文:[https://lifehacker.com/get-buttons-back-in-ios-7-1541496265](https://lifehacker.com/get-buttons-back-in-ios-7-1541496265)
+> 原文：<https://lifehacker.com/get-buttons-back-in-ios-7-1541496265>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-hdpy1BwJEDg&start=144](https://lifehacker.com/embed/inset/iframe?id=youtube-video-hdpy1BwJEDg&start=144) 
 

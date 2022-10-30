@@ -1,6 +1,6 @@
 # 如何处理放下宠物的决定
 
-> 原文:[https://life hacker . com/how-to-deal-the-decision-put-your-pet-1632897804](https://lifehacker.com/how-to-deal-with-the-decision-to-put-down-your-pet-1632897804)
+> 原文：<https://lifehacker.com/how-to-deal-with-the-decision-to-put-down-your-pet-1632897804>
 
 我们的宠物是快乐和友谊的源泉。然而可悲的是，我们这些毛茸茸的朋友最大的缺陷是它们有限的寿命。很有可能，你会比他们活得长。最近，我不得不做出艰难的决定，对我的狗实施安乐死，并努力解决许多常见的问题。以下是我从自己的经历中学到的。
 

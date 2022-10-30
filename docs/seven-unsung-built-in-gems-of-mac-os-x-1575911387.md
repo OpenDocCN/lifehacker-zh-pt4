@@ -1,6 +1,6 @@
 # 麦克·OS X 的七颗无名内置宝石
 
-> 原文:[https://life hacker . com/seven-unsung-built-in-gems-of-MAC-OS-x-1575911387](https://lifehacker.com/seven-unsung-built-in-gems-of-mac-os-x-1575911387)
+> 原文：<https://lifehacker.com/seven-unsung-built-in-gems-of-mac-os-x-1575911387>
 
 OS X 有各种各样伟大的小功能，但他们中的许多人都没有成为盒子后面的 。无论你是 OS X 的老用户还是操作系统的新手，这里都有一些你可能不知道(或者你刚刚忘记)的最好的内置工具。
 

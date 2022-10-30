@@ -1,6 +1,6 @@
 # 结婚时如何合并财务(不发疯)
 
-> 原文:[https://life hacker . com/how-to-merge-finances-when you-marriage-not goi-1516718128](https://lifehacker.com/how-to-merge-finances-when-you-get-married-without-goi-1516718128)
+> 原文：<https://lifehacker.com/how-to-merge-finances-when-you-get-married-without-goi-1516718128>
 
 一次又一次，我们听说钱是已婚夫妇的最大问题，是的，也是离婚的主要原因。这是大多数夫妇结婚前就存在的问题。
 

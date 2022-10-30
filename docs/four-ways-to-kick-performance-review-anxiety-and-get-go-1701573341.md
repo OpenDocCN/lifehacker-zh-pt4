@@ -1,6 +1,6 @@
 # 消除绩效评估焦虑并获得良好反馈的四种方法
 
-> 原文:[https://life hacker . com/four-ways-to-kick-performance-review-anxiety-and-get-go-1701573341](https://lifehacker.com/four-ways-to-kick-performance-review-anxiety-and-get-go-1701573341)
+> 原文：<https://lifehacker.com/four-ways-to-kick-performance-review-anxiety-and-get-go-1701573341>
 
 很少有事情 [像绩效评估](http://www.thedailymuse.com/career/conquer-performance-review-panic/) 一样令人焦虑。你期望被你冷酷的上司质问你在过去的一年里有什么和没有实现什么，对吗？当然事情不是这样的，但是很容易被自己的焦虑所折磨。
 

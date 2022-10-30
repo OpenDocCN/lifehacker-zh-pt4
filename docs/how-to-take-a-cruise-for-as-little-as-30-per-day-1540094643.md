@@ -1,6 +1,6 @@
 # 如何以每天 30 美元的低价乘坐游轮
 
-> 原文:[https://life hacker . com/how-to-take-a-cruise-as-little-as-30-day-1540094643](https://lifehacker.com/how-to-take-a-cruise-for-as-little-as-30-per-day-1540094643)
+> 原文：<https://lifehacker.com/how-to-take-a-cruise-for-as-little-as-30-per-day-1540094643>
 
 巡游可能是昂贵的事情。首先，船用“便宜”的房间和船上信用吸引你，然后用高价饮料、不包括在内的餐馆和一分钟一美元的互联网把你甩在身后。
 

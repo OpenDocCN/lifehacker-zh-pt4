@@ -1,6 +1,6 @@
 # 停止在你的时间管理上扮演受害者的角色，掌握主动权
 
-> 原文:[https://life hacker . com/stop-play-the-victim-with-your-time-management-and-t-1685470414](https://lifehacker.com/stop-playing-the-victim-with-your-time-management-and-t-1685470414)
+> 原文：<https://lifehacker.com/stop-playing-the-victim-with-your-time-management-and-t-1685470414>
 
 当谈到管理你的时间时，许多人觉得有大量的要求向他们袭来，使他们成为环境的受害者。总有太多的事情要做。每个人都不断给我增加工作。”听着耳熟？如果是这样，你不是一个人，但是你应该停止扮演受害者的角色，掌控局面。
 

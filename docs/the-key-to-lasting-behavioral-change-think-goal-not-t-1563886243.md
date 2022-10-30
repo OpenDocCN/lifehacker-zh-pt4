@@ -1,6 +1,6 @@
 # 持久行为改变的关键:思考目标，而不是策略
 
-> 原文:[https://life hacker . com/the-key-to-persistent-behavioral-change-think-goal-not-t-1563886243](https://lifehacker.com/the-key-to-lasting-behavioral-change-think-goal-not-t-1563886243)
+> 原文：<https://lifehacker.com/the-key-to-lasting-behavioral-change-think-goal-not-t-1563886243>
 
 在行为改变的过程中，即使是最有动力的人也会陷入困境，感到沮丧，失去希望。为什么不能强迫自己上班前去健身房？或者在检查邮件之前完成高优先级的任务？我们变得如此专注于特定的策略，以至于我们忽略了这样一个事实，即许多方法可以实现他们更大的战略目标。
 

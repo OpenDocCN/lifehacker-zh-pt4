@@ -1,6 +1,6 @@
 # 最好的电唱机是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-record-player-1720936297](https://lifehacker.com/whats-the-best-record-player-1720936297)
+> 原文：<https://lifehacker.com/whats-the-best-record-player-1720936297>
 
 黑胶唱片仍然是音乐销售的一小部分，但它们正在上升。对于我们这些一直爱着它们的人来说，这是个好消息。无论你有你珍藏的旧唱片，你一直喜欢黑胶唱片，还是你刚刚开始，本周我们想谈谈唱机。
 

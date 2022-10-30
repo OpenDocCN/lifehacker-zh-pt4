@@ -1,6 +1,6 @@
 # 如何避免在日常活动中受伤
 
-> 原文:[https://life hacker . com/how-to-避免在日常活动中伤害自己-1464936242](https://lifehacker.com/how-to-avoid-injuring-yourself-during-everyday-activiti-1464936242)
+> 原文：<https://lifehacker.com/how-to-avoid-injuring-yourself-during-everyday-activiti-1464936242>
 
 从碰撞家具尖角的小腿到淋浴时滑倒，家庭事故成为受伤甚至死亡的主要原因之一并不奇怪。以下是一些最常见的可能导致去看医生或看急诊的事情，以及如何预防它们。
 

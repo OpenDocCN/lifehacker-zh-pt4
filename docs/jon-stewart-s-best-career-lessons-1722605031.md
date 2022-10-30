@@ -1,6 +1,6 @@
 # 乔恩·斯图尔特最好的职业经验
 
-> 原文:[https://life hacker . com/Jon-Stewart-s-best-career-lessons-1722605031](https://lifehacker.com/jon-stewart-s-best-career-lessons-1722605031)
+> 原文：<https://lifehacker.com/jon-stewart-s-best-career-lessons-1722605031>
 
 昨晚，乔恩·斯图尔特最后一次关掉了《每日秀》的灯光，他和他的工作人员创造了一台机器，16 年来通过喜剧提供深刻的政治和媒体评论。让我们看看他们是怎么做的，有什么值得我们学习的。
 

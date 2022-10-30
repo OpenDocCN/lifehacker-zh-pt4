@@ -1,6 +1,6 @@
 # 苹果 OS X El Capitan 的实际操作:微小的调整带来巨大的变化
 
-> 原文:[https://gizmodo . com/hands-on-with-apple-OS-x-El-capitan-tiny-tweaks-make-1714635091](https://gizmodo.com/hands-on-with-apples-os-x-el-capitan-tiny-tweaks-make-1714635091)
+> 原文：<https://gizmodo.com/hands-on-with-apples-os-x-el-capitan-tiny-tweaks-make-1714635091>
 
 在苹果 [让位于优胜美地](http://gizmodo.com/os-x-yosemite-first-impressions-apple-biggest-desktop-1585095300) 的视觉大修之后， [今年的台式机和笔记本电脑更新](http://gizmodo.com/the-10-most-important-things-from-apples-wwdc-keynote-1709889032) 更加低调或许并不奇怪。这是一个进步，而不是飞跃，但仍然有很多值得升级的小改进。
 

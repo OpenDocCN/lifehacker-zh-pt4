@@ -1,6 +1,6 @@
 # 我是达莉亚·罗斯，夏日番茄的创造者，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Darya-rose-creator-of-summer-tomato-and this-is-ho-1710341677](https://lifehacker.com/im-darya-rose-creator-of-summer-tomato-and-this-is-ho-1710341677)
+> 原文：<https://lifehacker.com/im-darya-rose-creator-of-summer-tomato-and-this-is-ho-1710341677>
 
 Darya Rose 是健康和保健博客 [夏季番茄](http://summertomato.com/) 的创建者，她在博客中将健康和营养视为一种生活方式，放弃了不必要的饮食或基于匮乏的常规。换句话说，健康的饮食不应该是意志力的问题；它应该是你喜欢的事情，这样就不用工作了。
 

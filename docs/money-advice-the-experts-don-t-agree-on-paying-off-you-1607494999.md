@@ -1,6 +1,6 @@
 # 专家们不同意的理财建议:还清抵押贷款
 
-> 原文:[https://life hacker . com/money-advice-the-experts-don-agree-on-pay-off-you-1607494999](https://lifehacker.com/money-advice-the-experts-don-t-agree-on-paying-off-you-1607494999)
+> 原文：<https://lifehacker.com/money-advice-the-experts-don-t-agree-on-paying-off-you-1607494999>
 
 可能没有比你的抵押贷款更大的贷款了。通常需要几十年的时间来偿还债务，我们大多数人认为这是一项常规支出，只是我们预算的一部分。但这仍然是借来的钱，一些金融专家同意:如果可以的话，你应该早点还清抵押贷款。但是其他人认为这不是最聪明的想法。
 

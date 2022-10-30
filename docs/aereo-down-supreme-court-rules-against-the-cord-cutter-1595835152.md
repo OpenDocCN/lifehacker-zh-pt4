@@ -1,6 +1,6 @@
 # Aereo Down:最高法院扼杀脐带切割者的梦想
 
-> 原文:[https://gizmodo . com/aereo-down-supreme-court-rules-against-the cord-cutter-1595835152](https://gizmodo.com/aereo-down-supreme-court-rules-against-the-cord-cutter-1595835152)
+> 原文：<https://gizmodo.com/aereo-down-supreme-court-rules-against-the-cord-cutter-1595835152>
 
 今天，最高法院推翻了美国广播公司诉 Aereo 案中第二巡回法庭的判决。翻译？Aereo 损失惨重。现在这是违法的。这太糟糕了。
 

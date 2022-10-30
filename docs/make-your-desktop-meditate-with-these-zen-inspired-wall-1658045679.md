@@ -1,6 +1,6 @@
 # 用这些受禅宗启发的壁纸让你的桌面冥想
 
-> 原文:[https://life hacker . com/make-your-desktop-mostate-with these-Zen-inspired-wall-1658045679](https://lifehacker.com/make-your-desktop-meditate-with-these-zen-inspired-wall-1658045679)
+> 原文：<https://lifehacker.com/make-your-desktop-meditate-with-these-zen-inspired-wall-1658045679>
 
 禅既是一种修行，也是一种哲学。这个词本身，翻译成“冥想状态”，意味着专注、平静和简单。当你进入状态时，这使得禅宗主题的图像非常适合作为你的桌面背景。
 

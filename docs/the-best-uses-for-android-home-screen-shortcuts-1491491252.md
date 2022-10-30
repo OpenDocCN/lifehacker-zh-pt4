@@ -1,6 +1,6 @@
 # Android 主屏幕快捷键的最佳用途
 
-> 原文:[https://life hacker . com/the-best-uses-for-Android-home-screen-shortcut s-1491491252](https://lifehacker.com/the-best-uses-for-android-home-screen-shortcuts-1491491252)
+> 原文：<https://lifehacker.com/the-best-uses-for-android-home-screen-shortcuts-1491491252>
 
 Android 上的主屏幕快捷方式虽然被低估了，但却很棒。你可以直接从主屏幕上找到你需要的确切信息，而不是滚动巨大的列表或挖掘应用程序。这里有一些最好的捷径。
 

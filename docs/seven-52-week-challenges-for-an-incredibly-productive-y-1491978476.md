@@ -1,6 +1,6 @@
 # 七项为期 52 周的挑战，成就非凡的一年
 
-> 原文:[https://life hacker . com/seven-52-week-challenges-for-a-exceible-productive-y-1491978476](https://lifehacker.com/seven-52-week-challenges-for-an-incredibly-productive-y-1491978476)
+> 原文：<https://lifehacker.com/seven-52-week-challenges-for-an-incredibly-productive-y-1491978476>
 
 如果你希望来年比去年更好，你需要的不仅仅是 [一个好的决心](https://lifehacker.com/the-new-years-resolutions-most-likely-to-fail-and-what-1491671137)——你需要一个坚实的计划和方法来保持全年的动力。为什么不试着和别人一起每周挑战一次呢？这里有几个 52 周的挑战，可以让你节省更多的钱，最终变得有条理，做饭更好，等等。
 

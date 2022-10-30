@@ -1,6 +1,6 @@
 # 10 种方法让你喜爱的游戏焕然一新
 
-> 原文:[https://kotaku . com/10-ways-to-make-your-favorite-games-feel-new-again-1696774890](https://kotaku.com/10-ways-to-make-your-favorite-games-feel-new-again-1696774890)
+> 原文：<https://kotaku.com/10-ways-to-make-your-favorite-games-feel-new-again-1696774890>
 
 游戏有规则。这是他们的“事情”但是仅仅因为一个游戏暗示你应该以一种方式玩，并不意味着你不能想出自己的一些规则。
 

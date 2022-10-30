@@ -1,6 +1,6 @@
 # 我是杰森·席尔瓦，智力游戏的主持人，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Jason-Silva-host-of-brain games-and-this-is-how-I-w-1638164355](https://lifehacker.com/im-jason-silva-host-of-braingames-and-this-is-how-i-w-1638164355)
+> 原文：<https://lifehacker.com/im-jason-silva-host-of-braingames-and-this-is-how-i-w-1638164355>
 
 杰森·希尔瓦 很难被贴上标签——他被称为未来主义者、“思想 DJ”、行为哲学家等等。他广受欢迎的视频系列 [是对科学和哲学的电影探索，他还主持了国家地理频道的](https://gizmodo.com/philosophy-web-series-shots-of-awe-will-blow-your-mind-509498141) [智力游戏](http://braingames.nationalgeographic.com/episode/0/) 。
 

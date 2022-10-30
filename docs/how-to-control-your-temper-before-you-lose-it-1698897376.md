@@ -1,6 +1,6 @@
 # 如何在发脾气之前控制住自己
 
-> 原文:[https://life hacker . com/how-to-control-you-before-lose it-1698897376](https://lifehacker.com/how-to-control-your-temper-before-you-lose-it-1698897376)
+> 原文：<https://lifehacker.com/how-to-control-your-temper-before-you-lose-it-1698897376>
 
 我们都有生气的时候，但是如果你容易像绿巨人一样暴怒，这真的会破坏你的人际关系，甚至毁掉你的职业生涯。这里有一些当你觉得自己脾气暴躁时保持冷静的建议。
 

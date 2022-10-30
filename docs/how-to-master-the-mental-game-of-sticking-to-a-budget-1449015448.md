@@ -1,6 +1,6 @@
 # 如何掌握坚持预算的心理游戏
 
-> 原文:[https://life hacker . com/how-to-master-the-mental game of-sticking-a-budget-1449015448](https://lifehacker.com/how-to-master-the-mental-game-of-sticking-to-a-budget-1449015448)
+> 原文：<https://lifehacker.com/how-to-master-the-mental-game-of-sticking-to-a-budget-1449015448>
 
 月底了，你看着自己制定的预算，帮助自己控制支出。当你看到你多花了 200 美元时，你的心情沉重起来。你甚至没有为你的储蓄或退休账户做贡献。怀着一颗愧疚的心，你发誓下个月要做得更好。然后这个模式重复了一遍又一遍…
 

@@ -1,6 +1,6 @@
 # 如何从旧游戏机上获得最清晰的图像
 
-> 原文:[https://kotaku . com/how-to-get-the-sharp-images-possible-out-of-your-old-1627089358](https://kotaku.com/how-to-get-the-sharpest-images-possible-out-of-your-old-1627089358)
+> 原文：<https://kotaku.com/how-to-get-the-sharpest-images-possible-out-of-your-old-1627089358>
 
 如果你尝试过在现代高清电视上玩复古游戏机，你可能不会喜欢你所看到的——模糊、拉伸的图像，与去年的清晰块状大相径庭。幸运的是，对于纯粹主义者来说，有一个更好的方法来获得清晰的图像，而不需要购买旧的 CRT 电视。
 

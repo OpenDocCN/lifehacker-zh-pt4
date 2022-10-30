@@ -1,6 +1,6 @@
 # 为什么我们在下午拖延(以及如何停止)
 
-> 原文:[https://life hacker . com/why-we-drafting-in-the-午-how-to-stop-1532758534](https://lifehacker.com/why-we-procrastinate-in-the-afternoon-and-how-to-stop-1532758534)
+> 原文：<https://lifehacker.com/why-we-procrastinate-in-the-afternoon-and-how-to-stop-1532758534>
 
 现在是下午 3 点，你发现自己很难集中精力工作。你似乎不能停止检查脸书。你欢迎像短信和同事过来聊天这样的干扰，而不是高效。欢迎来到下午的低迷期:在工作日的这段时间里，你的大脑拒绝与你合作，你无法停止拖延。
 

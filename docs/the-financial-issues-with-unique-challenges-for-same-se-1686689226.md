@@ -1,6 +1,6 @@
 # 同性伴侣面临独特挑战的财务问题
 
-> 原文:[https://life hacker . com/the-financial-issues-with-unique-challenges-for-same-se-1686689226](https://lifehacker.com/the-financial-issues-with-unique-challenges-for-same-se-1686689226)
+> 原文：<https://lifehacker.com/the-financial-issues-with-unique-challenges-for-same-se-1686689226>
 
 所有处于长期关系中的夫妇都必须学会如何一起处理财务决策。但是，由于令人困惑和不断变化的法律，同性恋伴侣面临着额外的挑战。
 

@@ -1,6 +1,6 @@
 # 专业厨师选择购买的普通食品和配料
 
-> 原文:[https://life hacker . com/the-generic-foods-and-ingredients-professional-chefs-ch-1612252330](https://lifehacker.com/the-generic-foods-and-ingredients-professional-chefs-ch-1612252330)
+> 原文：<https://lifehacker.com/the-generic-foods-and-ingredients-professional-chefs-ch-1612252330>
 
 我们倾向于认为通用产品是受欢迎品牌的不太酷的小弟弟，但芝加哥大学布斯商学院最近的一项研究表明，厨师更有可能为他们的家庭购买通用食品，这些食品是他们的通用食品。
 

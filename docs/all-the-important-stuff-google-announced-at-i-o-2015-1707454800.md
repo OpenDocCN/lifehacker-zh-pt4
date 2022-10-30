@@ -1,6 +1,6 @@
 # 谷歌在 2015 年 I/O 大会上宣布的所有重要内容
 
-> 原文:[https://life hacker . com/all-the-important-stuff-Google-announced-at-I-o-2015-1707454800](https://lifehacker.com/all-the-important-stuff-google-announced-at-i-o-2015-1707454800)
+> 原文：<https://lifehacker.com/all-the-important-stuff-google-announced-at-i-o-2015-1707454800>
 
 今天，谷歌以充满新产品发布的传统主题演讲拉开了其 I/O 大会的序幕。以下是谷歌今天宣布的一些最有趣的事情。
 

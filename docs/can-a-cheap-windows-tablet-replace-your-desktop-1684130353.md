@@ -1,6 +1,6 @@
 # 廉价的 Windows 平板电脑能取代你的台式机吗？
 
-> 原文:[https://gizmodo . com/can-a-cheap-windows-table t-replace-your-desktop-1684130353](https://gizmodo.com/can-a-cheap-windows-tablet-replace-your-desktop-1684130353)
+> 原文：<https://gizmodo.com/can-a-cheap-windows-tablet-replace-your-desktop-1684130353>
 
 开始是随口吹牛，但后来变成了挑战。我告诉我的 Gizmodo 同事为什么我喜欢我的 Windows 8 平板电脑:它快，它便宜，它是一台完全成熟的 PC。见鬼，我说，我大概可以把它连到显示器上，用它当我一周的主力。
 

@@ -1,6 +1,6 @@
 # 如何保持动力，让午餐保持棕色
 
-> 原文:[https://life hacker . com/how-to-stay-motive-to-keep-brown-bagging-your-lunch-1681945649](https://lifehacker.com/how-to-stay-motivated-to-keep-brown-bagging-your-lunch-1681945649)
+> 原文：<https://lifehacker.com/how-to-stay-motivated-to-keep-brown-bagging-your-lunch-1681945649>
 
 “带上你的午饭！”唧唧喳喳的博客给那些想省钱的人提建议。"周日晚上做一份炖肉，它可以让你工作一整周！"“把前一天晚上的剩菜打包！”这个建议并不*错*；一点计划和一点灵活性绝对可以帮助你的食物预算，特别是如果你周围有很多奢侈的午餐选择。但人们去 Chipotle，Chop't 和 Panera 还有其他原因，其中包括在外面的时间，工作场所的友情，对烹饪缺乏兴趣，“悲伤的办公桌午餐”这句话，以及放纵自己的需要。
 

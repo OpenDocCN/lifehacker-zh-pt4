@@ -1,6 +1,6 @@
 # 怎样才能避免买到偷来的手机？
 
-> 原文:[https://life hacker . com/how-can-I-avoid-buying-a-stock-a-1485785360](https://lifehacker.com/how-can-i-avoid-buying-a-stolen-phone-1485785360)
+> 原文：<https://lifehacker.com/how-can-i-avoid-buying-a-stolen-phone-1485785360>
 
 亲爱的 Lifehacker，
 我想买一部新的智能手机，而且想买一部便宜的。我担心从易贝或 Craigslist 上购买，因为我害怕我会得到一部偷来的手机。有什么方法可以让我在购买前检查一下吗？

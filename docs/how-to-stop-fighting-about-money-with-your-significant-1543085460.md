@@ -1,6 +1,6 @@
 # 如何停止和你的另一半为钱争吵
 
-> 原文:[https://life hacker . com/how-to-stop-about-money-the-number-1543085460](https://lifehacker.com/how-to-stop-fighting-about-money-with-your-significant-1543085460)
+> 原文：<https://lifehacker.com/how-to-stop-fighting-about-money-with-your-significant-1543085460>
 
 金钱是许多夫妻关系中的刺。65%的夫妇会因为钱而争吵，而金钱上的分歧是已婚夫妇说他们离婚的首要原因。如果你和你的伴侣在财务问题上意见不一致，看看这些策略，它们可以帮助你一劳永逸地结束冲突。
 

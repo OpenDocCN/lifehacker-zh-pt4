@@ -1,6 +1,6 @@
 # 是啊！没有有线电视订阅的 HBO 将于明年推出
 
-> 原文:[https://gizmodo . com/yes-HBO-without-a-cable-subscription-is-coming-next-ye-1646609001](https://gizmodo.com/yes-hbo-without-a-cable-subscription-is-coming-next-ye-1646609001)
+> 原文：<https://gizmodo.com/yes-hbo-without-a-cable-subscription-is-coming-next-ye-1646609001>
 
 这是个大新闻:HBO [刚刚宣布](http://recode.net/2014/10/15/hbo-says-its-going-to-start-selling-on-the-web-next-year/) 将在明年某个时候推出网络服务。也就是说，你可以在没有有线电视订阅的情况下收看 HBO。耶！
 

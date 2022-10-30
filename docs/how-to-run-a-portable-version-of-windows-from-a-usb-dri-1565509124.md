@@ -1,6 +1,6 @@
 # 如何从 USB 驱动器运行 Windows 的便携版
 
-> 原文:[https://life hacker . com/how-to-run-a-portable-version-of-a-USB-dri-1565509124](https://lifehacker.com/how-to-run-a-portable-version-of-windows-from-a-usb-dri-1565509124)
+> 原文：<https://lifehacker.com/how-to-run-a-portable-version-of-windows-from-a-usb-dri-1565509124>
 
 曾经想要一个可以随身携带的 Windows 副本，可以在任何计算机上使用吗？这是可能的:下面是如何在 USB 硬盘上安装 Windows 8 的便携式版本，你可以带着它去任何地方。
 

@@ -1,6 +1,6 @@
 # 用这些星空壁纸装饰你的桌面
 
-> 原文:[https://life hacker . com/enchant-your-desktop with these-starry-night-wallpapers-1641311304](https://lifehacker.com/enchant-your-desktop-with-these-starry-night-wallpapers-1641311304)
+> 原文：<https://lifehacker.com/enchant-your-desktop-with-these-starry-night-wallpapers-1641311304>
 
 当你能看到星星和月亮的时候，晴朗的夜空有一种令人振奋和深深感动的东西。难怪星夜是如此伟大的摄影主题...桌面壁纸也是如此。这里有一个选择供你下载。
 

@@ -1,6 +1,6 @@
 # 五款最佳便携式耳机放大器
 
-> 原文:[https://life hacker . com/five-best-portable-headphone-amplifier-1722800379](https://lifehacker.com/five-best-portable-headphone-amplifiers-1722800379)
+> 原文：<https://lifehacker.com/five-best-portable-headphone-amplifiers-1722800379>
 
 如果你使用一副便携式耳机，甚至廉价耳机，你可能需要一个像样的放大器。但是，如果你最喜欢的聆听方式是在旅途中听音乐，那它就必须与你同行。根据您的建议，本周我们将探讨便携式耳机放大器。
 

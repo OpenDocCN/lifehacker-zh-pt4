@@ -1,6 +1,6 @@
 # 四个迹象表明你应该修补你现在的工作，而不是辞职
 
-> 原文:[https://life hacker . com/four-signs-you-should-fix-you-current-job-of-q-1724152724](https://lifehacker.com/four-signs-you-should-fix-your-current-job-instead-of-q-1724152724)
+> 原文：<https://lifehacker.com/four-signs-you-should-fix-your-current-job-instead-of-q-1724152724>
 
 当你被困在一份你讨厌的工作中时，很容易阅读一些关于追求梦想的文章，并找到你在辞职信中寻求的认可。但是，感觉糟糕的工作可能并不永远糟糕——在某些情况下，尝试修复你的工作，而不是跳槽，可能是值得的。
 

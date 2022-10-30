@@ -1,6 +1,6 @@
 # 放下巴西莓汁:抗氧化剂不是灵丹妙药
 
-> 原文:[https://life hacker . com/put-down-the-acai-juice-抗氧化剂不是奇迹-1722457178](https://lifehacker.com/put-down-the-acai-juice-antioxidants-are-not-a-miracle-1722457178)
+> 原文：<https://lifehacker.com/put-down-the-acai-juice-antioxidants-are-not-a-miracle-1722457178>
 
 抗氧化剂是健康光环的主宰:把它们放入酸奶中，酸奶现在就是一种健康食品。营销人员接受了这个想法，并开始行动，但科学是渺茫的——他们研究得越多，科学家就越发现抗氧化剂并不是我们一直相信的神奇的疾病屏障。
 

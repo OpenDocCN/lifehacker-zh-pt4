@@ -1,6 +1,6 @@
 # 用创造性的类似物获得更好的头脑风暴结果
 
-> 原文:[https://life hacker . com/get-better-brainstorm-results-using-creative-analog-1598129182](https://lifehacker.com/get-better-brainstorming-results-using-creative-analogi-1598129182)
+> 原文：<https://lifehacker.com/get-better-brainstorming-results-using-creative-analogi-1598129182>
 
 当我们头脑风暴时，我们试图想出大量的新想法，直到我们实现一个灵光乍现的时刻，但这可能不是最好的方法。相反，最好专注于小的创造性步骤，并使用类比来帮助联系想法。
 

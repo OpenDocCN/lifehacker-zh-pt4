@@ -1,6 +1,6 @@
 # 零食订阅，比较:如何选择适合你的食品盒
 
-> 原文:[https://life hacker . com/snack-subscriptions-comparated-how-to-choose-the-food-b-1719609721](https://lifehacker.com/snack-subscriptions-compared-how-to-choose-the-food-b-1719609721)
+> 原文：<https://lifehacker.com/snack-subscriptions-compared-how-to-choose-the-food-b-1719609721>
 
 似乎什么都有订阅箱，甚至食物也有。每月支付一笔较低(或不那么低)的费用，你就可以每月收到邮寄上门的小吃、香料和“手工”香肠，但选择哪一盒物有所值是最难的部分。
 

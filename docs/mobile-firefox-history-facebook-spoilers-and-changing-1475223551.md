@@ -1,6 +1,6 @@
 # 移动火狐历史，脸书剧透，和改变习惯
 
-> 原文:[https://life hacker . com/mobile-Firefox-history-Facebook-剧透-和-变-1475223551](https://lifehacker.com/mobile-firefox-history-facebook-spoilers-and-changing-1475223551)
+> 原文：<https://lifehacker.com/mobile-firefox-history-facebook-spoilers-and-changing-1475223551>
 
 读者们提供了他们最好的建议，让你在 Android 版的移动 Firefox 中访问你的历史，在脸书上创建剧透标签，用一个简单的技巧改变习惯。
 

@@ -1,6 +1,6 @@
 # 我们为什么需要苹果
 
-> 原文:[https://lifehacker.com/why-we-need-apple-1633001783](https://lifehacker.com/why-we-need-apple-1633001783)
+> 原文：<https://lifehacker.com/why-we-need-apple-1633001783>
 
 众所周知，我是一个机器人。我在一家专注于 Android 的网站工作了两年，拥有多台名称中带有“Nexus”的设备。不过，我对苹果昨天的声明再高兴不过了。为什么？因为苹果的所作所为影响着我们所有人。
 

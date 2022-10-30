@@ -1,6 +1,6 @@
 # 最差的手机运营商是哪家？
 
-> 原文:[https://life hacker . com/whats-the-worst-mobile-carrier-1455847482](https://lifehacker.com/whats-the-worst-cell-phone-carrier-1455847482)
+> 原文：<https://lifehacker.com/whats-the-worst-cell-phone-carrier-1455847482>
 
 为了纪念邪恶周，我们将从挑选最好的东西转向最坏的东西。每个人都对为你提供手机服务的公司有强烈的感受，所以这个星期我们想听听。让我们知道你认为哪些公司最差，为什么！
 

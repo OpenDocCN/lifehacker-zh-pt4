@@ -1,6 +1,6 @@
 # 云林桌面
 
-> 原文:[https://life hacker . com/the-forest-of-the-cloud-desktop-1726509106](https://lifehacker.com/the-forest-of-the-clouds-desktop-1726509106)
+> 原文：<https://lifehacker.com/the-forest-of-the-clouds-desktop-1726509106>
 
 [apagajewski](https://www.flickr.com/photos/124439106@N04/) 的 linux 桌面提醒我们即将到来的寒冷的冬天早晨。清脆爽口，即使还在我们所在的暖侧。他是这样设置的。
 

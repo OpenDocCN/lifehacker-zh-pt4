@@ -1,6 +1,6 @@
 # 时差的真相以及如何克服时差
 
-> 原文:[https://life hacker . com/the-truth-about the-jet-lag-and-how-over-it-1575151287](https://lifehacker.com/the-truth-about-jet-lag-and-how-to-overcome-it-1575151287)
+> 原文：<https://lifehacker.com/the-truth-about-jet-lag-and-how-to-overcome-it-1575151287>
 
 如果你是一个经常旅行的人，你就会知道在不同时区之间跳跃，有时差反应是什么感觉。这是一个可以预见的恼人的问题，但有一些方法可以最大限度地减少你适应一个新时区的时间，并倒回你的生物钟。
 

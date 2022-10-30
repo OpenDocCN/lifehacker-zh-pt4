@@ -1,6 +1,6 @@
 # 井然有序的夫妻工作空间
 
-> 原文:[https://life hacker . com/the-organized-his-hers-workspace-1700708844](https://lifehacker.com/the-organized-his-and-hers-workspace-1700708844)
+> 原文：<https://lifehacker.com/the-organized-his-and-hers-workspace-1700708844>
 
 共享办公室并不总是容易保持整洁有序，但这是安德鲁·卡瑞塔和他妻子的办公室。工作区的其他照片揭示了一些令人印象深刻的组织。
 

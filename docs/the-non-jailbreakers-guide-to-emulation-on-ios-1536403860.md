@@ -1,6 +1,6 @@
 # 非越狱者 iOS 仿真指南
 
-> 原文:[https://life hacker . com/the-non-jail breakers-guide-to-emulation-on-IOs-1536403860](https://lifehacker.com/the-non-jailbreakers-guide-to-emulation-on-ios-1536403860)
+> 原文：<https://lifehacker.com/the-non-jailbreakers-guide-to-emulation-on-ios-1536403860>
 
 从技术上讲，你不应该在 iPhone 上安装模拟器来玩经典游戏。但这并不意味着这是不可能的。以下是如何在任何 iOS 设备上安装模拟器，不需要越狱。
 

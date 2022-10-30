@@ -1,6 +1,6 @@
 # 10 件你永远不该花钱买的东西
 
-> 原文:[https://life hacker . com/1529615183](https://lifehacker.com/ten-things-you-should-never-pay-for-1529615183)
+> 原文：<https://lifehacker.com/ten-things-you-should-never-pay-for-1529615183>
 
 *好的，好的*。标题可能是在沙子上画一条不存在的线。毕竟，那句话怎么说来着…“永不说永不”？但是当涉及到财务问题时，有时做出长期承诺，避免购买某些东西，可以帮助你避免经常耗费你积蓄的开支。
 

@@ -1,6 +1,6 @@
 # 2014 年最受欢迎的火狐扩展和帖子
 
-> 原文:[https://life hacker . com/most-popular-Firefox-extensions-and-post-of-2014-1671883468](https://lifehacker.com/most-popular-firefox-extensions-and-posts-of-2014-1671883468)
+> 原文：<https://lifehacker.com/most-popular-firefox-extensions-and-posts-of-2014-1671883468>
 
 Firefox 可能不像以前那么受欢迎了，但我们在 Lifehacker 仍然喜欢它。以下是我们在 2014 年推出的最受欢迎的火狐扩展和指南。
 

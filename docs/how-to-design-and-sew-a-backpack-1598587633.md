@@ -1,6 +1,6 @@
 # 如何设计和缝制定制背包
 
-> 原文:[https://life hacker . com/how-to-design-and-sew-a-backpack-1598587633](https://lifehacker.com/how-to-design-and-sew-a-backpack-1598587633)
+> 原文：<https://lifehacker.com/how-to-design-and-sew-a-backpack-1598587633>
 
 厌倦了永远找不到最适合你的背包？是的，所以我决定从头开始创造我自己的定制背包。这需要一些深思熟虑的设计和艰苦的工作，但现在我有了一个真正符合我需求的包。
 

@@ -1,6 +1,6 @@
 # 为什么分手很糟糕背后的科学(以及你能做些什么)
 
-> 原文:[https://life hacker . com/the-science-behind-why-breaks-and-what-you-can-1460495310](https://lifehacker.com/the-science-behind-why-breakups-suck-and-what-you-can-1460495310)
+> 原文：<https://lifehacker.com/the-science-behind-why-breakups-suck-and-what-you-can-1460495310>
 
 爱感觉是世界上最伟大的事情...直到结束。当它发生时，我们就停止了全力运转。我们失去动力，发现挑战不可逾越，有时觉得不会再爱了。幸运的是，几项研究揭示了为什么分手如此糟糕的根源——以及你能做些什么。
 

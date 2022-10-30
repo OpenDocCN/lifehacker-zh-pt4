@@ -1,6 +1,6 @@
 # 你可以改变或打破的优惠券规则，以及允许你这样做的商店
 
-> 原文:[https://life hacker . com/the-coupon-rules-you-can-bend-or-break-and-the-stores-1701089606](https://lifehacker.com/the-coupon-rules-you-can-bend-or-break-and-the-stores-1701089606)
+> 原文：<https://lifehacker.com/the-coupon-rules-you-can-bend-or-break-and-the-stores-1701089606>
 
 说到优惠券，游戏规则非常清楚。但是只要有一点进取心，像有效期、除外责任和数量限制这样的规则就可以被延长，或者完全终止，以最大化你的储蓄。以下是你需要知道的。
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:8 月 14 日至 21 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-August-14-to-21-1725639331](https://lifehacker.com/this-weeks-most-popular-posts-august-14th-to-21st-1725639331)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-august-14th-to-21st-1725639331>
 
 本周，我们学习了 Windows 10 如何管理内存，学习了如何帮助有太多内存的朋友，克服了财务恐惧，等等。这里回顾一下。
 

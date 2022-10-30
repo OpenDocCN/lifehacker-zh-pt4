@@ -1,6 +1,6 @@
 # Eclipse 桌面
 
-> 原文:[https://lifehacker.com/the-eclipse-desktop-1700956968](https://lifehacker.com/the-eclipse-desktop-1700956968)
+> 原文：<https://lifehacker.com/the-eclipse-desktop-1700956968>
 
 读者 [普什卡](http://pushkardesai999.kinja.com/) 用几个容易配置的组件，在短短几分钟内就把这个刻板、开放、干净的桌面组装起来。他是这样做的。
 

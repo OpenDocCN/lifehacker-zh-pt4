@@ -1,6 +1,6 @@
 # Android 的最佳双因素认证应用
 
-> 原文:[https://life hacker . com/the-best-two-factor-authentic ation-app-for-Android-1638791349](https://lifehacker.com/the-best-two-factor-authentication-app-for-android-1638791349)
+> 原文：<https://lifehacker.com/the-best-two-factor-authentication-app-for-android-1638791349>
 
 双因素认证是保护你的帐户免受黑客攻击的最重要的事情之一，如果你还没有启用，你应该现在就启用它。然而，Authy 不是使用短信，而是我们最喜欢的双因素应用程序。
 

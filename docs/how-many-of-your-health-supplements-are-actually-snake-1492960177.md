@@ -1,6 +1,6 @@
 # 你的保健品有多少其实是蛇油？
 
-> 原文:[https://gizmodo . com/多少你的保健品实际上是蛇-1492960177](https://gizmodo.com/how-many-of-your-health-supplements-are-actually-snake-1492960177)
+> 原文：<https://gizmodo.com/how-many-of-your-health-supplements-are-actually-snake-1492960177>
 
 [最近的研究表明](https://gizmodo.com/scientists-say-vitamins-and-minerals-are-a-waste-of-mo-1484902526) 许多维生素和补充剂对我们的健康没有什么好处，而且是在浪费金钱。这张图表将非常清楚地表明这是多么真实。
 

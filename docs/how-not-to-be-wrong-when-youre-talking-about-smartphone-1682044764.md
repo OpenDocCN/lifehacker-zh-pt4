@@ -1,6 +1,6 @@
 # 当你谈论智能手机显示屏时，如何不出错
 
-> 原文:[https://gizmodo . com/how-not-to-be-mist-when-you-talking-smart phone-1682044764](https://gizmodo.com/how-not-to-be-wrong-when-youre-talking-about-smartphone-1682044764)
+> 原文：<https://gizmodo.com/how-not-to-be-wrong-when-youre-talking-about-smartphone-1682044764>
 
 制造智能手机需要大量惊人的工程和设计。智能手机显示屏是最重要的部分之一——它们是你通向互联网和世界的窗口。但是我们用来描述它们的技术术语可能会很混乱。以下是如何让你在谈到展示时听起来像是知道自己在说什么。
 

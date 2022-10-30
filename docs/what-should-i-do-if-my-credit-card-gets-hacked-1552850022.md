@@ -1,6 +1,6 @@
 # 信用卡被黑了怎么办？
 
-> 原文:[https://life hacker . com/what-should-I-do-if-my-credit-hacked-1552850022](https://lifehacker.com/what-should-i-do-if-my-credit-card-gets-hacked-1552850022)
+> 原文：<https://lifehacker.com/what-should-i-do-if-my-credit-card-gets-hacked-1552850022>
 
 亲爱的生活黑客，我最近发现我的信用卡上有几笔未经授权的费用。我打电话给信用卡公司，他们正在调查，但我还需要采取什么措施来保护自己？
 

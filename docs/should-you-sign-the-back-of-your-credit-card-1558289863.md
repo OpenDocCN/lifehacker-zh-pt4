@@ -1,6 +1,6 @@
 # 你应该在你的信用卡背面签名吗？
 
-> 原文:[https://life hacker . com/should-you-sign-the-back-of-your-credit-card-1558289863](https://lifehacker.com/should-you-sign-the-back-of-your-credit-card-1558289863)
+> 原文：<https://lifehacker.com/should-you-sign-the-back-of-your-credit-card-1558289863>
 
 在你的信用卡上签名，写上“看身份证”，还是留空，这有什么关系吗？有很多关于你应该在你的卡背面做些什么来保证它的安全的谣言。塑料爱好者在 [*栈交换*](http://superuser.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=money-112) *回答你的问题。*
 

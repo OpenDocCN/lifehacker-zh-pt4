@@ -1,6 +1,6 @@
 # 请教专家:关于网络隐私和安全
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-online-privacy-and-security-1584757956](https://lifehacker.com/ask-an-expert-all-about-online-privacy-and-security-1584757956)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-online-privacy-and-security-1584757956>
 
 谈到安全，互联网有时会让人感觉像是蛮荒的西部。大型商业网站经常遭到黑客攻击，我们的私人数据就像在一个漏网的筛子后面。我们有多安全，我们能做什么？
 

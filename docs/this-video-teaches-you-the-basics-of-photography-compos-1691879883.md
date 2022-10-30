@@ -1,6 +1,6 @@
 # 这个视频教你摄影构图的基础
 
-> 原文:[https://life hacker . com/this-video-teaches-you-the-basics-of-photography-compos-1691879883](https://lifehacker.com/this-video-teaches-you-the-basics-of-photography-compos-1691879883)
+> 原文：<https://lifehacker.com/this-video-teaches-you-the-basics-of-photography-compos-1691879883>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-7ZVyNjKSr0M&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-7ZVyNjKSr0M&start=0) 
 

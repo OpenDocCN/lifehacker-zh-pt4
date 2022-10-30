@@ -1,6 +1,6 @@
 # 让你负债的隐藏策略(以及如何克服它们)
 
-> 原文:[https://life hacker . com/the-hidden-tactics-keying-you-in-debt-and-how-to-over-1511765157](https://lifehacker.com/the-hidden-tactics-keeping-you-in-debt-and-how-to-over-1511765157)
+> 原文：<https://lifehacker.com/the-hidden-tactics-keeping-you-in-debt-and-how-to-over-1511765157>
 
 尽管我们都愿意相信，与我们打交道的每家金融公司都把我们的最佳利益放在心上，但我们从经验中了解到，事实并非如此。然而，当我们遇到让人们更难控制自己财务的做法时，这仍然令人惊讶。
 

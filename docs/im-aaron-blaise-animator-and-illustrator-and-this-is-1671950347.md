@@ -1,6 +1,6 @@
 # 我是亚伦·布莱斯，动画师和插画家，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-aaron-Blaise-animator-and-illustrator-and-this-is-1671950347](https://lifehacker.com/im-aaron-blaise-animator-and-illustrator-and-this-is-1671950347)
+> 原文：<https://lifehacker.com/im-aaron-blaise-animator-and-illustrator-and-this-is-1671950347>
 
 你可能不知道他的名字，但是你已经看过他的作品了——20 多年来，Aaron Blaise 一直是迪士尼的一名动画师，帮助他们创造一些最令人难忘的角色。从《美女与野兽》到《阿拉丁》、《狮子王》等等，亚伦的铅笔充满了生命。
 

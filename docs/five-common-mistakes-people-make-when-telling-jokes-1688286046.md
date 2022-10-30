@@ -1,6 +1,6 @@
 # 人们在讲笑话时会犯的五个常见错误
 
-> 原文:[https://life hacker . com/five-common-errors-people-make-when-telling-says-1688286046](https://lifehacker.com/five-common-mistakes-people-make-when-telling-jokes-1688286046)
+> 原文：<https://lifehacker.com/five-common-mistakes-people-make-when-telling-jokes-1688286046>
 
 说到幽默，没有人是完美的。有些人只是设法在早期识别出一个糟糕的笑话，然后闭嘴，或者优雅地取消他们更笨拙的笑话。这里有一些你在搞笑时可能会犯的常见错误，以及如何识别和避免它们。
 

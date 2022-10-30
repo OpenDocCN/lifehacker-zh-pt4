@@ -1,6 +1,6 @@
 # 应用背后:Plex 的故事
 
-> 原文:[https://life hacker . com/behind-the-app-the-story-of-plex-1612601098](https://lifehacker.com/behind-the-app-the-story-of-plex-1612601098)
+> 原文：<https://lifehacker.com/behind-the-app-the-story-of-plex-1612601098>
 
 最基本的， [Plex](https://plex.tv/) 是一款应用程序，可以让你将媒体从桌面传输到任何其他设备，无论你使用的是手机、平板电脑还是其他电脑。但它已经慢慢成为一个完整的媒体管理生态系统，几乎涵盖了你能想到的所有平台。
 

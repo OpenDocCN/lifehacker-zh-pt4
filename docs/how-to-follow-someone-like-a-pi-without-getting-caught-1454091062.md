@@ -1,6 +1,6 @@
 # 如何像私家侦探一样跟踪一个人而不被抓住
 
-> 原文:[https://life hacker . com/how-to-follow-someone-like-a-pi-without-going-1454091062](https://lifehacker.com/how-to-follow-someone-like-a-pi-without-getting-caught-1454091062)
+> 原文：<https://lifehacker.com/how-to-follow-someone-like-a-pi-without-getting-caught-1454091062>
 
 除非你是有执照的私家侦探，否则跟踪一个人通常是个坏主意，但了解一下这是怎么做的也无妨，这样你就可以尽可能地保护自己。
 

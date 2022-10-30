@@ -1,6 +1,6 @@
 # 如何(几乎)无所事事地赚钱
 
-> 原文:[https://life hacker . com/how-to-make-money-doing-almost-1462909872](https://lifehacker.com/how-to-make-money-doing-almost-nothing-1462909872)
+> 原文：<https://lifehacker.com/how-to-make-money-doing-almost-nothing-1462909872>
 
 赚钱的方式几乎没有限制，但大多数都需要努力(这种特殊的平衡被称为“人类条件”)。然而，有一些方法可以在不太出格的情况下赚到额外的钱。这里有几个。
 

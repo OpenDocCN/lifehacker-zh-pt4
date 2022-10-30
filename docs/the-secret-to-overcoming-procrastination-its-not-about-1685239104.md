@@ -1,6 +1,6 @@
 # 克服拖延症的秘诀:这与意志力无关
 
-> 原文:[https://gizmodo . com/the-secret-to-override-that-not-about-1685239104](https://gizmodo.com/the-secret-to-overcoming-procrastination-its-not-about-1685239104)
+> 原文：<https://gizmodo.com/the-secret-to-overcoming-procrastination-its-not-about-1685239104>
 
 拖延症是一个普遍的问题。即使是最有条理的人也知道把事情拖到最后的痛苦...可能的...一分钟。为什么我们让自己经历这种痛苦，知道后果？我们怎样才能克服这种冲动呢？
 

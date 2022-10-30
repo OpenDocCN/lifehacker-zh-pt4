@@ -1,6 +1,6 @@
 # 找到共同点，开始一场艰难的金钱对话
 
-> 原文:[https://life hacker . com/find-common-ground-to-initiate-a-different-money-conver-1679009224](https://lifehacker.com/find-common-ground-to-initiate-a-difficult-money-conver-1679009224)
+> 原文：<https://lifehacker.com/find-common-ground-to-initiate-a-difficult-money-conver-1679009224>
 
 无论是与配偶达成共识，还是支持朋友的金钱目标，有时财务讨论是必要的。从积极的方面开始对话，找到一些共同点。
 

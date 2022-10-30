@@ -1,6 +1,6 @@
 # 如何修复安卓最大的烦恼:2013 版
 
-> 原文:[https://life hacker . com/how-to-fix-androids-maximum-annotations-2013-edition-1488535064](https://lifehacker.com/how-to-fix-androids-biggest-annoyances-2013-edition-1488535064)
+> 原文：<https://lifehacker.com/how-to-fix-androids-biggest-annoyances-2013-edition-1488535064>
 
 Android 可能是一个伟大的操作系统，但它也有其主要的烦恼。我们问你[Android 上你最讨厌](https://lifehacker.com/what-are-your-biggest-android-annoyances-1486270773) 的什么 bug。从电池寿命到垃圾软件等等，以下是解决一些最常见问题的最佳方法。
 

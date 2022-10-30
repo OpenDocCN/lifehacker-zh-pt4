@@ -1,6 +1,6 @@
 # 三重 4K 显示工作区
 
-> 原文:[https://life hacker . com/the-triple-4k-display-workspace-1717764794](https://lifehacker.com/the-triple-4k-display-workspace-1717764794)
+> 原文：<https://lifehacker.com/the-triple-4k-display-workspace-1717764794>
 
 今天的特色工作空间绝对不缺少一样东西:屏幕空间。三个 [4K 显示器](http://lifehacker.com/what-is-4k-and-should-i-buy-a-4k-display-right-now-1540920905) 为划分浏览器和程序窗口提供了充足的空间。
 

@@ -1,6 +1,6 @@
 # 为什么你应该教授你所知道的，即使你不是专家
 
-> 原文:[https://life hacker . com/teach-others-what-you-know-to-make-connections-and-lear-1639560273](https://lifehacker.com/teach-others-what-you-know-to-make-connections-and-lear-1639560273)
+> 原文：<https://lifehacker.com/teach-others-what-you-know-to-make-connections-and-lear-1639560273>
 
 通过教授你已经知道的关于你的职业或爱好的知识，你会学到更多，有可能作为一个有前途的专家获得一些名声，与人建立新的联系，并找到新的机会。你会玩得很开心。
 

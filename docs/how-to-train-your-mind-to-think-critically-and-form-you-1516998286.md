@@ -1,6 +1,6 @@
 # 如何训练你的思维进行批判性思考并形成自己的观点
 
-> 原文:[https://life hacker . com/how-to-training you-mind to-think-critical-form you-1516998286](https://lifehacker.com/how-to-train-your-mind-to-think-critically-and-form-you-1516998286)
+> 原文：<https://lifehacker.com/how-to-train-your-mind-to-think-critically-and-form-you-1516998286>
 
 “批判性思维”可能听起来像是来自文理学院的一个令人讨厌的时髦词，但它实际上是一项有用的技能。批判性思维 仅仅意味着吸收重要的信息，并利用这些信息形成自己的决定或观点——而不仅仅是滔滔不绝地说出你听到别人说的话。这对我们来说并不总是自然而然的，但幸运的是，这是你可以训练自己做得更好的事情。
 

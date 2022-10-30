@@ -1,6 +1,6 @@
 # 根据这张图表，了解您是否可以使用来自互联网的图像
 
-> 原文:[https://life hacker . com/follow-this-chart-to-know-if-you-can-use-a-image-from-1615584870](https://lifehacker.com/follow-this-chart-to-know-if-you-can-use-an-image-from-1615584870)
+> 原文：<https://lifehacker.com/follow-this-chart-to-know-if-you-can-use-an-image-from-1615584870>
 
 当你在网上找到一张非常适合你的项目的照片时，很难知道你是否被允许使用它。按照这个流程图来确定，避免让自己陷入任何麻烦。
 

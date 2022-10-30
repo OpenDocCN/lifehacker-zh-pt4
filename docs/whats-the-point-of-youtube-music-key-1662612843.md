@@ -1,6 +1,6 @@
 # YouTube 音乐键有什么意义？
 
-> 原文:[https://life hacker . com/whats-the-point-of-YouTube-music-key-1662612843](https://lifehacker.com/whats-the-point-of-youtube-music-key-1662612843)
+> 原文：<https://lifehacker.com/whats-the-point-of-youtube-music-key-1662612843>
 
 最近，谷歌推出了一项新的音乐服务，名为 [YouTube 音乐键](https://www.youtube.com/musickey) 。但是等等，谷歌不是已经有 [一个音乐服务](https://lifehacker.com/google-music-all-access-should-it-be-your-new-streamin-506977460) 了吗？嗯，是的。而音乐键让它变得更好。
 

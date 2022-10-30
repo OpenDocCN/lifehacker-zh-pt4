@@ -1,6 +1,6 @@
 # 你的酒为什么这么贵？
 
-> 原文:[https://deadspin . com/why-the-hell-do-why-your ' s drink-cost-1454231900](https://deadspin.com/why-the-hell-does-your-drink-cost-so-much-1454231900)
+> 原文：<https://deadspin.com/why-the-hell-does-your-drink-cost-so-much-1454231900>
 
 我没有足够的雄心去彻底节俭，但我尽量避免卑鄙的零售愚蠢。当塞满我邮箱的免费杂志和内衣目录完全能够装下哪怕是最笨重的三明治时，我知道最好不要买纸盘子。我喝自来水，我聪明到可以把对一磅杏仁的渴望变成三磅花生。我过得去。
 

@@ -1,6 +1,6 @@
 # 自由职业前你应该考虑的创业成本
 
-> 原文:[https://life hacker . com/the-startup-costs-you-should-consider-before-freelancin-1592927685](https://lifehacker.com/the-startup-costs-you-should-consider-before-freelancin-1592927685)
+> 原文：<https://lifehacker.com/the-startup-costs-you-should-consider-before-freelancin-1592927685>
 
 自立门户，成为自由职业者是一个巨大的进步，但是在你迈出这一步之前，有很多事情你应该考虑一下 。值得考虑的一件事是独立工作的启动成本。它们就在那里——有些你可能想不到。
 

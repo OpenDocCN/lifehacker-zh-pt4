@@ -1,6 +1,6 @@
 # YouTube 上让你成为修理大师的最佳 DIY 频道
 
-> 原文:[https://life hacker . com/the-best-DIY-YouTube-channels-to-turn-you-into-a-fix-it-1699686543](https://lifehacker.com/the-best-diy-youtube-channels-to-turn-you-into-a-fix-it-1699686543)
+> 原文：<https://lifehacker.com/the-best-diy-youtube-channels-to-turn-you-into-a-fix-it-1699686543>
 
 如果你想在家里更得心应手，YouTube 是一个很好的资源。无论你是在处理简单的维修还是大的改进项目，这些 YouTube 频道都提供了精彩的视频教程，可以节省你的时间、金钱和挫折。
 

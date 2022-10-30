@@ -1,6 +1,6 @@
 # 如何自助出书
 
-> 原文:[https://life hacker . com/how-to-self-publish-your-own-book-1610916214](https://lifehacker.com/how-to-self-publish-your-own-book-1610916214)
+> 原文：<https://lifehacker.com/how-to-self-publish-your-own-book-1610916214>
 
 20 年前，如果你是一个对出版你的书感兴趣的新作者，你不得不与出版商联系，希望有人最终不会拒绝你。但是现在你可以选择自己出版任何你喜欢的东西。以下是方法。
 

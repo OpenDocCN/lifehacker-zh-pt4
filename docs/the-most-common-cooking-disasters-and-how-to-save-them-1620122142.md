@@ -1,6 +1,6 @@
 # 最常见的烹饪灾难以及如何拯救它们
 
-> 原文:[https://life hacker . com/the-most-common-cooking-disasters-and-how-to-save-them-1620122142](https://lifehacker.com/the-most-common-cooking-disasters-and-how-to-save-them-1620122142)
+> 原文：<https://lifehacker.com/the-most-common-cooking-disasters-and-how-to-save-them-1620122142>
 
 即使你已经做了一道菜一百次，在第 101 次的时候还是会出问题，不管你的食物是太辣了还是煮过头了。不要惊慌。对于最常见的烹饪灾难，有一些方法可以确保你的食物不会浪费。
 

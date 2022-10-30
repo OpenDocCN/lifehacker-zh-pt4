@@ -1,6 +1,6 @@
 # 尽管我患有多动症，我是如何自学听力的
 
-> 原文:[https://life hacker . com/how-I-course-to-listen-Justin-my ADHD-1543097586](https://lifehacker.com/how-i-taught-myself-to-listen-despite-my-adhd-1543097586)
+> 原文：<https://lifehacker.com/how-i-taught-myself-to-listen-despite-my-adhd-1543097586>
 
 你们当中有注意力缺陷障碍的人可能坚持不到这个句子结束。我小时候也有这个问题，但我找到了一些方法，让我的大脑集中注意力，认真倾听。我永远不会成为一个伟大的倾听者，但我不用药物也能挺过去，因为我自学了三件简单的事情。
 

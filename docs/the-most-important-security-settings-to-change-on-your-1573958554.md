@@ -1,6 +1,6 @@
 # 路由器上需要更改的最重要的安全设置
 
-> 原文:[https://life hacker . com/the-most-important-security-settings-to-change-on-your-1573958554](https://lifehacker.com/the-most-important-security-settings-to-change-on-your-1573958554)
+> 原文：<https://lifehacker.com/the-most-important-security-settings-to-change-on-your-1573958554>
 
 您的路由器是抵御黑客试图访问您家中所有联网设备的第一道防线。可悲的是， [很多顶级的 Wi-Fi 路由器很容易被黑掉](http://www.cnet.com/news/top-wi-fi-routers-easy-to-hack-says-study/) 。你应该关心一下——还要确保你的路由器设置正确。
 

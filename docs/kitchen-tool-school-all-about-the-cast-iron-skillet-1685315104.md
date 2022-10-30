@@ -1,6 +1,6 @@
 # 厨房工具学校:关于神奇铸铁煎锅的一切
 
-> 原文:[https://life hacker . com/kitchen-tool-school-all-about-the-cast-iron-skillet-1685315104](https://lifehacker.com/kitchen-tool-school-all-about-the-cast-iron-skillet-1685315104)
+> 原文：<https://lifehacker.com/kitchen-tool-school-all-about-the-cast-iron-skillet-1685315104>
 
 如果这个博客的标题还不清楚，我们喜欢煎锅——尤其是铸铁煎锅。如果你没有一个或者(或者你还没有用过你的)，以下是为什么你应该开始用它做饭的原因。
 

@@ -1,6 +1,6 @@
 # 尽量减少精神上的阻力，帮助你做好工作
 
-> 原文:[https://life hacker . com/minimize-mental-drag-to-help-you-do-you-best-work-1679302392](https://lifehacker.com/minimize-mental-drag-to-help-you-do-your-best-work-1679302392)
+> 原文：<https://lifehacker.com/minimize-mental-drag-to-help-you-do-your-best-work-1679302392>
 
 试图用一个分心的大脑做好你的工作就像试图在没有游泳帽的情况下游泳获得金牌。分散的注意力就像一头浓密的头发，在你的精神水域中不断制造阻力。你应该以同样的方式处理你的工作流程——去掉那些拖累你的事情。
 

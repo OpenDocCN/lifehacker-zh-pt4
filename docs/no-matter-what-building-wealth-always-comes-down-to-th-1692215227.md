@@ -1,6 +1,6 @@
 # 无论如何，积累财富总是归结于这四个支柱
 
-> 原文:[https://life hacker . com/no-matter-what-building-wealth-to-th-1692215227](https://lifehacker.com/no-matter-what-building-wealth-always-comes-down-to-th-1692215227)
+> 原文：<https://lifehacker.com/no-matter-what-building-wealth-always-comes-down-to-th-1692215227>
 
 积累财富很简单。不是*容易*，而是简单。我们都想赚更多的钱，但是如果你的长期目标是财务独立，那就没有捷径可走了。只有这四条基本规则。
 

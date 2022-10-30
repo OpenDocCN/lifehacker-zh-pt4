@@ -1,6 +1,6 @@
 # 我从搬了三次家并把我所有的东西都扔掉中学到了什么
 
-> 原文:[https://life hacker . com/what-ive-learn-from-moving-three-times-and-trash ing-e-1710510176](https://lifehacker.com/what-ive-learned-from-moving-three-times-and-trashing-e-1710510176)
+> 原文：<https://lifehacker.com/what-ive-learned-from-moving-three-times-and-trashing-e-1710510176>
 
 我们大多数人拥有太多的垃圾。但是在几年内搬了几次州际之后，我明白了拥有更少的价值。
 

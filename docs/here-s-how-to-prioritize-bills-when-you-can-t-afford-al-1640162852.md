@@ -1,6 +1,6 @@
 # 以下是当你负担不起所有账单时，如何优先处理账单的方法
 
-> 原文:[https://life hacker . com/here-s-how-to-prioritize-bills-when you can ' t-affort-al-1640162852](https://lifehacker.com/here-s-how-to-prioritize-bills-when-you-can-t-afford-al-1640162852)
+> 原文：<https://lifehacker.com/here-s-how-to-prioritize-bills-when-you-can-t-afford-al-1640162852>
 
 一场疾病或失业会让原本运转良好的家庭预算不堪重负。你认为你已经考虑到了所有的基础——然后事情变得很糟糕，突然到期的付款比钱还多。你首先支付哪个帐单？
 

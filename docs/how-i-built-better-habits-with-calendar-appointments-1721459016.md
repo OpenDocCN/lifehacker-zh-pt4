@@ -1,6 +1,6 @@
 # 我如何建立更好的日历约会习惯
 
-> 原文:[https://life hacker . com/how-I-build-better-habits-with calendar-appointments-1721459016](https://lifehacker.com/how-i-built-better-habits-with-calendar-appointments-1721459016)
+> 原文：<https://lifehacker.com/how-i-built-better-habits-with-calendar-appointments-1721459016>
 
 旧习难改。你可能有过这样的经历，当你发誓要永远吃所有的沙拉，结果几天后就崩溃了。 [建立新习惯](http://thefyslife.com/article/how-to-create-habits-with-calendar-alerts/) 需要时间。 [很多时候。对我来说，把我的习惯变成日历约会带来了巨大的变化。这可能对你有用。](https://lifehacker.com/why-habits-arent-always-formed-in-21-days-5926583)
 

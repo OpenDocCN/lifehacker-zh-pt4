@@ -1,6 +1,6 @@
 # 视频形式的 DSLR 相机和智能手机相机的区别
 
-> 原文:[https://life hacker . com/the-differences-a-dslr-and-smart phone-camera-I-1540339341](https://lifehacker.com/the-differences-between-a-dslr-and-smartphone-camera-i-1540339341)
+> 原文：<https://lifehacker.com/the-differences-between-a-dslr-and-smartphone-camera-i-1540339341>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-qZMvJ5qFWlc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-qZMvJ5qFWlc&start=0) 
 

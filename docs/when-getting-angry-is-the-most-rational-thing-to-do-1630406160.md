@@ -1,6 +1,6 @@
 # 什么时候生气是最理智的做法
 
-> 原文:[https://gizmodo . com/when-getting-angry 是最合理的做法 1630406160](https://gizmodo.com/when-getting-angry-is-the-most-rational-thing-to-do-1630406160)
+> 原文：<https://gizmodo.com/when-getting-angry-is-the-most-rational-thing-to-do-1630406160>
 
 愤怒受到了不好的指责。当然，当它太多或应用不当时，它会造成伤害，但你可以对几乎任何其他情绪这样说。了解愤怒如何让你变得更聪明、更有能力、更现实。
 

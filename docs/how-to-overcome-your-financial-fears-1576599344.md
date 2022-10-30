@@ -1,6 +1,6 @@
 # 如何克服你的财务恐惧
 
-> 原文:[https://life hacker . com/how-to-克服你的财务恐惧-1576599344](https://lifehacker.com/how-to-overcome-your-financial-fears-1576599344)
+> 原文：<https://lifehacker.com/how-to-overcome-your-financial-fears-1576599344>
 
 理财是压力的一大来源。它会导致关系破裂，让我们陷入抑郁。难怪我们很多人都把头埋在沙子里，希望有最好的结果。不幸的是，这不是解决问题的方法，如果你忽视它，事情不会变得更好。以下是如何克服这些情绪障碍，控制你的钱。
 

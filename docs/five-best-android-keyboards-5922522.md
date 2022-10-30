@@ -1,6 +1,6 @@
 # 五款最佳安卓键盘
 
-> 原文:[https://lifehacker.com/five-best-android-keyboards-5922522](https://lifehacker.com/five-best-android-keyboards-5922522)
+> 原文：<https://lifehacker.com/five-best-android-keyboards-5922522>
 
 找到完美的 Android 键盘不是一件容易的事情——有太多的键盘可供选择，其中大多数都很棒，这取决于你是哪种类型的打字员。本周，我们将根据你们的提名和投票选出五位最佳选手。
 

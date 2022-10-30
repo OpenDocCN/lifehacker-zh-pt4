@@ -1,6 +1,6 @@
 # 您应该启用的十大 Gmail 实验室和功能
 
-> 原文:[https://life hacker . com/top-10-Gmail-labs-and-features-you-should-enable-5721986](https://lifehacker.com/top-10-gmail-labs-and-features-you-should-enable-5721986)
+> 原文：<https://lifehacker.com/top-10-gmail-labs-and-features-you-should-enable-5721986>
 
 如果 Gmail 的 [不够强大的话](https://lifehacker.com/master-the-new-gmail-with-these-tips-shortcuts-and-ad-5861810) ，你可以在 [Gmail Labs](http://lifehacker.com/tag/gmaillabs/) 中找到各种好东西和额外功能。这个列表非常庞大，所以我们缩小了 10 个最喜欢的实验室，以帮助提高您的电子邮件工作效率。
 

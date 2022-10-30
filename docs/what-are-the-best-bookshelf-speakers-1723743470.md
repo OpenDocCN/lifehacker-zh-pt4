@@ -1,6 +1,6 @@
 # 最好的书架音箱有哪些？
 
-> 原文:[https://life hacker . com/what-is-the-best-bookshelf-speakers-1723743470](https://lifehacker.com/what-are-the-best-bookshelf-speakers-1723743470)
+> 原文：<https://lifehacker.com/what-are-the-best-bookshelf-speakers-1723743470>
 
 如果你想要好的声音，又不想占用太多的空间来安装大型扬声器，你需要一对价格适中的书架式扬声器。本周我们想听听你认为哪些是最好的。
 

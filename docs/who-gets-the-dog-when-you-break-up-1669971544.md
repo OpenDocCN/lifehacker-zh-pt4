@@ -1,6 +1,6 @@
 # 分手了狗归谁？
 
-> 原文:[https://Jezebel . com/分手时谁会得到那只狗-1669971544](https://jezebel.com/who-gets-the-dog-when-you-break-up-1669971544)
+> 原文：<https://jezebel.com/who-gets-the-dog-when-you-break-up-1669971544>
 
 这是走得最多的路:你的搭档。你们两个搬到一起，结婚，或者彼此许下库尔特-n-戈尔迪式的一生承诺。你买了一些抱枕，如果你还没有宠物，你就去给自己找一个毛皮婴儿。也许在你们两个意识到你们有能力照顾毛皮婴儿后，你们会升级为人类婴儿。
 

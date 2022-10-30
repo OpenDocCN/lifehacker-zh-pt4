@@ -1,6 +1,6 @@
 # 创业第一年学到的五件事
 
-> 原文:[https://life hacker . com/five-things-I-learned-in-my-first-year of entrepreneurs-1594866459](https://lifehacker.com/five-things-i-learned-in-my-first-year-of-entrepreneurs-1594866459)
+> 原文：<https://lifehacker.com/five-things-i-learned-in-my-first-year-of-entrepreneurs-1594866459>
 
 20 多岁的时候，我在五家不同的公司工作了大半辈子，最终我决定自己创业。我开始了自己的在线业务，并很快发现了这个领域带来的意想不到的挑战。以下是我创业第一年的五大经验。
 

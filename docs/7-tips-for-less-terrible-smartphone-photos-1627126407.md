@@ -1,6 +1,6 @@
 # 拍摄不那么糟糕的智能手机照片的 7 个技巧
 
-> 原文:[https://gizmodo . com/7-tips-for-less-worthy-smart photos-1627126407](https://gizmodo.com/7-tips-for-less-terrible-smartphone-photos-1627126407)
+> 原文：<https://gizmodo.com/7-tips-for-less-terrible-smartphone-photos-1627126407>
 
 智能手机让高质量的摄影变得有趣，每个人都可以使用。但是如果你想要持久的图像，除了点击之外，还有很多其他的方法。这里有一些简单的方法来改善你的日常拍照。
 

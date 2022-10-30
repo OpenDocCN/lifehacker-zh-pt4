@@ -1,6 +1,6 @@
 # 问专家:关于使用在线助手的所有问题
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-utilizing-online-assistants-1695951941](https://lifehacker.com/ask-an-expert-all-about-utilizing-online-assistants-1695951941)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-utilizing-online-assistants-1695951941>
 
 有一个助手来帮助你完成日常任务似乎是一种奢侈，但新的在线服务正在迅速使你在需要时更容易获得一点帮助。像 [花式手](https://www.fancyhands.com/) 或 [TaskRabbit](https://www.taskrabbit.com/) 这样的网站正在为大众带来在线或“虚拟”助手。
 

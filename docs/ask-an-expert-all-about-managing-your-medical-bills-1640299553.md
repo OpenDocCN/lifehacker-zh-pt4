@@ -1,6 +1,6 @@
 # 问专家:关于管理你的医疗账单
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-managing-your-medical-bills-1640299553](https://lifehacker.com/ask-an-expert-all-about-managing-your-medical-bills-1640299553)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-managing-your-medical-bills-1640299553>
 
 医疗账单可不是闹着玩的。即使你有很好的保险，如果你所有的医疗保健需求都没有覆盖呢？如果你没有保险，你有什么选择？
 

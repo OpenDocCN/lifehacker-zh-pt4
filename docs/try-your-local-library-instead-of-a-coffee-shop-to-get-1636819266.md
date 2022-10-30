@@ -1,6 +1,6 @@
 # 试着去当地的图书馆而不是咖啡店完成工作
 
-> 原文:[https://life hacker . com/try-your-local-library-to-get-1636819266](https://lifehacker.com/try-your-local-library-instead-of-a-coffee-shop-to-get-1636819266)
+> 原文：<https://lifehacker.com/try-your-local-library-instead-of-a-coffee-shop-to-get-1636819266>
 
 当你想到图书馆时，大多数人会想到一个安静的学习场所。如果你想完成工作，放松一下，你可以去咖啡店。较新的图书馆提供和咖啡店一样的便利设施，有时甚至更多。
 

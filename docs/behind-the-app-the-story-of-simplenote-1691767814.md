@@ -1,6 +1,6 @@
 # 应用背后:Simplenote 的故事
 
-> 原文:[https://life hacker . com/the behind-the-story of-the-app-of-the-story of-simple note-1691767814](https://lifehacker.com/behind-the-app-the-story-of-simplenote-1691767814)
+> 原文：<https://lifehacker.com/behind-the-app-the-story-of-simplenote-1691767814>
 
 当你只想写下一些东西时，应用程序中太多的花哨功能会妨碍你的工作，而不是帮助你。这就是为什么有了 [Simplenote](http://simplenote.com/) ，一个极简主义的笔记应用和网站，优先考虑唐突但优雅的功能而不是多余的功能。
 

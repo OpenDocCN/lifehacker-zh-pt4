@@ -1,6 +1,6 @@
 # 面试前让你放松的六个问题
 
-> 原文:[https://life hacker . com/six-questions-that-before-an-interv-1524576007](https://lifehacker.com/six-questions-that-will-ease-your-mind-before-an-interv-1524576007)
+> 原文：<https://lifehacker.com/six-questions-that-will-ease-your-mind-before-an-interv-1524576007>
 
 当你为面试做准备时，你可能会为你将被问到的问题、你将给出的答案以及如何给人留下最好的第一印象而苦恼。你大部分的准备工作可能会集中在你与面试官面对面的时间上。
 

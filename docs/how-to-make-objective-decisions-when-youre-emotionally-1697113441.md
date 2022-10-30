@@ -1,6 +1,6 @@
 # 当你投入感情时，如何做出客观的决定
 
-> 原文:[https://life hacker . com/how-to-make-objective-decisions-when-you-emotionally-1697113441](https://lifehacker.com/how-to-make-objective-decisions-when-youre-emotionally-1697113441)
+> 原文：<https://lifehacker.com/how-to-make-objective-decisions-when-youre-emotionally-1697113441>
 
 客观性是我们都喜欢认为自己拥有的特质之一。毕竟，在任何给定的情况下，最好的做法是考虑事实和环境，然后做出最好的决定。很简单，对吧？没有那么多。
 

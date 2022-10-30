@@ -1,6 +1,6 @@
 # 最好的 3D 打印服务是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-3d-printing-service-1705951264](https://lifehacker.com/whats-the-best-3d-printing-service-1705951264)
+> 原文：<https://lifehacker.com/whats-the-best-3d-printing-service-1705951264>
 
 获得 3D 打印的东西，无论是 DIY 项目的还是更换破损零件的，都很容易。你有很多地方可以发送照片或计划，并制作你的物品。本周我们想知道你认为哪些是最好的。
 

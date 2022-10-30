@@ -1,6 +1,6 @@
 # 五款最佳机械键盘
 
-> 原文:[https://life hacker . com/five-best-mechanical-keyboards-1478307228](https://lifehacker.com/five-best-mechanical-keyboards-1478307228)
+> 原文：<https://lifehacker.com/five-best-mechanical-keyboards-1478307228>
 
 不是所有的键盘都一样，也不是所有的键盘都适合相同类型的用户。机械键盘——或者每个键下都有独立开关的键盘——最近大受欢迎，而 [和](https://lifehacker.com/how-to-choose-the-best-mechanical-keyboard-and-why-you-511140347) 也有充分的理由。本周，我们将根据你的提名，来看看五个最好的机械键盘。
 

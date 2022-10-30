@@ -1,6 +1,6 @@
 # 问专家:面试着装的全部内容
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-dressing for-a-job-interview-1619379378](https://lifehacker.com/ask-an-expert-all-about-dressing-for-a-job-interview-1619379378)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-dressing-for-a-job-interview-1619379378>
 
 你的简历引起了招聘人员的注意，你参加了电话面试，现在你终于迈出了求职面试的第一步。留下好的第一印象压力很大。那你穿什么？
 

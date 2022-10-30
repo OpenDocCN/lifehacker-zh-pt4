@@ -1,6 +1,6 @@
 # 记住 90 分钟法则，确保晚上睡个好觉
 
-> 原文:[https://life hacker . com/记住确保提神的 90 分钟规则 nigh-1551241082](https://lifehacker.com/remember-the-90-minute-rule-to-ensure-a-refreshing-nigh-1551241082)
+> 原文：<https://lifehacker.com/remember-the-90-minute-rule-to-ensure-a-refreshing-nigh-1551241082>
 
 看来 [比以往](http://www.nytimes.com/2014/03/23/magazine/how-did-sleep-become-so-nightmarish.html) 更噩梦般，获得一个 [体面的睡眠](https://lifehacker.com/how-to-get-better-sleep-and-need-less-every-night-5971884) 并在此之后感觉良好。如果你想每天早上醒来精神焕发，而不是昏昏沉沉、脾气暴躁(不管你睡得多少)，记住 90 分钟法则。
 

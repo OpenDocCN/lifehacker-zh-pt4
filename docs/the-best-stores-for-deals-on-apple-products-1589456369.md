@@ -1,6 +1,6 @@
 # 苹果产品交易的最佳商店
 
-> 原文:[https://life hacker . com/the-best-stores-for-deals-on-apple-products-1589456369](https://lifehacker.com/the-best-stores-for-deals-on-apple-products-1589456369)
+> 原文：<https://lifehacker.com/the-best-stores-for-deals-on-apple-products-1589456369>
 
 你在哪里购买苹果设备很大程度上决定了你的购买价格。你可能会发现，一些商店提供的折扣比其他商店更大，如果你为你的苹果设备货比三家，你就不必为了省钱而求助于唾手可得的水果。
 

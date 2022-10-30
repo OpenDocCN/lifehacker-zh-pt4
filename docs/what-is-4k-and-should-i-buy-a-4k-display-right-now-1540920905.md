@@ -1,6 +1,6 @@
 # 什么是 4K，我现在应该买一个 4K 显示器吗？
 
-> 原文:[https://life hacker . com/what-is-4k-and-should-I-buy-a-4k-display-right-now-1540920905](https://lifehacker.com/what-is-4k-and-should-i-buy-a-4k-display-right-now-1540920905)
+> 原文：<https://lifehacker.com/what-is-4k-and-should-i-buy-a-4k-display-right-now-1540920905>
 
 亲爱的 Lifehacker，
 4K 电视去年上市，许多公司都在准备推出精打细算的 4K 显示器。我喜欢更高分辨率的想法，那么这是我可以从中受益的东西吗？还是我应该继续使用我现有的显示器？

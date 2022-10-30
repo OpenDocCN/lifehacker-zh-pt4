@@ -1,6 +1,6 @@
 # 最好的旅行路由器是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-travel-router-1451411336](https://lifehacker.com/whats-the-best-travel-router-1451411336)
+> 原文：<https://lifehacker.com/whats-the-best-travel-router-1451411336>
 
 如果你计划一次旅行，需要带一些小工具，旅行路由器可以是一个救命稻草。当然，你可以限制你的手机，但旅行路由器可以让你与你的笔记本电脑、平板电脑、智能手机或其他设备共享无线，同时保持充电。但是哪一个是最好的呢？
 

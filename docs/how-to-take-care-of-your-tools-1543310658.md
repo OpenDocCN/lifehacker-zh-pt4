@@ -1,6 +1,6 @@
 # 如何保管你的工具
 
-> 原文:[https://life hacker . com/how-to-take-the-care-of-your-tools-1543310658](https://lifehacker.com/how-to-take-care-of-your-tools-1543310658)
+> 原文：<https://lifehacker.com/how-to-take-care-of-your-tools-1543310658>
 
 好的工具可能是相当大的投资，但是如果你好好使用它们，它们会回报你的。正确存放、清洁和维护你的工具会节省你的时间和金钱，让你的 DIY 努力更有回报。
 

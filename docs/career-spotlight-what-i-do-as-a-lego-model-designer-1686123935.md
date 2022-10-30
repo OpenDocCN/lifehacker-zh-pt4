@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名乐高模型设计师，我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-Lego-model-designer-1686123935](https://lifehacker.com/career-spotlight-what-i-do-as-a-lego-model-designer-1686123935)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-lego-model-designer-1686123935>
 
 你喜欢整天玩乐高吗？对于儿童和成人来说，一堆乐高积木提供了这样的可能性——整个世界和居民都在那个熟悉的直角和充满活力的不匹配颜色的舞台上。然后有些人更认真地对待他们的乐高。
 

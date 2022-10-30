@@ -1,6 +1,6 @@
 # 如何找到适合各种性爱的完美润滑油
 
-> 原文:[https://life hacker . com/how-to-find the perfect-lube-for-any-kind-of-sex-1703983134](https://lifehacker.com/how-to-find-the-perfect-lube-for-any-kind-of-sex-1703983134)
+> 原文：<https://lifehacker.com/how-to-find-the-perfect-lube-for-any-kind-of-sex-1703983134>
 
 我坚信润滑油可以给任何人的性生活带来美妙的增加。但是挑选润滑油就像挑选一瓶好酒——有太多的选择，适合搭配完美的主菜。不要随便从架子上挑东西。以下是你需要知道的一切，以便做出明智的选择。
 

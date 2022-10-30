@@ -1,6 +1,6 @@
 # 看看这些旅行壁纸吧
 
-> 原文:[https://life hacker . com/take-a-break-with the-this-travel-wallpapers-1619941549](https://lifehacker.com/take-a-break-with-these-travel-wallpapers-1619941549)
+> 原文：<https://lifehacker.com/take-a-break-with-these-travel-wallpapers-1619941549>
 
 无论你的理想旅行类型是什么，这些壁纸都可以让你想起过去的旅行，或者帮助你想象未来的旅行。几乎所有的七大洲都有展示，并准备好供您下载。
 

@@ -1,6 +1,6 @@
 # 这个周末清理、修复和升级你的硬盘
 
-> 原文:[https://life hacker . com/clean-up-fix-and-upgrade-your-hard-drives-this-weeken-1446569668](https://lifehacker.com/clean-up-fix-and-upgrade-your-hard-drives-this-weeken-1446569668)
+> 原文：<https://lifehacker.com/clean-up-fix-and-upgrade-your-hard-drives-this-weeken-1446569668>
 
 像大多数东西一样，当你不往硬盘里塞满垃圾时，它会运行得更好。仅仅因为你有磁盘空间，并不意味着你必须用光它。这个周末，把你的驱动器整理好，清理掉不必要的垃圾。
 

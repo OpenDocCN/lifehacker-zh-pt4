@@ -1,6 +1,6 @@
 # Surface Pro 3 评测:你不需要的最棒的笔记本电脑-平板电脑混合体
 
-> 原文:[https://gizmodo . com/surface-pro-3-review-the-great-laptop-table t-hybrid-1581896186](https://gizmodo.com/surface-pro-3-review-the-greatest-laptop-tablet-hybrid-1581896186)
+> 原文：<https://gizmodo.com/surface-pro-3-review-the-greatest-laptop-tablet-hybrid-1581896186>
 
 微软的 Surface Pro 已经扩大规模，拥抱笔记本电脑，试图取代 MacBook Air 成为你的首选电脑。Surface Pro 3 不会成功，但这是一个非常好的努力。
 

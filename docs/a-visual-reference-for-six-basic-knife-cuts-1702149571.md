@@ -1,6 +1,6 @@
 # 切块，切碎，切碎，等等:六种基本刀法的视觉指南
 
-> 原文:[https://life hacker . com/a-visual-reference-for-six-basic-knife-cuts-1702149571](https://lifehacker.com/a-visual-reference-for-six-basic-knife-cuts-1702149571)
+> 原文：<https://lifehacker.com/a-visual-reference-for-six-basic-knife-cuts-1702149571>
 
 如果你曾经想知道“剁碎的”、“切成丁的”、“切碎的”和食谱中其他切段之间的区别，你并不孤单。刀伤是如此令人困惑，所以我们为一些最常见的刀伤编辑了一个视觉指南。
 

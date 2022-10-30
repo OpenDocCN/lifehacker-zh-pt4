@@ -1,6 +1,6 @@
 # 如何驯服你的工作电话并提高工作效率
 
-> 原文:[https://life hacker . com/how-to-tame-your-work-phone-and-be-productive-1636708836](https://lifehacker.com/how-to-tame-your-work-phone-and-be-productive-1636708836)
+> 原文：<https://lifehacker.com/how-to-tame-your-work-phone-and-be-productive-1636708836>
 
 当你正在工作的时候，刺耳的电话铃声会成为一种烦人的干扰。以下是如何确保这不会让你完全脱轨，你可以专注于手头的工作。
 

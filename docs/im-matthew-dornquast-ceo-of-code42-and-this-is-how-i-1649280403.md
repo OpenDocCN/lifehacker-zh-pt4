@@ -1,6 +1,6 @@
 # 我是 Matthew Dornquast，Code42 的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Matthew-dorn cast-CEO-of-code 42-and-this-is-how-I-1649280403](https://lifehacker.com/im-matthew-dornquast-ceo-of-code42-and-this-is-how-i-1649280403)
+> 原文：<https://lifehacker.com/im-matthew-dornquast-ceo-of-code42-and-this-is-how-i-1649280403>
 
 这可能是我们重复最多也最容易被忽视的建议: [永远备份你的文件](https://lifehacker.com/theres-no-excuse-for-not-backing-up-your-computer-do-1547987206) 。去做吧！所有的驱动器和磁盘最终都会出现故障，备份服务 [CrashPlan](http://lifehacker.com/five-best-online-backup-services-1006345049) 就是考虑到这一点而专门设计的。
 

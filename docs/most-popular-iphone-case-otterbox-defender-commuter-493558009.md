@@ -1,6 +1,6 @@
 # 最受欢迎的 iPhone 保护套:Otterbox Defender/通勤者
 
-> 原文:[https://life hacker . com/most-popular-iphone-case-otterbox-defender-Committee-493558009](https://lifehacker.com/most-popular-iphone-case-otterbox-defender-commuter-493558009)
+> 原文：<https://lifehacker.com/most-popular-iphone-case-otterbox-defender-commuter-493558009>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-JvZoIn19FfU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-JvZoIn19FfU&start=0) 
 

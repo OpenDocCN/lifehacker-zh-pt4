@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:7 月 17 日至 24 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-July-17-to-24-1719996512](https://lifehacker.com/this-weeks-most-popular-posts-july-17th-to-24th-1719996512)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-july-17th-to-24th-1719996512>
 
 本周我们讨论了睡觉时保持凉爽，为什么年纪越大时间过得越快，以及为你的生活制定一个财务计划。这里回顾一下。
 

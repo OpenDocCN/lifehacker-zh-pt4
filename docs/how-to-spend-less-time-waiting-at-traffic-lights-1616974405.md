@@ -1,6 +1,6 @@
 # 如何减少在红绿灯前等待的时间
 
-> 原文:[https://life hacker . com/how-to-spend-less-time-at-红绿灯-1616974405](https://lifehacker.com/how-to-spend-less-time-waiting-at-traffic-lights-1616974405)
+> 原文：<https://lifehacker.com/how-to-spend-less-time-waiting-at-traffic-lights-1616974405>
 
 红灯是你开车时最讨厌的事情之一。它们会降低你的速度，降低燃油效率，而且通常很烦人。虽然你不能完全避开它们，但是你可以减少你在红绿灯前的时间。
 

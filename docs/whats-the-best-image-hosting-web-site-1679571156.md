@@ -1,6 +1,6 @@
 # 最好的图片托管网站是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-image-hosting-web-site-1679571156](https://lifehacker.com/whats-the-best-image-hosting-web-site-1679571156)
+> 原文：<https://lifehacker.com/whats-the-best-image-hosting-web-site-1679571156>
 
 与朋友分享您的照片从未像现在这样简单。你过去需要工具来上传照片和创建相册，但现在你可以手动完成，或者在拍摄时直接从相机或手机自动上传。本周，我们想知道你信任哪些网站来存储和分享这些照片。
 

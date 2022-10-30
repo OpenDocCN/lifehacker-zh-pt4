@@ -1,6 +1,6 @@
 # 职业聚焦:我作为一名景观设计师做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-landscape-architect-1687759850](https://lifehacker.com/career-spotlight-what-i-do-as-a-landscape-architect-1687759850)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-landscape-architect-1687759850>
 
 如果好的设计是看不见的，那么你可能不会注意到设计景观时的有意选择。景观设计师的工作是巧妙地引导你通过一个物理空间，并塑造你如何与它互动，这不仅仅是选择盆栽植物。
 

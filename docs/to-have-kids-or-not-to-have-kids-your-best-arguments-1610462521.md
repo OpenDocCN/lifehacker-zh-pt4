@@ -1,6 +1,6 @@
 # 生孩子还是不生孩子:你最好的理由
 
-> 原文:[https://life hacker . com/to-have-kids-or-not-to-have-kids-your-best-arguments-1610462521](https://lifehacker.com/to-have-kids-or-not-to-have-kids-your-best-arguments-1610462521)
+> 原文：<https://lifehacker.com/to-have-kids-or-not-to-have-kids-your-best-arguments-1610462521>
 
 我们大多数人对生孩子都有这样或那样的看法(对于那些还不确定的人，这篇文章可能特别适合你)。我们 [问了你](https://lifehacker.com/to-have-kids-or-not-to-have-kids-which-is-the-better-c-1605947314) 你选择背后的原因，这里是我们听到的一些最好的。
 

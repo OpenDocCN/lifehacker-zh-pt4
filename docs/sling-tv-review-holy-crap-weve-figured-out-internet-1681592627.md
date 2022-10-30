@@ -1,6 +1,6 @@
 # 吊索电视评论:神圣的废话，我们已经找到了互联网电视
 
-> 原文:[https://gizmodo . com/sling-TV-review-holy-crap-we ve-gotten-internet-1681592627](https://gizmodo.com/sling-tv-review-holy-crap-weve-figured-out-internet-1681592627)
+> 原文：<https://gizmodo.com/sling-tv-review-holy-crap-weve-figured-out-internet-1681592627>
 
 从某种意义上说，电视变得复杂了。以前我放学后会把它放在面前，漫不经心地翻看。然后，在 2009 年， [一切都变了](http://gizmodo.com/the-analog-tv-shutdown-is-a-flustercuck-of-corporate-mo-5132137) :模拟信号被取缔，新的数字电视信号在各方面都让我失望:我的旧电视不兼容，我的房子离广播站太远。附近的交通堵塞阻塞了信号。不管出于什么原因，我几年前就放弃了常规电视，转向了数字电视。如果它不在网飞、Hulu 或亚马逊上，它就不存在。
 

@@ -1,6 +1,6 @@
 # 产生巨大成果的八个小小的财务变化
 
-> 原文:[https://life hacker . com/eight-small-financial-changes-that-yield-huge-results-1502939683](https://lifehacker.com/eight-small-financial-changes-that-yield-huge-results-1502939683)
+> 原文：<https://lifehacker.com/eight-small-financial-changes-that-yield-huge-results-1502939683>
 
 存很多钱就像试着跑马拉松一样。如果你纠结于比赛有多长，你甚至可能都不会离开沙发。但是，相反，如果你专注于一步一步地跑一英里，然后是两英里，如此类推，突然马拉松就不那么令人生畏了。试着用同样的方式思考你的财务状况。
 

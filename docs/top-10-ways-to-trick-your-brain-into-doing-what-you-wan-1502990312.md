@@ -1,6 +1,6 @@
 # 欺骗你的大脑做你想做的事的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-trick your-brain-do you-wan-1502990312](https://lifehacker.com/top-10-ways-to-trick-your-brain-into-doing-what-you-wan-1502990312)
+> 原文：<https://lifehacker.com/top-10-ways-to-trick-your-brain-into-doing-what-you-wan-1502990312>
 
 有没有感觉到你的大脑想要得到你的 ？好像是 [说服你去做实际上并不符合你最佳利益的事情](http://lifehacker.com/seven-tricks-your-mind-plays-on-you-and-how-to-fight-b-5931962) ？我们的大脑是一个有趣的东西，有时对抗它的唯一方法就是欺骗它。这里有 10 种方法可以让你克服大脑的诡计，让它做你想做的事情。
 

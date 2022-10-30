@@ -1,6 +1,6 @@
 # 你的 5 项最佳性价比显卡提名
 
-> 原文:[https://kotaku . com/best-graphics-card for-the-money-voting-1456598795](https://kotaku.com/best-graphics-card-for-the-money-voting-1456598795)
+> 原文：<https://kotaku.com/best-graphics-card-for-the-money-voting-1456598795>
 
 现在是我们最新的 Kotaku 合作项目的第二阶段，我们将决定你认为最划算的显卡。记住，不仅仅是权力的问题，还有价值的问题。与以往的合作不同，这次的提名非常集中在这五个选择上，这应该是一场势均力敌的投票。
 

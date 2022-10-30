@@ -1,6 +1,6 @@
 # 《赫芬顿邮报》执行主编吉米·索尼
 
-> 原文:[https://life hacker . com/how-I-work-Jimmy-soni-managing-editor-of-the-the-huffingt-1566531861](https://lifehacker.com/how-i-work-jimmy-soni-managing-editor-of-the-huffingt-1566531861)
+> 原文：<https://lifehacker.com/how-i-work-jimmy-soni-managing-editor-of-the-huffingt-1566531861>
 
 《赫芬顿邮报》当然是互联网的标志性博客之一，并且已经发展成为一个多元化的渠道，涵盖从政治到娱乐到当地新闻的所有内容。监督编辑工作的是吉米·索尼，他自己的作品已经在《大西洋月刊》、《政治》等杂志上发表。我们采访了吉米，了解他是如何管理自己的工作量和赫芬顿邮报帝国的。
 

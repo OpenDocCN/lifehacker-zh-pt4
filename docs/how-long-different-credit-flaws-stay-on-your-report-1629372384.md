@@ -1,6 +1,6 @@
 # 不同的信用缺陷会在你的报告上停留多久
 
-> 原文:[https://life hacker . com/how-long-different-credit-flaws-stay-on-your-report-1629372384](https://lifehacker.com/how-long-different-credit-flaws-stay-on-your-report-1629372384)
+> 原文：<https://lifehacker.com/how-long-different-credit-flaws-stay-on-your-report-1629372384>
 
 由于信用评分和信用报告被用于从潜在房东确定你的可靠性到你的新雇主检查你的一切，所以你知道什么时候你的不良记录会从你的报告中抹去是很重要的。让我们来看看。
 

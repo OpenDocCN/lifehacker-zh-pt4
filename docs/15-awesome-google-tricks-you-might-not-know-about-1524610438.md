@@ -1,6 +1,6 @@
 # 15 个你可能不知道的 Google+技巧
 
-> 原文:[https://life hacker . com/15-awesome-Google-tricks-you-may-not-know-on-1524610438](https://lifehacker.com/15-awesome-google-tricks-you-might-not-know-about-1524610438)
+> 原文：<https://lifehacker.com/15-awesome-google-tricks-you-might-not-know-about-1524610438>
 
 谷歌正在缓慢但稳步地改进 Google+,并试图将社交网络带给大众。然而，对于狂热的 Google Plussers 和那些仍然想知道 [到底有什么意义的人来说，Google+的一些最佳功能并不明显。这里有一些更有趣或者至少有用的技巧，可以让你充分利用 Google+。](https://lifehacker.com/what-good-is-google-if-my-friends-dont-use-it-5863389)
 

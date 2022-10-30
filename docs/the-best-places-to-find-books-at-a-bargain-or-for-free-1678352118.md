@@ -1,6 +1,6 @@
 # 寻找廉价(或免费)书籍的最佳地点
 
-> 原文:[https://life hacker . com/the-best-places-to-find-on-a-bargain-or-free-1678352118](https://lifehacker.com/the-best-places-to-find-books-at-a-bargain-or-for-free-1678352118)
+> 原文：<https://lifehacker.com/the-best-places-to-find-books-at-a-bargain-or-for-free-1678352118>
 
 信息就是力量，多读书可以增强你的知识和你的大脑在你所学的东西之间建立的联系。即便如此，书籍还是要花钱的。你的预算可能不像你希望的那样灵活，但是即使预算不多，你也可以读更多的书。以下是方法。
 

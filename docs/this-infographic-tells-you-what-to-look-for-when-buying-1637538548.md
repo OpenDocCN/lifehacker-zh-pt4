@@ -1,6 +1,6 @@
 # 这张信息图告诉你买蔬菜时应该注意什么
 
-> 原文:[https://life hacker . com/this-infograph-tell-you ' s what-look for-when-buying-1637538548](https://lifehacker.com/this-infographic-tells-you-what-to-look-for-when-buying-1637538548)
+> 原文：<https://lifehacker.com/this-infographic-tells-you-what-to-look-for-when-buying-1637538548>
 
 如果你不知道哪些西红柿是熟的，哪些生菜是新鲜的，美国农业部(USDA)有一个关于如何在超市挑选蔬菜的有用指南。
 

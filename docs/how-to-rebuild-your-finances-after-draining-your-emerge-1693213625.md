@@ -1,6 +1,6 @@
 # 训练应急基金后如何重建财务
 
-> 原文:[https://life hacker . com/how-to-rebuild-your-finance-after-draining-your-emerge-1693213625](https://lifehacker.com/how-to-rebuild-your-finances-after-draining-your-emerge-1693213625)
+> 原文：<https://lifehacker.com/how-to-rebuild-your-finances-after-draining-your-emerge-1693213625>
 
 几年前，我换了职业，搬到了一个新的城市。在经济上，我感到安全，因为我有一个小应急基金。如果日子不好过，那就是我的安全网。时代确实变得艰难了。一瞬间，我失去了一切。如果你已经耗尽了你的应急基金，以下是如何重建它的方法。
 

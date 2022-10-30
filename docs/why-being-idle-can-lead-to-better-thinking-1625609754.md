@@ -1,6 +1,6 @@
 # 为什么无所事事能带来更好的思考
 
-> 原文:[https://life hacker . com/why-be-idle-can-lead-to-better-thinking-1625609754](https://lifehacker.com/why-being-idle-can-lead-to-better-thinking-1625609754)
+> 原文：<https://lifehacker.com/why-being-idle-can-lead-to-better-thinking-1625609754>
 
 研究表明，人们宁愿做一些事情——任何事情——也不愿独自思考。有所作为胜过无所作为的想法并不新鲜。但是，正是通过反思、白日梦和自省，我们才能理解信息和经验，并产生新的见解和想法。
 

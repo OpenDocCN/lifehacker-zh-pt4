@@ -1,6 +1,6 @@
 # 幻想日主页屏幕
 
-> 原文:[https://life hacker . com/the-fantasy-day-home-screen-1695381667](https://lifehacker.com/the-fantasy-day-home-screen-1695381667)
+> 原文：<https://lifehacker.com/the-fantasy-day-home-screen-1695381667>
 
 没有什么比晚上打开手机，被明亮欢快的主屏幕打脸更让人讨厌的了。这种设计使它保持最小，并根据一天中的时间自动在亮暗主题之间切换。
 

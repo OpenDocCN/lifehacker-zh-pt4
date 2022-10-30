@@ -1,6 +1,6 @@
 # 我安装了 Windows 10，现在正在和电脑通话
 
-> 原文:[https://gizmodo . com/I-installed-windows-10-and-now-im-talking-to-my-compute-1719786498](https://gizmodo.com/i-installed-windows-10-and-now-im-talking-to-my-compute-1719786498)
+> 原文：<https://gizmodo.com/i-installed-windows-10-and-now-im-talking-to-my-compute-1719786498>
 
 除非你是少数使用 Windows Phone 的人之一，否则你不会有太多使用微软个人数字助理[【Cortana】](http://gizmodo.com/18-very-useful-voice-commands-to-try-with-cortana-1698425791)的经验。随着 Windows 10 的推出，Cortana 将很快结交许多新朋友——像我一样，他们可能很快就会发现自己定期对着电脑大喊指令。
 

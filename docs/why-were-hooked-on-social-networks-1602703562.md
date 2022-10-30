@@ -1,6 +1,6 @@
 # 为什么我们会迷上社交网络
 
-> 原文:[https://life hacker . com/why-are-hook-on-social-networks-1602703562](https://lifehacker.com/why-were-hooked-on-social-networks-1602703562)
+> 原文：<https://lifehacker.com/why-were-hooked-on-social-networks-1602703562>
 
 出生、失业、离婚、加薪、休假、成功、照片、绘画、文章、失败和音乐:社交网络是我们分享故事的地方。有时这些故事是个人的，有时它们是有益的，有时它们是愚蠢的。让我们来看看为什么我们觉得必须这样做。
 

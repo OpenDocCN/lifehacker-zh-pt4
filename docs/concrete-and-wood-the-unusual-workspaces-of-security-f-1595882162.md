@@ -1,6 +1,6 @@
 # 混凝土和木材:安全公司 Bitium 的不同寻常的工作空间
 
-> 原文:[https://life hacker . com/concrete-and-wood-the-except-work spaces-of-security-f-1595882162](https://lifehacker.com/concrete-and-wood-the-unusual-workspaces-of-security-f-1595882162)
+> 原文：<https://lifehacker.com/concrete-and-wood-the-unusual-workspaces-of-security-f-1595882162>
 
 今天的特色工作区属于圣莫尼卡的安全公司 Bitium。这是一个比你想象的更亲切的办公室。
 

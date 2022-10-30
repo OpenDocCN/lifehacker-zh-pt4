@@ -1,6 +1,6 @@
 # 根据你的个性管理你的钱的四种方法
 
-> 原文:[https://life hacker . com/four-way-to-organize-your-money-on-your-personal-1629690744](https://lifehacker.com/four-ways-to-organize-your-money-based-on-your-personal-1629690744)
+> 原文：<https://lifehacker.com/four-ways-to-organize-your-money-based-on-your-personal-1629690744>
 
 并不是所有你读到的理财建议都适用于你的个性——不同类型的人需要运用不同的策略。无论你是一个完美主义者，一个拖延者，还是一个不必要文件的储存者，这里有四个策略来处理你的金钱角色。
 

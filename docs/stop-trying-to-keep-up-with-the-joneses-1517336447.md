@@ -1,6 +1,6 @@
 # 不要试图“攀比”
 
-> 原文:[https://life hacker . com/stop-try-to-keep-up-with-the-Jones-1517336447](https://lifehacker.com/stop-trying-to-keep-up-with-the-joneses-1517336447)
+> 原文：<https://lifehacker.com/stop-trying-to-keep-up-with-the-joneses-1517336447>
 
 如果你的朋友吃得过多，你更有可能吃得过多。如果你的朋友活跃且喜欢运动，你也更有可能活跃。如果你的朋友喜欢花钱，你也更有可能花钱。
 

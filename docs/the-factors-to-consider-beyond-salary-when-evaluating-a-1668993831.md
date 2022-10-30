@@ -1,6 +1,6 @@
 # 评估工作机会时除了薪水以外要考虑的因素
 
-> 原文:[https://life hacker . com/the-factors-to-consider-above-than-salary-when-evaluation-a-1668993831](https://lifehacker.com/the-factors-to-consider-beyond-salary-when-evaluating-a-1668993831)
+> 原文：<https://lifehacker.com/the-factors-to-consider-beyond-salary-when-evaluating-a-1668993831>
 
 一旦你得到了一份新工作，你可能会认为这个过程已经结束了。但真的是这样吗？并不是所有的工作都是平等的，获得一份新工作的目标(通常)是改善你的处境。因此，工作机会必须仔细评估，以确保你的目标，个人财务和其他方面都得到满足。
 

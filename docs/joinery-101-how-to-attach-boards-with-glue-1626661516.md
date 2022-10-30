@@ -1,6 +1,6 @@
 # 细木工 101:如何用胶水粘木板
 
-> 原文:[https://life hacker . com/joinery-101-how-to-attach-boards-with glue-1626661516](https://lifehacker.com/joinery-101-how-to-attach-boards-with-glue-1626661516)
+> 原文：<https://lifehacker.com/joinery-101-how-to-attach-boards-with-glue-1626661516>
 
 将木板粘合在一起是最简单的细木工形式之一，虽然这似乎很容易解释，但一旦胶水凝固，就没有回头路了。由于粘合可以成就或破坏一个项目，这里有一些事情要记住。
 

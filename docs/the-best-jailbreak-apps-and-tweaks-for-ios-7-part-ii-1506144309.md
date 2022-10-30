@@ -1,6 +1,6 @@
 # iOS 7 的最佳越狱应用和调整，第二部分
 
-> 原文:[https://life hacker . com/the-best-jail-break-apps-and-tweaks-for-IOs-7-part-ii-1506144309](https://lifehacker.com/the-best-jailbreak-apps-and-tweaks-for-ios-7-part-ii-1506144309)
+> 原文：<https://lifehacker.com/the-best-jailbreak-apps-and-tweaks-for-ios-7-part-ii-1506144309>
 
 iOS 7 的 [几周前刚刚越狱](https://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-5771943) ，虽然我们已经介绍了第一波优秀的应用程序和调整 ，但自那以后还会有更多的调整出现。这里有一些(更多)我们最喜欢的。
 

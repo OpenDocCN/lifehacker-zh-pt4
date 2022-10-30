@@ -1,6 +1,6 @@
 # 最好的信用社是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-credit-union-1655248125](https://lifehacker.com/whats-the-best-credit-union-1655248125)
+> 原文：<https://lifehacker.com/whats-the-best-credit-union-1655248125>
 
 如果你想找一个比大银行更好的地方存钱，信用社是一个很好的选择。在大多数情况下，他们提供更好的服务、更低的费用和更好的利率，从贷款和抵押贷款到储蓄账户和存款证。本周，我们想知道你认为哪些是最好的。
 

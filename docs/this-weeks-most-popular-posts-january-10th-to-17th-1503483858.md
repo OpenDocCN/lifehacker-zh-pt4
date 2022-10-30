@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:1 月 10 日至 17 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-1 月 10 日至 17 日-1503483858](https://lifehacker.com/this-weeks-most-popular-posts-january-10th-to-17th-1503483858)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-january-10th-to-17th-1503483858>
 
 本周我们学习了 [为什么当我们被某人](https://lifehacker.com/why-you-make-bad-decisions-when-youre-attracted-to-som-1501035149)[吸引时，我们会变成白痴五种酱料让任何一顿饭都更可口](http://lifehacker.com/five-sauces-everyone-should-know-how-to-make-for-endles-1498247518)[一些省钱的小窍门](http://lifehacker.com/eight-small-financial-changes-that-yield-huge-results-1502939683) ，以及 [编程的人生教训](http://lifehacker.com/six-life-lessons-ive-learned-from-programming-1502077380) 。这里回顾一下。
 

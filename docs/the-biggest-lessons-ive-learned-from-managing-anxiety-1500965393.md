@@ -1,6 +1,6 @@
 # 我从管理焦虑中学到的最重要的经验是
 
-> 原文:[https://life hacker . com/the-big-lessons-ive-learn-from-managing-anxiety-1500965393](https://lifehacker.com/the-biggest-lessons-ive-learned-from-managing-anxiety-1500965393)
+> 原文：<https://lifehacker.com/the-biggest-lessons-ive-learned-from-managing-anxiety-1500965393>
 
 六百万美国人有 [恐慌](http://psychcentral.com/disorders/anxiety/panic.html) 紊乱。四千万人患有 [焦虑症](http://psychcentral.com/disorders/anxiety/) 症。所以，如果你在焦虑中挣扎，你绝对不是一个人。了解别人如何管理自己的焦虑会有所帮助。以下是个人多年来学到的最重要的经验。
 

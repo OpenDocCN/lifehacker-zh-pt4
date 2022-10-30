@@ -1,6 +1,6 @@
 # 给我们看看你的纸质笔记本
 
-> 原文:[https://life hacker . com/show-us-your-paper-notebook-1491835927](https://lifehacker.com/show-us-your-paper-notebook-1491835927)
+> 原文：<https://lifehacker.com/show-us-your-paper-notebook-1491835927>
 
 有时候，纸质笔记本提供的灵活性是无可替代的。也许这只是你记笔记的方式，或者也许你的纸质笔记本是通向数字存储的一个支点。无论哪种方式，我们都希望看到你最喜欢的纸质笔记本，以及你用来改进它的任何技巧和窍门。
 

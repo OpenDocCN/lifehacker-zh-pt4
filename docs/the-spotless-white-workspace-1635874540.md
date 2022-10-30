@@ -1,6 +1,6 @@
 # 洁白无瑕的工作空间
 
-> 原文:[https://life hacker . com/the-piece-white-workspace-1635874540](https://lifehacker.com/the-spotless-white-workspace-1635874540)
+> 原文：<https://lifehacker.com/the-spotless-white-workspace-1635874540>
 
 这个世界上有两种人:一种是会购买白色家具和玻璃桌子(并精心维护它们)的人，另一种是我们这些普通人。今天的特色工作区属于前一类。
 

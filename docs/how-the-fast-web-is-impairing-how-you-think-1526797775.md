@@ -1,6 +1,6 @@
 # “快速网络”如何削弱你的思维方式
 
-> 原文:[https://life hacker . com/how-the-fast-web-is-damping-how-you-think-1526797775](https://lifehacker.com/how-the-fast-web-is-impairing-how-you-think-1526797775)
+> 原文：<https://lifehacker.com/how-the-fast-web-is-impairing-how-you-think-1526797775>
 
 在你意识到之前，习惯就形成了。你在日常生活中投入了多少思想，你的日常生活中有多少是对外部影响的反应？换句话说，你知道你为什么这样工作吗？
 

@@ -1,6 +1,6 @@
 # 必应比谷歌做得更好的五件事
 
-> 原文:[https://life hacker . com/the-best-things-bing-does-better-Google-1483983630](https://lifehacker.com/the-best-things-bing-does-better-than-google-1483983630)
+> 原文：<https://lifehacker.com/the-best-things-bing-does-better-than-google-1483983630>
 
 在 Lifehacker，我们甚至不能假装对谷歌不感兴趣，但生活在另一边。虽然搜索结果的质量很大程度上是主观的(与 Bing 挑战让你相信的相反)，但微软的花园里有一些东西肯定更好。
 

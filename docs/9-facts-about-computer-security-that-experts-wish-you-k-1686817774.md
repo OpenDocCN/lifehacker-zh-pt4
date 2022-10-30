@@ -1,6 +1,6 @@
 # 专家希望你知道的关于计算机安全的 9 个事实
 
-> 原文:[https://gizmodo . com/9-facts-about-computer-security-that-experts-wish-you-k-1686817774](https://gizmodo.com/9-facts-about-computer-security-that-experts-wish-you-k-1686817774)
+> 原文：<https://gizmodo.com/9-facts-about-computer-security-that-experts-wish-you-k-1686817774>
 
 每天，你都会听说安全漏洞、病毒和邪恶的黑客团伙可能会让你一贫如洗，或者更糟，让你的国家陷入瘫痪。但是这些数字危险的真相是什么呢？我们请计算机安全专家将神话与事实分开。他们是这样说的。
 

@@ -1,6 +1,6 @@
 # 如何应对破坏你所做一切的人
 
-> 原文:[https://life hacker . com/how-to-deal-with-the-people-describe-you-do-1718129469](https://lifehacker.com/how-to-deal-with-people-who-undermine-everything-you-do-1718129469)
+> 原文：<https://lifehacker.com/how-to-deal-with-people-who-undermine-everything-you-do-1718129469>
 
 几年前，一个朋友给我介绍了一个人，他问我是干什么的。“我在制作一个在线视频系列，”我说。这是一项艰苦的工作，需要大量的计划、研究和采访，这也是我支付账单的方式。我的朋友插话说，“她是一个博客，”然后咯咯地笑了。我不太明白她的意思，但我觉得自己被贬低了。
 

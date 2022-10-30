@@ -1,6 +1,6 @@
 # 最好的隐藏设置，你可以用 OS X 的终端解锁
 
-> 原文:[https://life hacker . com/the-best-hidden-settings-you-can-unlock-with-OS-xs-ter-1476627111](https://lifehacker.com/the-best-hidden-settings-you-can-unlock-with-os-xs-ter-1476627111)
+> 原文：<https://lifehacker.com/the-best-hidden-settings-you-can-unlock-with-os-xs-ter-1476627111>
 
 MAC 电脑并不以其定制选项而闻名，但如果你愿意深入了解终端，你会发现它隐藏了很多东西。这里有一些我们最喜欢的隐藏设置，你只需要一两行文字就可以改变。
 

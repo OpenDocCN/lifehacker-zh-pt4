@@ -1,6 +1,6 @@
 # 如何绝不错过与 IFTTT 的交易
 
-> 原文:[https://life hacker . com/how-to-never-miss-a-deal-if TTT-500443115](https://lifehacker.com/how-to-never-miss-a-deal-with-ifttt-500443115)
+> 原文：<https://lifehacker.com/how-to-never-miss-a-deal-with-ifttt-500443115>
 
 如果是这样，那么 是我们最喜欢的自动化服务之一，因为它几乎可以做你告诉它的任何事情。你可以做的事情之一是建立一个自动系统来提醒你想要的交易，这非常容易做到。
 

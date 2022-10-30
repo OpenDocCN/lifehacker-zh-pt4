@@ -1,6 +1,6 @@
 # 一个害羞的人如何在小组对话中让别人听到你的声音
 
-> 原文:[https://life hacker . com/a-shy-persons-guide-making-yourself-heard-in-a-group-1679102536](https://lifehacker.com/a-shy-persons-guide-to-making-yourself-heard-in-a-group-1679102536)
+> 原文：<https://lifehacker.com/a-shy-persons-guide-to-making-yourself-heard-in-a-group-1679102536>
 
 有些人很有口才，知道如何在群体环境中进行对话，但我们中的一些人感觉好像被忽视了 。这里有几个小贴士可以帮助你加入集体对话，并真正成为其中的一员。
 

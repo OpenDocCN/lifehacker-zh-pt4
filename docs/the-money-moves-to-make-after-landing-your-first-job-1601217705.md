@@ -1,6 +1,6 @@
 # 找到第一份工作后，你的收入会有所增长
 
-> 原文:[https://life hacker . com/the-money-moves-to-make-after-landing your ' s first-job-1601217705](https://lifehacker.com/the-money-moves-to-make-after-landing-your-first-job-1601217705)
+> 原文：<https://lifehacker.com/the-money-moves-to-make-after-landing-your-first-job-1601217705>
 
 所以你已经毕业进入职场，你很幸运找到了你的第一份工作。恭喜你。为了给你的财务未来铺平道路，现在你可以做几个明智的金钱交易。
 

@@ -1,6 +1,6 @@
 # 克服暴饮暴食的五个步骤
 
-> 原文:[https://life hacker . com/五步克服暴饮暴食-1685383468](https://lifehacker.com/five-steps-to-overcome-binge-eating-1685383468)
+> 原文：<https://lifehacker.com/five-steps-to-overcome-binge-eating-1685383468>
 
 暴饮暴食会让人害怕。它们就像是一种灵魂出窍的体验，你看着自己在疯狂进食，寻找你能找到的每一口美味。以下是阻止他们的方法。
 

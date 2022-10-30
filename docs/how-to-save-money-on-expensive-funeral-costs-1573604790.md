@@ -1,6 +1,6 @@
 # 如何在昂贵的丧葬费上省钱
 
-> 原文:[https://life hacker . com/how-to-save-money-on-昂贵的丧葬费-1573604790](https://lifehacker.com/how-to-save-money-on-expensive-funeral-costs-1573604790)
+> 原文：<https://lifehacker.com/how-to-save-money-on-expensive-funeral-costs-1573604790>
 
 当一个心爱的人去世时，家庭成员和亲密的朋友留下来收拾残局并计划葬礼。在考虑成本的同时，必须做出如何让所爱的人安息的重要决定。这些决定将直接影响葬礼的经济负担。
 

@@ -1,6 +1,6 @@
 # 五款最佳书架音箱
 
-> 原文:[https://life hacker . com/five-best-bookshelf-speakers-1724245426](https://lifehacker.com/five-best-bookshelf-speakers-1724245426)
+> 原文：<https://lifehacker.com/five-best-bookshelf-speakers-1724245426>
 
 一对节省空间、价格适中、音质出色的扬声器并非不可能找到。你只需要一套坚固的书架式扬声器，本周我们来看看符合这些标准的五对——当然是基于你的提名。
 

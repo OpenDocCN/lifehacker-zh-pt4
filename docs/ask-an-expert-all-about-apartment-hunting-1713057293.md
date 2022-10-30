@@ -1,6 +1,6 @@
 # 问专家:所有关于找房子的问题
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-apartment-hunting-1713057293](https://lifehacker.com/ask-an-expert-all-about-apartment-hunting-1713057293)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-apartment-hunting-1713057293>
 
 无论你是在大城市的网上寻找完美的公寓，还是在郊区寻找一个安静的住所，找房子从来都不容易。假房源、可疑房东和其他危险信号会阻挡你和你的新家。
 

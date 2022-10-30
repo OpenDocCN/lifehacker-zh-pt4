@@ -1,6 +1,6 @@
 # 我的财务状况很糟糕，直到我克服了对贫穷的恐惧
 
-> 原文:[https://life hacker . com/my-finances-sucked-until-I-converted-my-fear-of-being-p-1724941320](https://lifehacker.com/my-finances-sucked-until-i-conquered-my-fear-of-being-p-1724941320)
+> 原文：<https://lifehacker.com/my-finances-sucked-until-i-conquered-my-fear-of-being-p-1724941320>
 
 当我四岁的时候，我妈妈打开了我们壁橱里的一个鞋盒，拿出了一些我从来没有见过的东西:一张崭新漂亮的 100 美元钞票。我很自然地喊道:“一百块？!"她立刻用手捂住我的嘴，低声说道，“你想让全世界都听到吗？他们可能会抢劫我们，我们会一无所有！”
 

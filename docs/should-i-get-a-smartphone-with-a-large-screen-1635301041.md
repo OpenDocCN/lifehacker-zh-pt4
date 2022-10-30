@@ -1,6 +1,6 @@
 # 我应该买一部大屏幕的智能手机吗？
 
-> 原文:[https://life hacker . com/should-I-get-a-smart phone-with-a-large-screen-1635301041](https://lifehacker.com/should-i-get-a-smartphone-with-a-large-screen-1635301041)
+> 原文：<https://lifehacker.com/should-i-get-a-smartphone-with-a-large-screen-1635301041>
 
 亲爱的 Lifehacker，
 我无法在 iPhone 6 和 iPhone 6 Plus 之间做出选择。Plus 上的大屏幕有什么实际好处？它看起来太大了，用一只手几乎用不上。

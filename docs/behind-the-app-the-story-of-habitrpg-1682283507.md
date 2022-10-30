@@ -1,6 +1,6 @@
 # App 背后:HabitRPG 的故事
 
-> 原文:[https://life hacker . com/the behind-the-app-the-story-of-the-habitat RPG-1682283507](https://lifehacker.com/behind-the-app-the-story-of-habitrpg-1682283507)
+> 原文：<https://lifehacker.com/behind-the-app-the-story-of-habitrpg-1682283507>
 
 如果你像玩电子游戏一样对待你的生活，把你的任务当作要战斗的怪物，把你的日常目标当作任务，会怎么样？这就是 [HabitRPG](https://habitrpg.com/) 背后的想法，这是一个网站和社区，旨在为你的待办事项列表提供一个角色扮演游戏。
 

@@ -1,6 +1,6 @@
 # 口袋大小的日常生存包
 
-> 原文:[https://life hacker . com/the-pocket-size-daily-survival-bag-1688938548](https://lifehacker.com/the-pocket-sized-daily-survival-bag-1688938548)
+> 原文：<https://lifehacker.com/the-pocket-sized-daily-survival-bag-1688938548>
 
 包包不一定要大到坐在肩膀上。《每日携带》的读者 Sergey 分享了他的口袋大小的包，里面装着他日常所需的一切。
 

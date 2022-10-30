@@ -1,6 +1,6 @@
 # 应用背后:Scribd 的故事
 
-> 原文:[https://life hacker . com/back-the-app-the-story-of-scribd-1589303246](https://lifehacker.com/behind-the-app-the-story-of-scribd-1589303246)
+> 原文：<https://lifehacker.com/behind-the-app-the-story-of-scribd-1589303246>
 
 Scribd 最初只是一个简单的托管和共享文档的网站。散文、诗歌、小说——无论作家需要分享什么，Scribd 为他们的文字提供了一个家。现在，他们已经成长为一个完全成熟的图书订阅服务——你可以说是电子书的 [网飞](http://lifehacker.com/are-ebook-subscription-services-worth-it-1513205735) 。
 

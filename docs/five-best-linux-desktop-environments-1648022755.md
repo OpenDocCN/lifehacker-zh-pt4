@@ -1,6 +1,6 @@
 # 五个最好的 Linux 桌面环境
 
-> 原文:[https://life hacker . com/five-best-Linux-desktop-environments-1648022755](https://lifehacker.com/five-best-linux-desktop-environments-1648022755)
+> 原文：<https://lifehacker.com/five-best-linux-desktop-environments-1648022755>
 
 无论您是定制您的 Linux 安装还是选择一个发行版，您的众多选择之一是您使用的桌面环境。有成吨的选择，都有不同的好处和特点。也许没有一个最佳人选，但本周我们会根据你的提名选出五个。
 

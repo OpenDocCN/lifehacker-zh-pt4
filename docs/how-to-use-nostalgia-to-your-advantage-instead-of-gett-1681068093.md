@@ -1,6 +1,6 @@
 # 如何利用怀旧对你有利(而不是陷入困境)
 
-> 原文:[https://life hacker . com/how-to-use-怀旧-你的优势-而不是-gett-1681068093](https://lifehacker.com/how-to-use-nostalgia-to-your-advantage-instead-of-gett-1681068093)
+> 原文：<https://lifehacker.com/how-to-use-nostalgia-to-your-advantage-instead-of-gett-1681068093>
 
 怀旧——一种经常让我们在 YouTube 上重温青春时光的感伤情绪——从心理学角度来说，是一种帮助我们应对孤独和失落的有用情绪。但是如果你不小心，你会陷入回忆而不是前进。
 

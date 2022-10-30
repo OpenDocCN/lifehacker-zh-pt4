@@ -1,6 +1,6 @@
 # 向我们展示你最喜欢的洗衣店或服装店
 
-> 原文:[https://life hacker . com/show-us-your favorite-洗衣店或洗衣店-hack-1475148914](https://lifehacker.com/show-us-your-favorite-laundry-or-clothing-hack-1475148914)
+> 原文：<https://lifehacker.com/show-us-your-favorite-laundry-or-clothing-hack-1475148914>
 
 让我们面对现实吧。我们都穿衣服。我们都必须存放这些衣服，甚至最终清洗它们。我们希望看到你在这个过程中提出的任何巧妙的建议。
 

@@ -1,6 +1,6 @@
 # 合并车道以避免交通引发的路怒症的正确方法
 
-> 原文:[https://life hacker . com/the-right-way-to-merge-lanes-to-avoid-the-1501148503](https://lifehacker.com/the-right-way-to-merge-lanes-to-avoid-traffic-jams-and-1501148503)
+> 原文：<https://lifehacker.com/the-right-way-to-merge-lanes-to-avoid-traffic-jams-and-1501148503>
 
 这个世界可以分为两种司机:一种是提前进入车道退出或并入车道的司机(超车者)，另一种是快速超车直到最后一刻的司机(侧滑者)，从某种意义上来说，他们插队了。线上线下之间的战争是有时驾驶地狱的一部分。事实证明，我们都做错了。
 

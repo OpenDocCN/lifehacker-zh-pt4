@@ -1,6 +1,6 @@
 # 2015 年我们如何工作:希瑟·山田-霍斯利的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-2015-heather-yamada-hos ley-s-gear-and-prod-1685186611](https://lifehacker.com/how-we-work-2015-heather-yamada-hosley-s-gear-and-prod-1685186611)
+> 原文：<https://lifehacker.com/how-we-work-2015-heather-yamada-hosley-s-gear-and-prod-1685186611>
 
 每周 [我们都会对](http://lifehacker.com/tag/how-i-work) 的专家进行有见地的采访，分享他们的生产力秘诀、推荐装备和生活窍门。现在轮到我们给出答案了。这里有一些我用来度过难关的技巧、诀窍和想法。
 

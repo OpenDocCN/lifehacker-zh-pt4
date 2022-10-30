@@ -1,6 +1,6 @@
 # 像企业家一样通过关注过程来解决问题
 
-> 原文:[https://life hacker . com/solve-problems-like-an-entrepreneur-by-focusing-the-1620205517](https://lifehacker.com/solve-problems-like-an-entrepreneur-by-focusing-on-the-1620205517)
+> 原文：<https://lifehacker.com/solve-problems-like-an-entrepreneur-by-focusing-on-the-1620205517>
 
 大多数人解决问题的方式是确定一个目标，然后直接朝着这个目标前进，但是当你问一个成功的企业家该怎么做时，你可能会得到不同的答案。他们不从终点的角度思考问题；他们想到的是过程。
 

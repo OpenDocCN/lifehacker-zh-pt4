@@ -1,6 +1,6 @@
 # 白纸戏法、触摸板设置和抽认卡
 
-> 原文:[https://life hacker . com/paper white-tricks-touchpad-settings-and-flash cards-1531994358](https://lifehacker.com/paperwhite-tricks-touchpad-settings-and-flashcards-1531994358)
+> 原文：<https://lifehacker.com/paperwhite-tricks-touchpad-settings-and-flashcards-1531994358>
 
 读者们为重置书籍或章节的剩余时间、发现触摸板功能和抽认卡应用程序提供了最佳建议。
 

@@ -1,6 +1,6 @@
 # 关于 Windows 10 你需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-to-know-on-windows-10-1642066771](https://lifehacker.com/everything-you-need-to-know-about-windows-10-1642066771)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-windows-10-1642066771>
 
 微软本周发布了最新版本的 Windows，我们一头扎了进去。如果你错过了任何新闻，这里有你需要知道的一切的综述，来自我们和我们在 [Gizmodo](http://gizmodo.com/) 的朋友。
 

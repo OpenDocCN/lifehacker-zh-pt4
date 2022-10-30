@@ -1,6 +1,6 @@
 # 有有线电视值得吗？
 
-> 原文:[https://life hacker . com/is-having-cable-ever-worth-it-1531607566](https://lifehacker.com/is-having-cable-ever-worth-it-1531607566)
+> 原文：<https://lifehacker.com/is-having-cable-ever-worth-it-1531607566>
 
 亲爱的 Lifehacker，我知道你们不太喜欢有线电视，但我马上就要上网了，公司给了我一个电视套餐。我确实喜欢看大量的电视节目，甚至一些体育运动。我至少应该考虑有线电视吧？我担心网飞和 Hulu 还不够。
 

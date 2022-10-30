@@ -1,6 +1,6 @@
 # 如何阻止网站监听您的麦克风
 
-> 原文:[https://life hacker . com/how-to-stop-websites-from-potential-listing-to-you-1507692091](https://lifehacker.com/how-to-stop-web-sites-from-potentially-listening-to-you-1507692091)
+> 原文：<https://lifehacker.com/how-to-stop-web-sites-from-potentially-listening-to-you-1507692091>
 
 本周早些时候，网络开发者 [Tal Ater 警告 Chrome 的一个漏洞](http://talater.com/chrome-is-listening/) 将允许一个不道德的网站在你说话时监听你电脑的麦克风。谷歌驳回了这个问题，但是如果你想知道整件事对你来说意味着什么，这里有一些你可以保护自己的方法。
 

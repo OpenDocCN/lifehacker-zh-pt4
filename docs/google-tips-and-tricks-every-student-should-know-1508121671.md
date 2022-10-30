@@ -1,6 +1,6 @@
 # 每个学生都应该知道的谷歌提示和技巧
 
-> 原文:[https://life hacker . com/Google-tips-and-tricks-every-student-should-know-1508121671](https://lifehacker.com/google-tips-and-tricks-every-student-should-know-1508121671)
+> 原文：<https://lifehacker.com/google-tips-and-tricks-every-student-should-know-1508121671>
 
 无论你是大学生(或更早)还是终身学习者，谷歌都是学习的必备工具。这里有一些更有效地使用谷歌搜索和其他应用程序来推进你的教育的技巧。
 

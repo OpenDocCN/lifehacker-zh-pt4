@@ -1,6 +1,6 @@
 # 如何理解令人困惑的新苹果音乐应用程序
 
-> 原文:[https://life hacker . com/how-to-make-sense-of-the-foaming-new-apple-music-app-1714913134](https://lifehacker.com/how-to-make-sense-of-the-confusing-new-apple-music-app-1714913134)
+> 原文：<https://lifehacker.com/how-to-make-sense-of-the-confusing-new-apple-music-app-1714913134>
 
 [苹果音乐今天发布](http://lifehacker.com/ios-8-4-and-apple-music-are-now-available-1714889672) 如果你已经使用 iOS 音乐应用有一段时间了，它现在是一个新选项和怪异的混乱。让我们看看这些东西到底去了哪里，以及如何使用它们。
 

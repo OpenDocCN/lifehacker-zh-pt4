@@ -1,6 +1,6 @@
 # 一些 Steam 账户在安全漏洞后被劫持
 
-> 原文:[https://kotaku . com/steam-accounts-劫持-跟踪-安全-失效-1720288836](https://kotaku.com/steam-accounts-hijacked-following-security-lapse-1720288836)
+> 原文：<https://kotaku.com/steam-accounts-hijacked-following-security-lapse-1720288836>
 
 在过去的一周里，许多 Steam 账户——包括一些著名的 streamers 和 [DOTA 2 pros](https://twitter.com/Arteezy/status/625085916873293824) 的账户——由于 Valve 的安全漏洞而暂时被盗。
 

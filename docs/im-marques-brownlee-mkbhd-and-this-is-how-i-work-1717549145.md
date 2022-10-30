@@ -1,6 +1,6 @@
 # 我是马克斯·布朗利，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-marques-brown lee-mkbhd-and-this-is-how-I-work-1717549145](https://lifehacker.com/im-marques-brownlee-mkbhd-and-this-is-how-i-work-1717549145)
+> 原文：<https://lifehacker.com/im-marques-brownlee-mkbhd-and-this-is-how-i-work-1717549145>
 
 六年前，马克斯·布朗利还是个孩子，对着摄像头谈论技术，并在 Youtube 上分享自己的想法。现在，他制作精良的 [MKBHD](https://www.youtube.com/mkbhd) 视频拥有 260 万订户，是网上最受欢迎的小工具评论来源之一。
 

@@ -1,6 +1,6 @@
 # 改善你在健身房锻炼的最好方法
 
-> 原文:[https://life hacker . com/the-best-ways-to-improve-your ' s tools-in-the-gym-1644104160](https://lifehacker.com/the-best-ways-to-improve-your-workouts-at-the-gym-1644104160)
+> 原文：<https://lifehacker.com/the-best-ways-to-improve-your-workouts-at-the-gym-1644104160>
 
 如果你已经 [习惯了适合你的日常锻炼](https://lifehacker.com/how-to-motivate-yourself-into-an-exercise-routine-youll-5950484) 接下来你可能要努力让自己在健身房如鱼得水。我们说的是确保你适当的运动，进步，不伤害自己。幸运的是，有很多地方可以寻求好的建议。让我们来看看其中的一些。
 

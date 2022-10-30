@@ -1,6 +1,6 @@
 # 如何在国外公共交通中生存
 
-> 原文:[https://life hacker . com/how-to-survive-public-transportation-foreign-1681302667](https://lifehacker.com/how-to-survive-public-transportation-abroad-1681302667)
+> 原文：<https://lifehacker.com/how-to-survive-public-transportation-abroad-1681302667>
 
 当你旅行时，你通常有很多选择。公共交通是省钱和接触当地生活方式的最佳方式，但在国外的交通系统中导航可能会很棘手。以下是你在旅行前和旅行中可以做的事情，让你的旅行变得轻松一点。
 

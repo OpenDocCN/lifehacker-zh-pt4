@@ -1,6 +1,6 @@
 # 如何正确清洁你所有的小玩意而不损坏它们
 
-> 原文:[https://life hacker . com/how-to-rightly-clean-all-your-gadgets-without-ruining-5875667](https://lifehacker.com/how-to-properly-clean-all-your-gadgets-without-ruining-5875667)
+> 原文：<https://lifehacker.com/how-to-properly-clean-all-your-gadgets-without-ruining-5875667>
 
 无论你保持一个多么干净的房子，你的电脑和小玩意肯定会到处有点脏。以下是清洁它们所需的东西，以及如何在不伤害它们的情况下进行清洁。
 

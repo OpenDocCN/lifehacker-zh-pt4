@@ -1,6 +1,6 @@
 # 最好的流媒体音乐服务是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-streaming-music-service-1702669437](https://lifehacker.com/whats-the-best-streaming-music-service-1702669437)
+> 原文：<https://lifehacker.com/whats-the-best-streaming-music-service-1702669437>
 
 流媒体音乐服务来来去去，虽然一些大牌总是很受欢迎，但这并不意味着他们是最好的。本周，我们想谈谈你最喜欢的一些东西——当你需要打开你最喜欢的果酱时，你就会求助于它们。
 

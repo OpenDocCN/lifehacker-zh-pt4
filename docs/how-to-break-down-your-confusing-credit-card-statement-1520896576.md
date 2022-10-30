@@ -1,6 +1,6 @@
 # 如何分解你令人困惑的信用卡对账单
 
-> 原文:[https://life hacker . com/how-to-break-down-your-following-credit-statement-1520896576](https://lifehacker.com/how-to-break-down-your-confusing-credit-card-statement-1520896576)
+> 原文：<https://lifehacker.com/how-to-break-down-your-confusing-credit-card-statement-1520896576>
 
 信用卡债务不仅仅是数字。个人理财由你过去的经历、你的个人选择以及有时你不愿面对的情况组成。综合起来，这些复杂的因素会导致你对债务的情绪反应，甚至使信用卡账单成为焦虑的来源。
 

@@ -1,6 +1,6 @@
 # 买二手车不吃亏的十个步骤
 
-> 原文:[https://jalopnik . com/购买二手车的十个步骤-不被拧-786640612](https://jalopnik.com/ten-steps-for-buying-a-used-car-without-getting-screwed-786640612)
+> 原文：<https://jalopnik.com/ten-steps-for-buying-a-used-car-without-getting-screwed-786640612>
 
 二手车很容易被骗，但是不要再害怕了，Jalopnik 的读者们来帮你了。按照这些步骤，你应该没有任何问题购买你的新车或旧车。享受旅程！
 

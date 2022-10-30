@@ -1,6 +1,6 @@
 # 我是 Adafruit 的 Becky Stern，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Becky-stern-of-adafruit-and-this-how-I-work-1579569581](https://lifehacker.com/im-becky-stern-of-adafruit-and-this-is-how-i-work-1579569581)
+> 原文：<https://lifehacker.com/im-becky-stern-of-adafruit-and-this-is-how-i-work-1579569581>
 
 贝基·斯特恩是艺术家、工程师还是设计师？在 Adafruit Industries，以上都是。作为可穿戴电子产品的主管，Becky 将自己的 DIY 技能与工艺天赋相结合，打造出利用各种电子元件的酷炫小发明。
 

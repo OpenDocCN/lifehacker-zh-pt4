@@ -1,6 +1,6 @@
 # 如何升级到新的 Android 手机并随身携带一切
 
-> 原文:[https://life hacker . com/how-to-upgrade-to-a-new-Android-phone-and-take-everythi-5843206](https://lifehacker.com/how-to-upgrade-to-a-new-android-phone-and-take-everythi-5843206)
+> 原文：<https://lifehacker.com/how-to-upgrade-to-a-new-android-phone-and-take-everythi-5843206>
 
 恭喜你:你刚刚得到了一部全新的安卓手机！如果你幸运的话，你会得到一笔好交易和一次大的升级。即便如此，你的旧手机已经陪伴你多年，它会按照你喜欢的方式进行设置，包括你所有的应用程序、联系人和设置。以下是如何将所有珍贵的数据转移到你的新手机上。
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:6 月 5 日至 12 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-June-5-to-12-1710912362](https://lifehacker.com/this-weeks-most-popular-posts-june-5th-to-12th-1710912362)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-june-5th-to-12th-1710912362>
 
 这周我们 [重新发现了亚马逊 Prime](https://lifehacker.com/the-awesome-amazon-prime-benefits-you-may-have-forgotte-1710058681)[睡了一会儿](https://lifehacker.com/this-graphic-explains-how-lack-of-sleep-can-negatively-1709486028)[煮了一些美味的牛排](https://lifehacker.com/tip-tester-what-s-the-best-way-to-marinate-inexpensive-1710500510)[让我们的草莓保持新鲜](https://lifehacker.com/keep-your-strawberries-fresh-longer-with-these-three-si-1709899633) 。这里回顾一下。
 

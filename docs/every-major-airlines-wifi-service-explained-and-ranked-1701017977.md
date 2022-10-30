@@ -1,6 +1,6 @@
 # 各大航空公司的 Wifi 服务，解释和排名
 
-> 原文:[https://gizmodo . com/every-major-airlines-wifi-service-explained-and-ranking-1701017977](https://gizmodo.com/every-major-airlines-wifi-service-explained-and-ranked-1701017977)
+> 原文：<https://gizmodo.com/every-major-airlines-wifi-service-explained-and-ranked-1701017977>
 
 你知道路易斯·C·K 关于飞机上无线网络的笑话吗？他说，“速度很快，我正在看 YouTube 视频。太神奇了——我在飞机上！然后就崩溃了。…我旁边的人说，“这是胡说。”“这是真的。
 

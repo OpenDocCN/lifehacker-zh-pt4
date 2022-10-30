@@ -1,6 +1,6 @@
 # 当你不应该喝酒时，藏酒的三种方法
 
-> 原文:[https://life hacker . com/three-ways-to-hide your-booze-when you-should-not-be-dri-1510192360](https://lifehacker.com/three-ways-to-hide-your-booze-when-you-shouldnt-be-dri-1510192360)
+> 原文：<https://lifehacker.com/three-ways-to-hide-your-booze-when-you-shouldnt-be-dri-1510192360>
 
 在公共场合喝酒？不要脸！除非是尾门。或者烧烤。或者你累了一天，只想喝杯啤酒。当你不应该喝酒的时候，这里有三种藏酒的方法。
 

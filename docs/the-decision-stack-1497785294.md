@@ -1,6 +1,6 @@
 # 决策层:如何更好地分析你的财务选择
 
-> 原文:[https://lifehacker.com/the-decision-stack-1497785294](https://lifehacker.com/the-decision-stack-1497785294)
+> 原文：<https://lifehacker.com/the-decision-stack-1497785294>
 
 假设我正坐在一家咖啡店里，等待一位朋友的到来。我面前的桌子上有一杯热腾腾的美味，我正在手机上看一个网站。这是个简单的故事，对吧？然而，它是建立在一堆具有财务影响的决策之上的。
 

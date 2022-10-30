@@ -1,6 +1,6 @@
 # 现在如何获得 Android KitKat 的最佳功能
 
-> 原文:[https://life hacker . com/how-to-get-the-best-features-of-Android-kit kat-now-1456739585](https://lifehacker.com/how-to-get-the-best-features-of-android-kitkat-now-1456739585)
+> 原文：<https://lifehacker.com/how-to-get-the-best-features-of-android-kitkat-now-1456739585>
 
 Android KitKat [昨天刚刚宣布](https://lifehacker.com/all-the-new-stuff-in-android-4-4-kitkat-1456286732) ，运营商和制造商都已经承诺尽快推出。你不必坐以待毙，但你可以获得一些最新的和最好的手机功能，你已经有了，现在。以下是方法。
 

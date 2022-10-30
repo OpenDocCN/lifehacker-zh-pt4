@@ -1,6 +1,6 @@
 # 早起鸟和夜猫子的优势
 
-> 原文:[https://life hacker . com/the-advantages of-be-a-early-bird-vs-be-a-night-1665428542](https://lifehacker.com/the-advantages-of-being-an-early-bird-vs-being-a-night-1665428542)
+> 原文：<https://lifehacker.com/the-advantages-of-being-an-early-bird-vs-being-a-night-1665428542>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-BPJ0729NVjw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-BPJ0729NVjw&start=0) 
 

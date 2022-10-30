@@ -1,6 +1,6 @@
 # 你能买到的最持久的指甲油也是最便宜的
 
-> 原文:[https://life hacker . com/the-long-lasing-nail-polish-you-can-buy-is-the-this-than-the-1584668718](https://lifehacker.com/the-longest-lasting-nail-polish-you-can-buy-is-also-the-1584668718)
+> 原文：<https://lifehacker.com/the-longest-lasting-nail-polish-you-can-buy-is-also-the-1584668718>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-HuxnT4u-50k&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-HuxnT4u-50k&start=0) 
 

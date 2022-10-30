@@ -1,6 +1,6 @@
 # 如果你想保障你的退休生活，什么时候考虑年金
 
-> 原文:[https://life hacker . com/when-to-consider-年金-if-you-want-guard-you-1713517651](https://lifehacker.com/when-to-consider-annuities-if-you-want-to-safeguard-you-1713517651)
+> 原文：<https://lifehacker.com/when-to-consider-annuities-if-you-want-to-safeguard-you-1713517651>
 
 你可能知道为退休储蓄是一件大事。如果你喜欢最终能够不依赖工作而享受生活的想法，你会想要向个人退休帐户缴款，利用雇主 401(k)匹配，或者更好的是，两者兼而有之。但在你的退休计划中，还有一个选择你可能没有考虑过:年金。这里有一本关于它们的入门书。
 

@@ -1,6 +1,6 @@
 # 我和我的伴侣如何克服我们的金钱问题并学会共处
 
-> 原文:[https://life hacker . com/how-my-partner-and-I-over-our money-issues-lear-1722135131](https://lifehacker.com/how-my-partner-and-i-overcame-our-money-issues-and-lear-1722135131)
+> 原文：<https://lifehacker.com/how-my-partner-and-i-overcame-our-money-issues-and-lear-1722135131>
 
 和你的伴侣意见一致很重要，但这并不意味着你们必须在所有事情上都达成一致。我们刚在一起的时候，我和我的未婚夫有着完全不同的金钱习惯，我们一直为此争吵。多年后，我们仍然有这些不同的习惯——但是战斗已经过去了。这就是我们如何学会共存的。
 

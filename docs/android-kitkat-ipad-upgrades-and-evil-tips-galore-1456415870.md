@@ -1,6 +1,6 @@
 # Android KitKat、iPad 升级和邪恶的提示数不胜数
 
-> 原文:[https://life hacker . com/Android-kit kat-ipad-upgrades-and-evil-tips-galore-1456415870](https://lifehacker.com/android-kitkat-ipad-upgrades-and-evil-tips-galore-1456415870)
+> 原文：<https://lifehacker.com/android-kitkat-ipad-upgrades-and-evil-tips-galore-1456415870>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-_tL6ckGQxlQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-_tL6ckGQxlQ&start=0) 
 

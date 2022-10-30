@@ -1,6 +1,6 @@
 # 如何充分利用导师并在职业生涯中取得成功
 
-> 原文:[https://life hacker . com/how-to-make-the-most-a-mentor-and-get-ahead-in-your-1646087771](https://lifehacker.com/how-to-make-the-most-of-a-mentor-and-get-ahead-in-your-1646087771)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-a-mentor-and-get-ahead-in-your-1646087771>
 
 有一个导师是获得经验和知识的好方法，而这是从正规教育中不容易获得的。具有讽刺意味的是，从你的导师身上获得最大的收获并没有一本手册。所以我们写了一个。
 

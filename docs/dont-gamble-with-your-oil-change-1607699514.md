@@ -1,6 +1,6 @@
 # 这就是为什么你不应该赌博换油
 
-> 原文:[https://jalopnik . com/don ' t gamble-with your-oil-change-1607699514](https://jalopnik.com/dont-gamble-with-your-oil-change-1607699514)
+> 原文：<https://jalopnik.com/dont-gamble-with-your-oil-change-1607699514>
 
 对许多汽车爱好者来说，付钱给陌生人给你换机油的想法是错误的。有些人没有时间或兴趣去自助换油，他们经常去那些快速换油的地方。这可能会导致可怕的结果。
 

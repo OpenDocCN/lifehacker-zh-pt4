@@ -1,6 +1,6 @@
 # 岩石海滩桌面
 
-> 原文:[https://lifehacker.com/the-rocky-beach-desktop-1561551206](https://lifehacker.com/the-rocky-beach-desktop-1561551206)
+> 原文：<https://lifehacker.com/the-rocky-beach-desktop-1561551206>
 
 Flickr 用户以下是如何让你的电脑看起来像这样。
 

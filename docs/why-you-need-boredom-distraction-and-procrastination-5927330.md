@@ -1,6 +1,6 @@
 # 为什么你的生活需要无聊、分心和拖延
 
-> 原文:[https://life hacker . com/why-you-need-bordery-dis 分心-拖延症-5927330](https://lifehacker.com/why-you-need-boredom-distraction-and-procrastination-5927330)
+> 原文：<https://lifehacker.com/why-you-need-boredom-distraction-and-procrastination-5927330>
 
 我们大多数人——不管我们使用多少节省时间的技术——都没有足够的时间来浪费。但是，生产率是有代价的:拥有那段停机时间是非常有益的。我们一直在与无聊、分心和拖延做斗争，但这并不意味着你应该完全摆脱它们。
 

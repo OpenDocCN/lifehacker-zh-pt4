@@ -1,6 +1,6 @@
 # 我是 Bre Pettis，MakerBot 的联合创始人，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-bre-pett is-makerbot-and-this-is-how-1641228338](https://lifehacker.com/im-bre-pettis-co-founder-of-makerbot-and-this-is-how-1641228338)
+> 原文：<https://lifehacker.com/im-bre-pettis-co-founder-of-makerbot-and-this-is-how-1641228338>
 
 在过去的几年里，3D 打印已经从一个小众爱好变成了一种主流实践，这在很大程度上归功于 Bre Pettis。Bre 联合创立了 MakerBot Industries ，这是将简单和 [廉价的 3D 打印机](http://lifehacker.com/how-to-get-started-with-3d-printing-without-spending-a-1340345210) 带给大众的先锋力量。
 

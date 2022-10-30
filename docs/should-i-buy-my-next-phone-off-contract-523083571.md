@@ -1,6 +1,6 @@
 # 我应该购买我的下一部手机合同外？
 
-> 原文:[https://life hacker . com/should-I-buy-my-next-phone-off-contract-523083571](https://lifehacker.com/should-i-buy-my-next-phone-off-contract-523083571)
+> 原文：<https://lifehacker.com/should-i-buy-my-next-phone-off-contract-523083571>
 
 亲爱的 Lifehacker，和大多数人一样，我会等到合同到期后再买一部新手机，这样我就可以享受运营商的合同补贴了。到目前为止，我还没有遇到任何问题，但我想知道，为我的下一部手机支付全价和免合约是否有任何优势？
 

@@ -1,6 +1,6 @@
 # 如何更有效地阅读肢体语言
 
-> 原文:[https://life hacker . com/how-to-read-body-language-more-effectively-1572937449](https://lifehacker.com/how-to-read-body-language-more-effectively-1572937449)
+> 原文：<https://lifehacker.com/how-to-read-body-language-more-effectively-1572937449>
 
 肢体语言是我们与他人交流的重要组成部分。然而，我们大多数人充其量只是对非语言交流有一个直观的认识。幸运的是，如果阅读身体语言对你来说不是很自然，或者如果你只是想做得更好，有大量的工作可以详细说明身体真正在说什么。
 

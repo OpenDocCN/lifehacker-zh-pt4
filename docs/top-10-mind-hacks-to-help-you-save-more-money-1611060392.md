@@ -1,6 +1,6 @@
 # 帮助你省钱的 10 大妙招
 
-> 原文:[https://life hacker . com/top-10-mind-hacks-to-help-you-save-more-money-1611060392](https://lifehacker.com/top-10-mind-hacks-to-help-you-save-more-money-1611060392)
+> 原文：<https://lifehacker.com/top-10-mind-hacks-to-help-you-save-more-money-1611060392>
 
 你已经知道存钱的常用策略:自动留出一部分薪水，坚持预算，计划购买，等等。但是也有一些简单的(如果令人惊讶的话)心理学技巧可以帮助我们存更多的钱。以下是十个这样的想法。
 

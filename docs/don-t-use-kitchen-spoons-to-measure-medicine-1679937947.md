@@ -1,6 +1,6 @@
 # 不要用厨房的勺子量药
 
-> 原文:[https://life hacker . com/don-t-use-kitchen-sokes-to-measure-medicine-1679937947](https://lifehacker.com/don-t-use-kitchen-spoons-to-measure-medicine-1679937947)
+> 原文：<https://lifehacker.com/don-t-use-kitchen-spoons-to-measure-medicine-1679937947>
 
 当你不得不服用一茶匙的药物时，伸手去拿一茶匙是很诱人的。有道理，对吧？但是厨房的勺子大小不同，使用银器来测量药物意味着你可能给错了剂量。
 

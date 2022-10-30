@@ -1,6 +1,6 @@
 # 找到创造性的方法来利用你现有的东西，从而节省买衣服的钱
 
-> 原文:[https://life hacker . com/save-money-on-discovery-way-to-use-1691218548](https://lifehacker.com/save-money-on-clothes-by-finding-inventive-ways-to-use-1691218548)
+> 原文：<https://lifehacker.com/save-money-on-clothes-by-finding-inventive-ways-to-use-1691218548>
 
 用最新的款式和潮流更新你的衣柜会给你的钱包带来压力。不要把 [添加到你的衣柜](https://lifehacker.com/how-to-organize-a-lot-of-clothing-in-very-little-closet-1516664381) ，试试这些建议来改造你已经拥有的衣服。
 

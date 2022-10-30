@@ -1,6 +1,6 @@
 # 瘦子增肥指南
 
-> 原文:[https://life hacker . com/a-skinny-persons-guide-to-enging-weight-1683341104](https://lifehacker.com/a-skinny-persons-guide-to-gaining-weight-1683341104)
+> 原文：<https://lifehacker.com/a-skinny-persons-guide-to-gaining-weight-1683341104>
 
 如果你是一个自称“瘦”的人，试图增加体重，当你在网上搜索时，你可能会觉得自己是二等公民。大多数健身信息都是针对减脂的。先说健康增重的基础。
 

@@ -1,6 +1,6 @@
 # 如何判断我的笔记本电脑或小工具是否可以升级？
 
-> 原文:[https://life hacker . com/how-can-I-tell-if-my-laptop-or-gadget-is-upgrade-or-1474862291](https://lifehacker.com/how-can-i-tell-if-my-laptop-or-gadget-is-upgradeable-or-1474862291)
+> 原文：<https://lifehacker.com/how-can-i-tell-if-my-laptop-or-gadget-is-upgradeable-or-1474862291>
 
 亲爱的 Lifehacker，
 我有一台笔记本电脑——不算太旧——我很喜欢它，但我想我可以使用更大的硬盘，或者更多的内存。我不介意自己升级它，但我不想松开所有这些螺丝，只是为了发现 RAM 被焊接或硬盘驱动器被一堆微妙的电线压着。在我破解它之前，我如何知道我是否可以升级它？

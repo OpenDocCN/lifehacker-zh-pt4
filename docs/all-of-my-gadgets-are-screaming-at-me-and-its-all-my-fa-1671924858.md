@@ -1,6 +1,6 @@
 # 我所有的小玩意都冲我尖叫，这都是我的错
 
-> 原文:[https://gizmodo . com/all-of-my-gadgets-is-whistle-in-me-it ' s-all-my-fa-1671924858](https://gizmodo.com/all-of-my-gadgets-are-screaming-at-me-and-its-all-my-fa-1671924858)
+> 原文：<https://gizmodo.com/all-of-my-gadgets-are-screaming-at-me-and-its-all-my-fa-1671924858>
 
 如果你现在给我发电子邮件，会发生很多事情。我的手腕会震动。我的口袋会震动，亮起来，*和*会发出声音。我的笔记本电脑屏幕角落会出现一个弹出窗口。在我的谷歌浏览器窗口中，一个信封小图标旁边的计数器会增加。我会沮丧地抽搐、蠕动和咒骂，但我*需要*所有这些事情发生，我发誓。尽管如此，我可能不会回复你的邮件。
 

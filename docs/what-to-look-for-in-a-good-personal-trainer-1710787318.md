@@ -1,6 +1,6 @@
 # 寻找一个好的私人教练需要什么
 
-> 原文:[https://life hacker . com/what-to-look in-a good-personal-trainer-1710787318](https://lifehacker.com/what-to-look-for-in-a-good-personal-trainer-1710787318)
+> 原文：<https://lifehacker.com/what-to-look-for-in-a-good-personal-trainer-1710787318>
 
 有一种观点认为，一个好的教练就像一个战场上的将军:一个会“鞭策”你的人。但事实并非如此。如果你雇佣了最像将军的人，你可能会发现自己成了突出部战役的牺牲品。当你选择一个好的教练时，以下是你应该寻找的。
 

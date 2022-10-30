@@ -1,6 +1,6 @@
 # 关于切断电缆线的最大误区
 
-> 原文:[https://life hacker . com/the-biggest-myths-about-cut-the-cable-cord-1566140265](https://lifehacker.com/the-biggest-myths-about-cutting-the-cable-cord-1566140265)
+> 原文：<https://lifehacker.com/the-biggest-myths-about-cutting-the-cable-cord-1566140265>
 
 如果头条新闻是可信的，消费者正在成群结队地放弃传统的电视订阅，拥抱越来越容易使用的流媒体工具和应用程序，并在他们最喜欢的节目播出后几分钟内观看它们。但事实实际上要复杂得多。
 

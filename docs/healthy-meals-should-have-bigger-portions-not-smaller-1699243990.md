@@ -1,6 +1,6 @@
 # 健康的膳食应该多吃，而不是少吃
 
-> 原文:[https://life hacker . com/healthy-meals-should-habits-happers-happers-happers-happers-happer-not-small-1699243990](https://lifehacker.com/healthy-meals-should-have-bigger-portions-not-smaller-1699243990)
+> 原文：<https://lifehacker.com/healthy-meals-should-have-bigger-portions-not-smaller-1699243990>
 
 份额控制被过度炒作。如果你想吃得健康，少量的食物可能弊大于利。这听起来是不是倒退了？考虑一下:如果你的“健康”食物很少，更多的是零食，你只是在为自己在一天的晚些时候的失败做准备。
 

@@ -1,6 +1,6 @@
 # 苹果可怕的 OS X 安全漏洞的修补程序在这里
 
-> 原文:[https://gizmodo . com/the-fix-for-apple-terrible-OS-x-security-flaw-is-here-1529636089](https://gizmodo.com/the-fix-for-apples-scary-os-x-security-flaw-is-here-1529636089)
+> 原文：<https://gizmodo.com/the-fix-for-apples-scary-os-x-security-flaw-is-here-1529636089>
 
 苹果公司已经准备好了一个修补程序，可以修复令人恐惧的 OS X 安全漏洞 ，该漏洞可以让对你的网络连接拥有“特权访问”的人获取你认为安全的信息。现在 App Store 里是。以下是您需要了解的修复信息。
 

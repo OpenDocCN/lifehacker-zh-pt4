@@ -1,6 +1,6 @@
 # 与催收员打交道时，如何请求债务验证
 
-> 原文:[https://life hacker . com/how-to-request-a-debt-validation-when-dealing-coll-1623077279](https://lifehacker.com/how-to-request-a-debt-validation-when-dealing-with-coll-1623077279)
+> 原文：<https://lifehacker.com/how-to-request-a-debt-validation-when-dealing-with-coll-1623077279>
 
 如果你接到讨债人的电话，你应该怎么做——或者说，你应该 ***而不是*** 做什么:**不要自动同意债务是你的。如果债务是你的，那么你可以在确定讨债人合法后同意。如果债务不是你的，说它是你的会让你陷入一场战斗，这使得从你的信用报告中删除债务几乎是不可能的。**
 

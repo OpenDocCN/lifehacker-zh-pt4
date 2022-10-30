@@ -1,6 +1,6 @@
 # 最常见的隐性酒店费用(以及如何避免)
 
-> 原文:[https://life hacker . com/the-most-common-hidden-hotel-fees-and-how-to-avoid-the-the-1610212218](https://lifehacker.com/the-most-common-hidden-hotel-fees-and-how-to-avoid-the-1610212218)
+> 原文：<https://lifehacker.com/the-most-common-hidden-hotel-fees-and-how-to-avoid-the-1610212218>
 
 当你在一个不错的旅游预订网站 上用 [预订酒店房间时，你可能会认为你得到了一笔大交易。然后，当你到达时，你会遇到你不知道的费用。以下是一些最常见的罪魁祸首，以及一些可以避免它们的方法。](https://lifehacker.com/five-best-cheap-travel-booking-sites-5795117)
 

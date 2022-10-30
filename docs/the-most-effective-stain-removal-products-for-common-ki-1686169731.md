@@ -1,6 +1,6 @@
 # 最有效的去除厨房污渍的产品
 
-> 原文:[https://life hacker . com/the-most-effective-stain-removal-products-for-common-ki-1686169731](https://lifehacker.com/the-most-effective-stain-removal-products-for-common-ki-1686169731)
+> 原文：<https://lifehacker.com/the-most-effective-stain-removal-products-for-common-ki-1686169731>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-mWER8ImcdcA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-mWER8ImcdcA&start=0) 
 

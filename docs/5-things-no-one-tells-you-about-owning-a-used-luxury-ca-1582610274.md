@@ -1,6 +1,6 @@
 # 没人告诉你的拥有二手豪华车的 5 件事
 
-> 原文:[https://jalopnik . com/5-things-no-one-tell-you-owning-a-used-luxury-ca-1582610274](https://jalopnik.com/5-things-no-one-tells-you-about-owning-a-used-luxury-ca-1582610274)
+> 原文：<https://jalopnik.com/5-things-no-one-tells-you-about-owning-a-used-luxury-ca-1582610274>
 
 便宜和珍惜每一美元的价值是有区别的。一个是知道最好的汉堡店在哪里，另一个是去其他的桌子要不要的剩菜和备用的番茄酱包。理解这种区别是我几乎在一年前购买了一辆二手奔驰 S500 并每天驾驶它的原因。以下是我一路走来学到的一些东西。
 

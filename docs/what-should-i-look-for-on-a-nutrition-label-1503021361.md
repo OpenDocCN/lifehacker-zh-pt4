@@ -1,6 +1,6 @@
 # 我应该在营养标签上寻找什么？
 
-> 原文:[https://life hacker . com/what-should-I-look-on-a-a-nutrition-label-1503021361](https://lifehacker.com/what-should-i-look-for-on-a-nutrition-label-1503021361)
+> 原文：<https://lifehacker.com/what-should-i-look-for-on-a-nutrition-label-1503021361>
 
 亲爱的 Lifehacker，
 我总是被告知要看营养标签，但我完全不明白我在看什么。有什么我应该特别注意的吗？

@@ -1,6 +1,6 @@
 # 用僵尸启示录原则制作一个更好的演示文稿
 
-> 原文:[https://life hacker . com/craft-a-better-presentation-with-zombie-启示录-prin-1653315276](https://lifehacker.com/craft-a-better-presentation-with-zombie-apocalypse-prin-1653315276)
+> 原文：<https://lifehacker.com/craft-a-better-presentation-with-zombie-apocalypse-prin-1653315276>
 
 我们都曾幻想过，如果亡灵开始从坟墓中复活，僵尸末日开始，我们会有什么反应。这需要敏捷的思维、周密的计划和压力下的优雅。奇怪的是，这些也是制作一场有效演讲的原则。
 

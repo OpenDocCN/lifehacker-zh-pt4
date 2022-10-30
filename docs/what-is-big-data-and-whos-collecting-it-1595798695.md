@@ -1,6 +1,6 @@
 # 什么是“大数据”，谁在收集它？
 
-> 原文:[https://life hacker . com/what-is-big-data-and-whos-collecting-it-1595798695](https://lifehacker.com/what-is-big-data-and-whos-collecting-it-1595798695)
+> 原文：<https://lifehacker.com/what-is-big-data-and-whos-collecting-it-1595798695>
 
 亲爱的生活黑客，
 我听到越来越多关于“大数据”的说法这是什么，这是我应该担心的事情吗？这是公司获取我的数据并出售的另一种方式吗？

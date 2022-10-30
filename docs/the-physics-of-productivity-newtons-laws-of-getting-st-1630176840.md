@@ -1,6 +1,6 @@
 # 生产力物理学:完成工作的牛顿定律
 
-> 原文:[https://life hacker . com/the-physics-of-productivity-newtons-laws-of-get-ST-1630176840](https://lifehacker.com/the-physics-of-productivity-newtons-laws-of-getting-st-1630176840)
+> 原文：<https://lifehacker.com/the-physics-of-productivity-newtons-laws-of-getting-st-1630176840>
 
 1687 年，艾萨克·牛顿爵士出版了他的开创性著作，描述了三大运动定律，重新定义了世界看待物理和科学的方式。这些定律也是一个有趣的类比，可以提高你的生产力，简化你的工作，改善你的生活。
 

@@ -1,6 +1,6 @@
 # 爆发主屏幕
 
-> 原文:[https://lifehacker.com/the-outbreak-home-screen-1617906764](https://lifehacker.com/the-outbreak-home-screen-1617906764)
+> 原文：<https://lifehacker.com/the-outbreak-home-screen-1617906764>
 
 在 Themer 发布后，我们最近在我的彩色屏幕上找到了一些乐趣。今天，我们带着离经叛道的艺术用户[revestianierange](http://revestianieorange.deviantart.com/)的爆发主屏幕回到我们的本源。
 

@@ -1,6 +1,6 @@
 # 离婚后如何找到自己的经济立足点
 
-> 原文:[https://life hacker . com/how-to-found-to-find your financial-footing-after-a diffuse-1529864817](https://lifehacker.com/how-to-find-your-financial-footing-after-a-divorce-1529864817)
+> 原文：<https://lifehacker.com/how-to-find-your-financial-footing-after-a-divorce-1529864817>
 
 离婚带来的情感痛苦可能令人心碎——共同生活的分离和建立独立生活的斗争几乎是极其困难的。离婚也是人们经济灾难的因素之一。
 

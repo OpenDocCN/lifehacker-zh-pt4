@@ -1,6 +1,6 @@
 # 你可以克服的十大家庭问题
 
-> 原文:[https://life hacker . com/top-10-family-issues-you-can-comprise-1674901208](https://lifehacker.com/top-10-family-issues-you-can-overcome-1674901208)
+> 原文：<https://lifehacker.com/top-10-family-issues-you-can-overcome-1674901208>
 
 人们并不总是合得来，即使他们是浪漫关系中的或者来自同一血脉。虽然家庭问题经常是喜剧和戏剧的来源，但在现实生活中，我们可以解决棘手的问题并保持和平。这里有 10 个这样的问题。
 

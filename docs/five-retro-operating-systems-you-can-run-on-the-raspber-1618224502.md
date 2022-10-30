@@ -1,6 +1,6 @@
 # 您可以在 Raspberry Pi 上运行的五个复古操作系统
 
-> 原文:[https://life hacker . com/five-retro-operating-systems-you-can-run-on-the-raspber-1618224502](https://lifehacker.com/five-retro-operating-systems-you-can-run-on-the-raspber-1618224502)
+> 原文：<https://lifehacker.com/five-retro-operating-systems-you-can-run-on-the-raspber-1618224502>
 
 Raspberry Pi 是一个很好的实验设备，因为它可以很容易地替换掉突发奇想的操作系统，所以运行你不怎么用的旧系统是很有趣的。为此，这里有一些我们最喜欢的。
 

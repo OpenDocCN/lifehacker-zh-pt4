@@ -1,6 +1,6 @@
 # 改变冰箱门的方向，方便拿取
 
-> 原文:[https://life hacker . com/change-the-direction-of-your ' s 冰箱门易取-1563403599](https://lifehacker.com/change-the-direction-of-your-fridge-door-for-easy-acces-1563403599)
+> 原文：<https://lifehacker.com/change-the-direction-of-your-fridge-door-for-easy-acces-1563403599>
 
 一个布局合理的厨房可以极大地提高你在这个空间的效率。因此，如果你的冰箱门经常挡道，如何做一个勤杂工提供了一个 DIY 指南来改变它的打开方向。
 

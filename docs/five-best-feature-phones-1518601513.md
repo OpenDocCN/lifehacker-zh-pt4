@@ -1,6 +1,6 @@
 # 五款最佳功能手机
 
-> 原文:[https://lifehacker.com/five-best-feature-phones-1518601513](https://lifehacker.com/five-best-feature-phones-1518601513)
+> 原文：<https://lifehacker.com/five-best-feature-phones-1518601513>
 
 我们大多数人都爱我们的智能手机，但不是每个人都需要一部。对一些人来说，一部能打电话、能记录我们的电话号码、能方便发短信的手机已经足够了。无论是为了在移动数据上省钱还是降低复杂性，本周我们都将根据您的提名，来看看五款最佳常规功能手机(也称为“傻瓜手机”)。
 

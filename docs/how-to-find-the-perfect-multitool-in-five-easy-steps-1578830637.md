@@ -1,6 +1,6 @@
 # 如何通过六个简单的步骤找到完美的多功能工具
 
-> 原文:[https://gizmodo . com/how-to-find-the-perfect-multi tool-in-five-easy-steps-1578830637](https://gizmodo.com/how-to-find-the-perfect-multitool-in-five-easy-steps-1578830637)
+> 原文：<https://gizmodo.com/how-to-find-the-perfect-multitool-in-five-easy-steps-1578830637>
 
 在任何地方修理任何东西。这是多功能工具的承诺，但是买错了会让你陷入困境。以下是第一次如何得到正确的答案。
 

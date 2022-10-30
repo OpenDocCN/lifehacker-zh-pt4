@@ -1,6 +1,6 @@
 # 如果你在家工作，关于税收你需要知道的五件事
 
-> 原文:[https://life hacker . com/five-things-you-need-know-on-tax-if-you-work-fr-1686777978](https://lifehacker.com/five-things-you-need-to-know-about-taxes-if-you-work-fr-1686777978)
+> 原文：<https://lifehacker.com/five-things-you-need-to-know-about-taxes-if-you-work-fr-1686777978>
 
 在家工作可能是一种 [幸福的工作安排](https://lifehacker.com/ditching-your-commute-is-the-happiness-equivalent-of-a-1679698849) ，但在纳税时间前后，它也会引发一些令人困惑的问题。你能为你的家庭办公室申请减税吗？打印机墨水、新显示器或*活页夹*怎么样(即使你在工作之外使用它们)？以下是你需要知道的，无论你是在家远程办公的员工还是自雇人士。
 

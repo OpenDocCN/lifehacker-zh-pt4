@@ -1,6 +1,6 @@
 # 发光主屏幕
 
-> 原文:[https://lifehacker.com/the-glow-home-screen-1644550089](https://lifehacker.com/the-glow-home-screen-1644550089)
+> 原文：<https://lifehacker.com/the-glow-home-screen-1644550089>
 
 “简单加一点色彩”是界面设计中非常常见的主题。这种风格走的是传统路线，有着独特的风格，简单的轮廓和明亮背景上的文字。
 

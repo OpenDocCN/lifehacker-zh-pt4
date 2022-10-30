@@ -1,6 +1,6 @@
 # 用这些壁纸把地球的元素放在你的桌面上
 
-> 原文:[https://life hacker . com/put-the-elements-on-the-thes-1476411029](https://lifehacker.com/put-the-elements-of-the-earth-on-your-desktop-with-thes-1476411029)
+> 原文：<https://lifehacker.com/put-the-elements-of-the-earth-on-your-desktop-with-thes-1476411029>
 
 虽然没有元素周期表，但我们有时会更简单地将元素视为冰、火、风和土——它们可以产生一些美丽的图像。看看这些伟大的壁纸，把元素放在你的桌面上。
 

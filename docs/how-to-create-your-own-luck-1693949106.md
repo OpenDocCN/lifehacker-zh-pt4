@@ -1,6 +1,6 @@
 # 如何创造自己的运气
 
-> 原文:[https://life hacker . com/how-to-create-your-own-luck-1693949106](https://lifehacker.com/how-to-create-your-own-luck-1693949106)
+> 原文：<https://lifehacker.com/how-to-create-your-own-luck-1693949106>
 
 幸运可以意味着任何事情，从在地上找到一美元到得到你梦想中的工作。你不能改变宇宙的法则，但是认为自己幸运的人往往会表现出某些特质。以下是如何利用这一优势，创造你自己的“运气”。
 

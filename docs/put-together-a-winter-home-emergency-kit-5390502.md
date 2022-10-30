@@ -1,6 +1,6 @@
 # 准备一个冬季家庭应急包
 
-> 原文:[https://life hacker . com/put-together-a-winter-home-emergency-kit-5390502](https://lifehacker.com/put-together-a-winter-home-emergency-kit-5390502)
+> 原文：<https://lifehacker.com/put-together-a-winter-home-emergency-kit-5390502>
 
 你家里现在可能有各种各样的东西，在紧急情况下会很好地为你服务，加上一些东西和一些组织，你会有一个功能包和应急计划。
 

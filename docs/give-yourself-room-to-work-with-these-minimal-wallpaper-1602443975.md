@@ -1,6 +1,6 @@
 # 用这些简约的壁纸给自己留出工作空间
 
-> 原文:[https://life hacker . com/give-yourself room to-work with this-minimal-wallpaper-1602443975](https://lifehacker.com/give-yourself-room-to-work-with-these-minimal-wallpaper-1602443975)
+> 原文：<https://lifehacker.com/give-yourself-room-to-work-with-these-minimal-wallpaper-1602443975>
 
 好的壁纸不一定要忙着才好看，有时候有一张好看、优雅、简洁的壁纸也是不错的，这样你就不会分心工作了。在 之前，我们已经做了最少的 [几个](https://lifehacker.com/simplify-your-smartphone-or-tablet-with-these-minimalis-473003487) [次](http://lifehacker.com/simplify-your-desktop-with-these-minimalist-wallpapers-5812037) [，但是这里有一个新的集合可以下载。](http://lifehacker.com/get-all-that-crap-off-your-desktop-with-these-minimalis-5902787)
 

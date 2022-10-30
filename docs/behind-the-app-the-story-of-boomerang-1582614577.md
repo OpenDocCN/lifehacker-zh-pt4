@@ -1,6 +1,6 @@
 # 应用背后:回旋镖的故事
 
-> 原文:[https://life hacker . com/behind-the-app-the-story of-boomerang-1582614577](https://lifehacker.com/behind-the-app-the-story-of-boomerang-1582614577)
+> 原文：<https://lifehacker.com/behind-the-app-the-story-of-boomerang-1582614577>
 
 回旋镖就像一个电子邮件魔术。这个插件可以让你安排电子邮件的发送时间，隐藏信息(比如按一个暂停键)，并且有很多其他有用的功能来缓解你的收件箱困境。
 

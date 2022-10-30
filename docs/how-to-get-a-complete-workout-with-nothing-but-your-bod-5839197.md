@@ -1,6 +1,6 @@
 # 如何只用你的身体来完成一次完整的锻炼
 
-> 原文:[https://life hacker . com/how-to-get-a complete-workout with but-your BOD-5839197](https://lifehacker.com/how-to-get-a-complete-workout-with-nothing-but-your-bod-5839197)
+> 原文：<https://lifehacker.com/how-to-get-a-complete-workout-with-nothing-but-your-bod-5839197>
 
 每个人都知道锻炼对我们的整体健康起着重要的作用，但是不管是缺乏动力，去健身房的需要，设备的成本，还是简单的诀窍，这些所谓的障碍经常阻碍我们。现实中，你需要的只是你自己。这里告诉你如何只用你的身体进行全身锻炼。
 

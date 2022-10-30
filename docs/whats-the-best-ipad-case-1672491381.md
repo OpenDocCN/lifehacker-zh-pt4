@@ -1,6 +1,6 @@
 # 最好的 iPad 保护套是什么？
 
-> 原文:[https://lifehacker.com/whats-the-best-ipad-case-1672491381](https://lifehacker.com/whats-the-best-ipad-case-1672491381)
+> 原文：<https://lifehacker.com/whats-the-best-ipad-case-1672491381>
 
 我们关注 iPad 保护套的时间并不长，但自那以后，又出现了一批新的 iPad，这意味着新的保护套可以取代旧的保护套。本周，我们想知道你认为哪些是最好的。
 

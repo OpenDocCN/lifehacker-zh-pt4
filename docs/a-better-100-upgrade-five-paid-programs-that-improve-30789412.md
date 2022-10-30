@@ -1,6 +1,6 @@
 # 一个更好的 100 美元升级:五个付费程序，改进 Windows Now
 
-> 原文:[https://life hacker . com/a-better-100-upgrade-five-payed-programs-that-improve-30789412](https://lifehacker.com/a-better-100-upgrade-five-paid-programs-that-improve-30789412)
+> 原文：<https://lifehacker.com/a-better-100-upgrade-five-paid-programs-that-improve-30789412>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-02w_FKY5fY8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-02w_FKY5fY8&start=0) 
 

@@ -1,6 +1,6 @@
 # 最佳动作相机:2014 春季版
 
-> 原文:[https://gizmodo . com/the-best-action-camera-spring-2014-edition-1547049331](https://gizmodo.com/the-best-action-camera-spring-2014-edition-1547049331)
+> 原文：<https://gizmodo.com/the-best-action-camera-spring-2014-edition-1547049331>
 
 如今，你不能只做一些危险和疯狂的事情，而不为后代拍摄下来。虽然动作相机让我们一遍又一遍地缓解这些生活亮点，但它们并不都是平等的。我们决定亲自看看哪一个能最好地处理你的极限冒险。
 

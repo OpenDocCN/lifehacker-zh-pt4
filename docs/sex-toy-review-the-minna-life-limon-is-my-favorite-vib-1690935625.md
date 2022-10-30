@@ -1,6 +1,6 @@
 # 性玩具评论:明娜生活利蒙是我最喜欢的振动器
 
-> 原文:[https://life hacker . com/sex-toy-review-the-minna-life-limon-is-my-favorite-vib-1690935625](https://lifehacker.com/sex-toy-review-the-minna-life-limon-is-my-favorite-vib-1690935625)
+> 原文：<https://lifehacker.com/sex-toy-review-the-minna-life-limon-is-my-favorite-vib-1690935625>
 
  [https://lifehacker.com/embed/inset/iframe?id=vimeo-80025081](https://lifehacker.com/embed/inset/iframe?id=vimeo-80025081) 
 

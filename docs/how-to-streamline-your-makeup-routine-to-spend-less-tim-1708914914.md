@@ -1,6 +1,6 @@
 # 如何简化你的化妆程序，减少准备时间
 
-> 原文:[https://life hacker . com/how-to-streamlined your-costing-routine-to-spend less Tim-1708914914](https://lifehacker.com/how-to-streamline-your-makeup-routine-to-spend-less-tim-1708914914)
+> 原文：<https://lifehacker.com/how-to-streamline-your-makeup-routine-to-spend-less-tim-1708914914>
 
 我欣赏化妆能做的事情，但是我的早晨时间不是无限的。无论如何，我不想在化妆品上花费太多的时间和精力。不过，我喜欢我的睫毛卷曲的样子，我的眼睛看起来有阴影。这里有一些小贴士，可以用最少的时间、精力和产品让你的日常化妆发挥最大功效。
 

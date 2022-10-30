@@ -1,6 +1,6 @@
 # 当你是个体户时，如何掌控买房过程
 
-> 原文:[https://life hacker . com/how-to-navigate-the-home-buying-process-when-you-re-sel-1704362242](https://lifehacker.com/how-to-navigate-the-home-buying-process-when-you-re-sel-1704362242)
+> 原文：<https://lifehacker.com/how-to-navigate-the-home-buying-process-when-you-re-sel-1704362242>
 
 买房对任何人来说都是令人望而生畏的，但如果你是个体经营者，那就更糟糕了。当人们为自己工作时，他们很难获得抵押贷款，因为证明你有稳定的收入并不容易。这需要很多文书工作:税单、信件、执照。让这一切变得更容易的关键是提前计划。你应该这么做。
 

@@ -1,6 +1,6 @@
 # 如何避免在竞技游戏中成为输不起的人
 
-> 原文:[https://life hacker . com/how-to-avoid-be-a-sorb-loser-games-1711492385](https://lifehacker.com/how-to-avoid-being-a-sore-loser-at-competitive-games-1711492385)
+> 原文：<https://lifehacker.com/how-to-avoid-being-a-sore-loser-at-competitive-games-1711492385>
 
 没有人喜欢输不起的人。仅仅因为你输了一局棋，一个电子游戏，甚至一局马，并不意味着你要拿别人出气。这里有一些当事情不顺心时保持冷静的小贴士。
 

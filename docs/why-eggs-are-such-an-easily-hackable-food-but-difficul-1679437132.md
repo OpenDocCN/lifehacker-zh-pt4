@@ -1,6 +1,6 @@
 # 为什么鸡蛋是如此容易破解的食物(但却很难做对)
 
-> 原文:[https://life hacker . com/why-eggs-are-so-a-easy-hacker-food-but-difficult-1679437132](https://lifehacker.com/why-eggs-are-such-an-easily-hackable-food-but-difficul-1679437132)
+> 原文：<https://lifehacker.com/why-eggs-are-such-an-easily-hackable-food-but-difficul-1679437132>
 
 鸡蛋太棒了。它们可以用几十种方法准备，用于数百种菜肴中，虽然它们看似简单，但却出奇地难做对。我们和几位厨师坐在一起，探讨是什么让鸡蛋如此多样却如此难做，以及如何在家里玩鸡蛋游戏。
 

@@ -1,6 +1,6 @@
 # 如何为你的遗愿清单融资
 
-> 原文:[https://life hacker . com/how-to-finance-your-bucket-list-1542267712](https://lifehacker.com/how-to-finance-your-bucket-list-1542267712)
+> 原文：<https://lifehacker.com/how-to-finance-your-bucket-list-1542267712>
 
 如果任由我们的奇思妙想发展，我们大多数人都可以在死前想象出一系列令人印象深刻的冒险经历。在电影《遗愿清单》中，两个男人能够从他们生活的待办事项清单中检查出我们大多数人只能幻想的项目。那是因为杰克·尼克尔森的性格丰富，足以满足他和摩根·弗里曼的愿望。然而，奢侈的经历不一定要花很多钱。
 

@@ -1,6 +1,6 @@
 # 2013 年最受欢迎的特色台式机和主屏幕
 
-> 原文:[https://life hacker . com/2013 年最受欢迎的特色桌面和主屏幕-1476297720](https://lifehacker.com/most-popular-featured-desktops-and-home-screens-of-2013-1476297720)
+> 原文：<https://lifehacker.com/most-popular-featured-desktops-and-home-screens-of-2013-1476297720>
 
 每周，我们都会展示读者提交的定制桌面和主屏幕，展示出色的定制工具和 UI 调整。有时它们很有趣，有时它们很实用，有时两者兼而有之，但 2013 年对它们来说都是伟大的一年。以下是您发送给我们的最受欢迎的自定义内容。
 

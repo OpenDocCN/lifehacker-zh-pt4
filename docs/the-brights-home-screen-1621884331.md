@@ -1,6 +1,6 @@
 # 明亮的主屏幕
 
-> 原文:[https://lifehacker.com/the-brights-home-screen-1621884331](https://lifehacker.com/the-brights-home-screen-1621884331)
+> 原文：<https://lifehacker.com/the-brights-home-screen-1621884331>
 
 如果你合理利用手机空间，你可以只用一个主屏幕。这就是我的彩色屏幕用户 [双色调](http://mycolorscreen.com/duotoned/) 想要的，这种外观将你需要的一切都放在一个屏幕上
 

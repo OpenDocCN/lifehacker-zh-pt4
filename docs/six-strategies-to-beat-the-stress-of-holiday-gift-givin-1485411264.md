@@ -1,6 +1,6 @@
 # 战胜节日送礼压力的六大策略
 
-> 原文:[https://life hacker . com/six-strategies-to-beat-the-stress of-holiday-givin-1485411264](https://lifehacker.com/six-strategies-to-beat-the-stress-of-holiday-gift-givin-1485411264)
+> 原文：<https://lifehacker.com/six-strategies-to-beat-the-stress-of-holiday-gift-givin-1485411264>
 
 每年的这个时候，人们很容易陷入寻找“完美礼物”的困境妈妈会喜欢知更鸟蛋蓝色或淡黄色的羊绒围巾吗？还是她已经有太多围巾了？你的追求不仅仅是买东西；这是关于在不倾家荡产的情况下，对你给予每个人的东西感到满意。
 

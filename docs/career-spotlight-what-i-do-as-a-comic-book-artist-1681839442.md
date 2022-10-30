@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名漫画艺术家我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-comic-book-artist-1681839442](https://lifehacker.com/career-spotlight-what-i-do-as-a-comic-book-artist-1681839442)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-comic-book-artist-1681839442>
 
 今天许多受欢迎的电影开始于印刷的页面——不是小说，而是漫画书。有一个独特的吸引力，说明格式的能力，告诉大，复杂的故事，而不损害叙述的亲密性。捕捉这些瞬间需要一个熟练的插画师。每天面对空白的一页是什么感觉？
 

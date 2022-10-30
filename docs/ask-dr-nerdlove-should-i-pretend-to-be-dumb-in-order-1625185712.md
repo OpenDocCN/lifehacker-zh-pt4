@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:为了约会，我该装哑巴吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-should-I-casing-to-a-dumb-in-order-1625185712](https://kotaku.com/ask-dr-nerdlove-should-i-pretend-to-be-dumb-in-order-1625185712)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-should-i-pretend-to-be-dumb-in-order-1625185712>
 
 你好互联网！欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个从第八维度的无形虚空中向你飞来的约会建议专栏。
 

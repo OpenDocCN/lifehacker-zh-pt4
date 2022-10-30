@@ -1,6 +1,6 @@
 # 转行如何理财
 
-> 原文:[https://life hacker . com/planning-to-switch-careers-its-important-to-consider-h-1548705969](https://lifehacker.com/planning-to-switch-careers-its-important-to-consider-h-1548705969)
+> 原文：<https://lifehacker.com/planning-to-switch-careers-its-important-to-consider-h-1548705969>
 
 打算转行？重要的是要考虑你的转换会如何影响你的钱。财务计划将有助于你成功转型。遵循这个指南来管理你职业转换的财务。
 

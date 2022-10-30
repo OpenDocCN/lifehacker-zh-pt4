@@ -1,6 +1,6 @@
 # 应对金融危机压力的 10 个策略
 
-> 原文:[https://life hacker . com/10-strategies-for-handing-the-stress-of-a-financial-Cr-1717757173](https://lifehacker.com/10-strategies-for-handling-the-stress-of-a-financial-cr-1717757173)
+> 原文：<https://lifehacker.com/10-strategies-for-handling-the-stress-of-a-financial-cr-1717757173>
 
 当你意识到你需要在生活中做出重大改变的那一刻到来时，压力是难以置信的。通常，它是许多小压力累积到一个大临界点的高潮，然后突然一切都冲过来了，产生了一股担忧、恐惧和压力的浪潮。
 

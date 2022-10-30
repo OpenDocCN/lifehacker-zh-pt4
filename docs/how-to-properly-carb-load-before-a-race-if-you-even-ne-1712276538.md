@@ -1,6 +1,6 @@
 # 如何在比赛前正确摄入碳水化合物(如果你需要的话)
 
-> 原文:[https://life hacker . com/how-to-right-carb-load-before-if-you-even-ne-1712276538](https://lifehacker.com/how-to-properly-carb-load-before-a-race-if-you-even-ne-1712276538)
+> 原文：<https://lifehacker.com/how-to-properly-carb-load-before-a-race-if-you-even-ne-1712276538>
 
 啊，赛前意大利面晚餐。这不仅仅是一个和其他运动员建立联系的机会，也是最后一个将意大利面视为健康食品的借口。不是每个人都需要摄入碳水化合物，但是如果你是受益者之一，是时候学习正确的方法了。
 

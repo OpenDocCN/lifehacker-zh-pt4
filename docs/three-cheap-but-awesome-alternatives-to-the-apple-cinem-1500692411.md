@@ -1,6 +1,6 @@
 # 苹果影院显示器的三个便宜但很棒的替代品
 
-> 原文:[https://life hacker . com/three-price-but-awesome-alternatives-to-the-apple-cinem-1500692411](https://lifehacker.com/three-cheap-but-awesome-alternatives-to-the-apple-cinem-1500692411)
+> 原文：<https://lifehacker.com/three-cheap-but-awesome-alternatives-to-the-apple-cinem-1500692411>
 
 无论你是否是苹果的粉丝，你都必须承认，他们制造了一些最漂亮的显示器——见鬼，它甚至赢得了我们 hive five 的最佳电脑显示器[。它们也是最贵的，你真的不需要花那么多钱来获得高质量的屏幕。我们尝试了一些替代方案，可以在不掏空钱包的情况下为您提供所需的功能。](https://lifehacker.com/five-best-computer-monitors-5966781)
 

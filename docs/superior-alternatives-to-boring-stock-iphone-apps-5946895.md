@@ -1,6 +1,6 @@
 # 无聊的 iPhone 应用程序的高级替代品
 
-> 原文:[https://life hacker . com/superior-alternatives-to-boring-stock-iphone-apps-5946895](https://lifehacker.com/superior-alternatives-to-boring-stock-iphone-apps-5946895)
+> 原文：<https://lifehacker.com/superior-alternatives-to-boring-stock-iphone-apps-5946895>
 
 随着 iOS 的每一次迭代，苹果都会对其软件进行一些调整，但在很大程度上，自发布以来，默认的应用阵容一直保持不变。对我们中的大多数人来说，这些应用程序已经不再有用了。以下是取代它们的最佳应用。
 

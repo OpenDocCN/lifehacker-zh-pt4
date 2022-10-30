@@ -1,6 +1,6 @@
 # 用这些科幻壁纸飞向未来
 
-> 原文:[https://life hacker . com/blast-off-to-future with the-this-sci-fi-wallpapers-1531541180](https://lifehacker.com/blast-off-into-the-future-with-these-sci-fi-wallpapers-1531541180)
+> 原文：<https://lifehacker.com/blast-off-into-the-future-with-these-sci-fi-wallpapers-1531541180>
 
 无论未来是科技乌托邦还是反乌托邦噩梦，你都可以用这些壁纸在当下享受。
 

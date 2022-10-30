@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:2 月 6 日至 13 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-2 月 6 日至 13 日-1685702055](https://lifehacker.com/this-weeks-most-popular-posts-february-6th-to-13th-1685702055)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-february-6th-to-13th-1685702055>
 
 本周我们 [看了角色扮演游戏](https://lifehacker.com/the-surprising-benefits-of-role-playing-games-and-how-1684582789)[教自己编码](http://lifehacker.com/top-10-ways-to-teach-yourself-to-code-1684250889)[学了一些关于健身的杂凑真理](http://vitals.lifehacker.com/four-harsh-truths-that-will-make-you-a-healthier-person-1684899154)[提炼了我们的自我形象](http://lifehacker.com/four-phrases-we-all-say-but-should-remove-from-our-voc-1684047793) 。这里回顾一下。
 

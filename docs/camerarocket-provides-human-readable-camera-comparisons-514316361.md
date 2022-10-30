@@ -1,6 +1,6 @@
 # CameraRocket 提供了人类可读的相机比较
 
-> 原文:[https://life hacker . com/camera rocket-provides-human-readable-camera-comparisons-514316361](https://lifehacker.com/camerarocket-provides-human-readable-camera-comparisons-514316361)
+> 原文：<https://lifehacker.com/camerarocket-provides-human-readable-camera-comparisons-514316361>
 
 即使是专业摄影师也会发现相机购物有点让人不知所措。CameraRocket 通过方便的比较表简化了这一过程。
 

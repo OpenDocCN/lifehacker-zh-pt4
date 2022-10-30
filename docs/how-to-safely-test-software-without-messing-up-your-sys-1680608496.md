@@ -1,6 +1,6 @@
 # 如何在不搞乱系统的情况下安全地测试软件
 
-> 原文:[https://life hacker . com/how-to-safely-test-software-without-messing-up-your-sys-1680608496](https://lifehacker.com/how-to-safely-test-software-without-messing-up-your-sys-1680608496)
+> 原文：<https://lifehacker.com/how-to-safely-test-software-without-messing-up-your-sys-1680608496>
 
 互联网上充满了可爱的应用程序，但也充斥着可疑的软件。在你安装一些可怕的东西之前，给自己一个信息安全教育。当你尝试新程序时，这里有一些最好的工具来保护你自己。
 

@@ -1,6 +1,6 @@
 # 一个不讨价还价的汽车经销商真的会给我带来更好的交易吗？
 
-> 原文:[https://life hacker . com/will-a-no-challenge-deadline-really-get-me-better-1591450104](https://lifehacker.com/will-a-no-haggle-car-dealership-really-get-me-a-better-1591450104)
+> 原文：<https://lifehacker.com/will-a-no-haggle-car-dealership-really-get-me-a-better-1591450104>
 
 亲爱的 Lifehacker，
 我很快就要去买车了，虽然我喜欢新车的想法，但我并不担心必须处理购买过程。我想过去一个不讲价的经销商，但是他们真的会给我更好的价格吗，或者只是“你会支付我们想要的和喜欢的东西吗？”我应该忍气吞声，通过谈判达成一笔好交易吗？

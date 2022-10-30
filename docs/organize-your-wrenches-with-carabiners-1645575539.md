@@ -1,6 +1,6 @@
 # 用登山扣整理你的扳手
 
-> 原文:[https://life hacker . com/organize-your-twist-with-carabines-1645575539](https://lifehacker.com/organize-your-wrenches-with-carabiners-1645575539)
+> 原文：<https://lifehacker.com/organize-your-wrenches-with-carabiners-1645575539>
 
 保持你的工具箱井井有条是很困难的，尤其是当你的抽屉里有松动的扳手发出嘎嘎声的时候。抓住几个登山扣，控制你的工具。
 

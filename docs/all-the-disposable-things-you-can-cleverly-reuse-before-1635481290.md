@@ -1,6 +1,6 @@
 # 所有你可以在扔掉之前巧妙重复使用的一次性物品
 
-> 原文:[https://life hacker . com/all-the-disposable-things-you-can-reuse-before-1635481290](https://lifehacker.com/all-the-disposable-things-you-can-cleverly-reuse-before-1635481290)
+> 原文：<https://lifehacker.com/all-the-disposable-things-you-can-cleverly-reuse-before-1635481290>
 
 让我们玩一个游戏。我们将列出通常被扔进垃圾桶或回收的日常家居用品，看看我们能想出多少巧妙的再利用方法。
 

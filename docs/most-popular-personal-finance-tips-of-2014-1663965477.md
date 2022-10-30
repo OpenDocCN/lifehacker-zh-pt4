@@ -1,6 +1,6 @@
 # 2014 年最受欢迎的个人理财建议
 
-> 原文:[https://life hacker . com/most-popular-personal-finance-tips-of-2014-1663965477](https://lifehacker.com/most-popular-personal-finance-tips-of-2014-1663965477)
+> 原文：<https://lifehacker.com/most-popular-personal-finance-tips-of-2014-1663965477>
 
 钱:你需要，你没有。如果你有，你需要更多。或者也许那是 [别的什么](https://www.youtube.com/watch?v=Af1OxkFOK18) 。无论如何，每个人都需要帮助来管理、储蓄和投资他们的钱。以下是今年我们得到的让你的财务状况井然有序的最佳建议。
 

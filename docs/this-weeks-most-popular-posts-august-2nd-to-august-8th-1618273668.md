@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:8 月 2 日至 8 月 8 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-August-2-to-August-8-8-1618273668](https://lifehacker.com/this-weeks-most-popular-posts-august-2nd-to-august-8th-1618273668)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-august-2nd-to-august-8th-1618273668>
 
 本周我们学习了我们拖延的许多方式[，看了一些很棒的超极本](https://lifehacker.com/use-this-flowchart-to-identify-what-type-of-procrastina-1615614759)[得到了空乘人员的青睐](http://lifehacker.com/get-on-a-flight-attendant-s-good-side-by-giving-them-a-1614157054) ，还学习了随着年龄的增长我们的睡眠如何变化。这里回顾一下。
 

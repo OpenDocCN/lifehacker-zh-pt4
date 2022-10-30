@@ -1,6 +1,6 @@
 # 摩托罗拉摩托 G:180 美元(合同外！)的安卓 KitKat 善良
 
-> 原文:[https://gizmodo . com/Motorola-moto-g-180-of-Android-goodness-1463640823](https://gizmodo.com/motorola-moto-g-180-of-android-goodness-1463640823)
+> 原文：<https://gizmodo.com/motorola-moto-g-180-of-android-goodness-1463640823>
 
 对于所有超级强大的旗舰 Android 手机来说，该操作系统之所以受欢迎，是因为它传统上是昂贵的苹果 iPhone 的廉价替代品 。考虑到这一点，这里有一款摩托罗拉 Moto G，这是一款坚固的 Android 手机，合同外售价仅为 180 美元。
 

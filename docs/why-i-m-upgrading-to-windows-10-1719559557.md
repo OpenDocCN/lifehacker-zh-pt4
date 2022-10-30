@@ -1,6 +1,6 @@
 # 为什么我要升级到 Windows 10
 
-> 原文:[https://gizmodo . com/why-I-m-upgrading-to-windows-10-1719559557](https://gizmodo.com/why-i-m-upgrading-to-windows-10-1719559557)
+> 原文：<https://gizmodo.com/why-i-m-upgrading-to-windows-10-1719559557>
 
 一周后，Windows 10 将会到来。我不会等的。从今天开始，我要孤注一掷。
 

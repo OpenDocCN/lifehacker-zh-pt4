@@ -1,6 +1,6 @@
 # 五个最佳书籍推荐服务
 
-> 原文:[https://life hacker . com/five-best-book-recommendation-services-1577706074](https://lifehacker.com/five-best-book-recommendation-services-1577706074)
+> 原文：<https://lifehacker.com/five-best-book-recommendation-services-1577706074>
 
 如果你正在寻找新的有趣的读物，你有很多地方可以去。本周，我们将根据你的提名，来看看五个最好的书籍推荐网站、服务或团体。
 

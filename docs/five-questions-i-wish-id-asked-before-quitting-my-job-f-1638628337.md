@@ -1,6 +1,6 @@
 # 我希望在辞职创业之前问的五个问题
 
-> 原文:[https://life hacker . com/five-questions-I-wish-id-asked-before-without-my-job-f-1638628337](https://lifehacker.com/five-questions-i-wish-id-asked-before-quitting-my-job-f-1638628337)
+> 原文：<https://lifehacker.com/five-questions-i-wish-id-asked-before-quitting-my-job-f-1638628337>
 
 我稳定的公司工作在理论上很棒——报酬很高，还能让我周游世界，但它也极其繁重和受限制。我不想成为那个系统中的一个齿轮。我想经营自己的企业，但我从未预料到随之而来的挑战。
 

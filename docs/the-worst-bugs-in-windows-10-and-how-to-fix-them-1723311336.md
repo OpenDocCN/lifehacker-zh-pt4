@@ -1,6 +1,6 @@
 # Windows 10 最严重的 bug 以及如何修复
 
-> 原文:[https://gizmodo . com/the-worst-bugs-in-windows-10-and-how-to-fix-them-1723311336](https://gizmodo.com/the-worst-bugs-in-windows-10-and-how-to-fix-them-1723311336)
+> 原文：<https://gizmodo.com/the-worst-bugs-in-windows-10-and-how-to-fix-them-1723311336>
 
 如果你一头扎进 Windows 10 的深水区，你可能不会有流畅无缝的体验。如今，每一款软件似乎都是在制品，微软最新的操作系统也不例外。
 

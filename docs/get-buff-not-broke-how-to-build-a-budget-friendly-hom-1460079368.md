@@ -1,6 +1,6 @@
 # 变得强壮，而不是破产:如何建立一个预算友好的家庭健身房
 
-> 原文:[https://life hacker . com/get-buff-not-broke-how-to-build-a-budget-friendly-hom-1460079368](https://lifehacker.com/get-buff-not-broke-how-to-build-a-budget-friendly-hom-1460079368)
+> 原文：<https://lifehacker.com/get-buff-not-broke-how-to-build-a-budget-friendly-hom-1460079368>
 
 我以前身材很好。真的。两百个俯卧撑，二十个引体向上的那种形状。我会冲过 50 公里长的滑雪道。当然，那是当时的情况。
 

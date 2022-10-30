@@ -1,6 +1,6 @@
 # 可能影响睡眠的八个常见睡眠误区
 
-> 原文:[https://life hacker . com/八个影响睡眠的常见睡眠误区-1632487393](https://lifehacker.com/eight-common-sleep-myths-that-can-affect-your-slumber-1632487393)
+> 原文：<https://lifehacker.com/eight-common-sleep-myths-that-can-affect-your-slumber-1632487393>
 
 你可能知道你不会真的每年在睡觉的时候吃掉八只蜘蛛，但是你知道有几个其他的睡眠谬误正在影响你的睡眠吗？
 

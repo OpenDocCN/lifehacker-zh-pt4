@@ -1,6 +1,6 @@
 # 五款最佳预算高清电视
 
-> 原文:[https://lifehacker.com/five-best-budget-hdtvs-1725738451](https://lifehacker.com/five-best-budget-hdtvs-1725738451)
+> 原文：<https://lifehacker.com/five-best-budget-hdtvs-1725738451>
 
 一台好的高清电视不一定要倾家荡产。当然，你可以花上几千美元买一个面板，但 500 美元可以让你得到一个相当大的面板，具有出色的图像质量，坚固的功能，以及所有你需要的连接选项，同时还很薄，很整洁。基于你的提名，本周我们来看看五个最好的预算方案。
 

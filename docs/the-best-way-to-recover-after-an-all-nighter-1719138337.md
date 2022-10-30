@@ -1,6 +1,6 @@
 # 通宵后恢复的最好方法
 
-> 原文:[https://life hacker . com/the-best-way to-recover-after-a all-night-1719138337](https://lifehacker.com/the-best-way-to-recover-after-an-all-nighter-1719138337)
+> 原文：<https://lifehacker.com/the-best-way-to-recover-after-an-all-nighter-1719138337>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-piUgbJqgtIw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-piUgbJqgtIw&start=0) 
 

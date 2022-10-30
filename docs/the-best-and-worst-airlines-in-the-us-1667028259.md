@@ -1,6 +1,6 @@
 # 美国最好(和最差)的航空公司
 
-> 原文:[https://life hacker . com/the-best and-worst-the-airlines-in-the-us-1667028259](https://lifehacker.com/the-best-and-worst-airlines-in-the-us-1667028259)
+> 原文：<https://lifehacker.com/the-best-and-worst-airlines-in-the-us-1667028259>
 
 有了镍和明帝，拥挤的座位，以及常常很差的客户服务，难怪旅行者对航空业普遍不满意。不过，这也不全是碰运气。我们看了一下美国的航空公司，看看哪些最有可能(也最不可能)给你一个更好的、没有麻烦的旅行。
 

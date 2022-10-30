@@ -1,6 +1,6 @@
 # 赢得辩论的权威指南
 
-> 原文:[https://life hacker . com/the-definitive-guide-to-winning-a-argument-1693076653](https://lifehacker.com/the-definitive-guide-to-winning-an-argument-1693076653)
+> 原文：<https://lifehacker.com/the-definitive-guide-to-winning-an-argument-1693076653>
 
 胜利并不代表一切，但肯定是美好的。当你和某人意见不一致时，这里有一些赢得争论的最佳技巧。
 

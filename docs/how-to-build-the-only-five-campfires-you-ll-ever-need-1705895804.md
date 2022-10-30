@@ -1,6 +1,6 @@
 # 如何建立你唯一需要的五个营火
 
-> 原文:[https://gizmodo . com/how-to-build-the-only-five-campfires-you-ll-ever-need-1705895804](https://gizmodo.com/how-to-build-the-only-five-campfires-you-ll-ever-need-1705895804)
+> 原文：<https://gizmodo.com/how-to-build-the-only-five-campfires-you-ll-ever-need-1705895804>
 
 最基本的户外技能也是最容易被误解的技能之一。学习这五个营火，你将能够烹饪食物，吓跑野生动物，保持温暖或只是在海滩上点一堆篝火。它们很简单，但每个人都可能在这里学到一些东西。
 

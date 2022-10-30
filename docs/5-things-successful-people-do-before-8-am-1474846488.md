@@ -1,6 +1,6 @@
 # 成功人士在早上 8 点前做的 5 件事
 
-> 原文:[https://life hacker . com/5-things-successful-people-do-before-8-am-1474846488](https://lifehacker.com/5-things-successful-people-do-before-8-am-1474846488)
+> 原文：<https://lifehacker.com/5-things-successful-people-do-before-8-am-1474846488>
 
 太阳升起来了！晨间时光刚刚成为你新的最好的朋友。不管你喜不喜欢，利用早晨上班前的时间可能是成功和健康生活方式的关键。没错，早起是许多首席执行官、政府官员和其他有影响力的人的共同特征。
 

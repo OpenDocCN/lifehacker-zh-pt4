@@ -1,6 +1,6 @@
 # 在出售您的设备之前，您需要取消认证的应用程序
 
-> 原文:[https://life hacker . com/the-apps-you-need-de-authenticate-before-selling-your-1629748753](https://lifehacker.com/the-apps-you-need-to-deauthenticate-before-selling-your-1629748753)
+> 原文：<https://lifehacker.com/the-apps-you-need-to-deauthenticate-before-selling-your-1629748753>
 
 出售一台电脑、智能手机或平板电脑应该像删除所有个人数据并将其交给买家一样简单，但有时你可能会忘记一些隐藏的身份认证信息。从 iTunes 到 Kindle 应用程序，这里有你在出售你的设备之前需要取消认证的一切。
 

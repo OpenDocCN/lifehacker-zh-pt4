@@ -1,6 +1,6 @@
 # 最简单、免费的普通照片编辑工具(非 Photoshop)
 
-> 原文:[https://life hacker . com/the-simplest-free-tools-for-common-photo-edits-a-1691890926](https://lifehacker.com/the-simplest-free-tools-for-common-photo-edits-that-a-1691890926)
+> 原文：<https://lifehacker.com/the-simplest-free-tools-for-common-photo-edits-that-a-1691890926>
 
 打开 Photoshop 或 GIMP 只是为了裁剪图像是愚蠢的。那些强大的工具很棒，但有时你只需要一个简单的程序。以下是如何使用简单、免费的在线工具进行一些最常见的编辑。
 

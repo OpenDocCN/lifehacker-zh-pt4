@@ -1,6 +1,6 @@
 # 清洁每一个可能的感恩节污渍(如血迹)的指南
 
-> 原文:[https://deadspin . com/a-guide-for-cleaning-every-possible-thanksgiving-stain-1472091856](https://deadspin.com/a-guide-for-cleaning-every-possible-thanksgiving-stain-1472091856)
+> 原文：<https://deadspin.com/a-guide-for-cleaning-every-possible-thanksgiving-stain-1472091856>
 
 [*朱莉可儿*](https://twitter.com/joliekerr) *是一位清洁专家和建议专栏作家。她每隔一周就会来这里帮助回答你最肮脏的问题。你脏吗？* [*电子邮件*](mailto:joliekerr@gmail.com) *。*
 

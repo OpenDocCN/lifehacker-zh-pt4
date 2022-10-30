@@ -1,6 +1,6 @@
 # 这是你最容易混淆的警示灯指南
 
-> 原文:[https://jalopnik . com/heres-your-handy-chart-to-the-most-following-warning-Li-1709782677](https://jalopnik.com/heres-your-handy-chart-to-the-most-confusing-warning-li-1709782677)
+> 原文：<https://jalopnik.com/heres-your-handy-chart-to-the-most-confusing-warning-li-1709782677>
 
 所谓的“白痴灯”在汽车中已经存在了很长时间——基本上，从那时起，有人意识到，当一切都变得糟糕时，只需要一个小灯泡亮着，而不是有一个可以警告即将发生的糟糕事情的仪表，这样会更便宜。现代汽车比以往任何时候都多，许多有令人困惑的符号。这是 20 个最令人困惑的问题的图表。
 

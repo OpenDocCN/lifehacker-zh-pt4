@@ -1,6 +1,6 @@
 # 你可能没用过的最好的 Spotify 技巧和窍门
 
-> 原文:[https://life hacker . com/the-best-Spotify-tips-and-tricks-you-re-possible-not-us-1594729019](https://lifehacker.com/the-best-spotify-tips-and-tricks-you-re-probably-not-us-1594729019)
+> 原文：<https://lifehacker.com/the-best-spotify-tips-and-tricks-you-re-probably-not-us-1594729019>
 
 Spotify 是最受欢迎的音乐流媒体服务之一，但我们大多数人都没有充分利用它的潜力。这些鲜为人知的小技巧可以帮助你更有效地使用 Spotify，让你成为数字音乐大师。
 

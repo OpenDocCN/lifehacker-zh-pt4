@@ -1,6 +1,6 @@
 # 如何选择一个合法的信用顾问
 
-> 原文:[https://life hacker . com/how-to-pick-a-legal-credit-consultant-1640153349](https://lifehacker.com/how-to-pick-a-legitimate-credit-counselor-1640153349)
+> 原文：<https://lifehacker.com/how-to-pick-a-legitimate-credit-counselor-1640153349>
 
 你对自己的债务状况感到不知所措吗？有很多组织帮助那些不知道如何处理他们的信用，对从哪里开始偿还债务感到困惑，或者不知道他们需要采取什么步骤来获得财务安全的人。
 

@@ -1,6 +1,6 @@
 # 为什么顶尖高手会在压力下失败(以及如何避免窒息)
 
-> 原文:[https://life hacker . com/why-top-performers-fail-pressure-and-how-not-to 1636824445](https://lifehacker.com/why-top-performers-fail-under-pressure-and-how-not-to-1636824445)
+> 原文：<https://lifehacker.com/why-top-performers-fail-under-pressure-and-how-not-to-1636824445>
 
 你以前见过这种情况——也许你自己也体验过这种反胃、大脑高速运转的感觉。无论是错过篮球场上轻松罚球的职业选手，还是在会议室里紧张地做重要演示的人，即使是表现最好的人也会在压力下窒息。
 

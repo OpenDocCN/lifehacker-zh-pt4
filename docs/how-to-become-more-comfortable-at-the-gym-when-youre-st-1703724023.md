@@ -1,6 +1,6 @@
 # 当你开始健身时，如何在健身房变得更舒服
 
-> 原文:[https://life hacker . com/how-to-be-more-comfort-in-the-gym-you-ST-1703724023](https://lifehacker.com/how-to-become-more-comfortable-at-the-gym-when-youre-st-1703724023)
+> 原文：<https://lifehacker.com/how-to-become-more-comfortable-at-the-gym-when-youre-st-1703724023>
 
 当你刚开始的时候，健身房是一个令人生畏的地方。你不仅会对自己是否“做对了事情”感到难为情，还会觉得有一双眼睛在不停地看着你。以下是如何让你在健身时更有宾至如归的感觉。
 

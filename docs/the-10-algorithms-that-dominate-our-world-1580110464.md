@@ -1,6 +1,6 @@
 # 主宰我们世界的 10 种算法
 
-> 原文:[https://gizmodo . com/the-10-algorithms-the-dominate-our-world-1580110464](https://gizmodo.com/the-10-algorithms-that-dominate-our-world-1580110464)
+> 原文：<https://gizmodo.com/the-10-algorithms-that-dominate-our-world-1580110464>
 
 算法在我们今天生活中的重要性怎么强调都不为过。从金融机构到约会网站，它们几乎无处不在。但是一些算法比其他算法更能塑造和控制我们的世界——这十个是最重要的。
 

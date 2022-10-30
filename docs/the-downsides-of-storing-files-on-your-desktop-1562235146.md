@@ -1,6 +1,6 @@
 # 在桌面上存储文件的缺点
 
-> 原文:[https://life hacker . com/the-down sides-of-storing-files-on-your-desktop-1562235146](https://lifehacker.com/the-downsides-of-storing-files-on-your-desktop-1562235146)
+> 原文：<https://lifehacker.com/the-downsides-of-storing-files-on-your-desktop-1562235146>
 
 你的桌面是存储一些文件的一个方便的地方，但它并不总是最好的。PC World 解释了原因。
 

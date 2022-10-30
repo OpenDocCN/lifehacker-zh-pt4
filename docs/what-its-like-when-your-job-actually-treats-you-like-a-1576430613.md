@@ -1,6 +1,6 @@
 # 当你的工作真的像对待成年人一样对待你时是什么感觉
 
-> 原文:[https://Jezebel . com/what-its-like-what-its-like-when-you-job-actually-treat-you-like-a-1576430613](https://jezebel.com/what-its-like-when-your-job-actually-treats-you-like-a-1576430613)
+> 原文：<https://jezebel.com/what-its-like-when-your-job-actually-treats-you-like-a-1576430613>
 
 我在快餐店工作过，做过服务员，烤面包，在公司文案编辑部门苦干，在一家周刊工作过，也做过自由职业者，有一次我在一家黄松餐馆工作了三天。回想起来，这些工作中只有两个提供了成人般的工作环境:拿出成果，我们不会打扰你。
 

@@ -1,6 +1,6 @@
 # 不，你不必成为百万富翁，也不必付现金买新车
 
-> 原文:[https://jalopnik . com/no-you-don ' t-to-be-a-b-1724244052](https://jalopnik.com/no-you-dont-have-to-be-a-millionaire-and-pay-cash-to-b-1724244052)
+> 原文：<https://jalopnik.com/no-you-dont-have-to-be-a-millionaire-and-pay-cash-to-b-1724244052>
 
 对许多人来说，戴夫·拉姆齐是一位金融大师。他的建议帮助数百万人摆脱了沉重的债务。这对那些艰难度日的人来说是件好事。不幸的是，拉姆齐先生，像他的许多财务顾问同事一样，对让你买一辆新车有点过于紧张。
 

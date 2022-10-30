@@ -1,6 +1,6 @@
 # 如何在您的网络上找到可用的智能手机
 
-> 原文:[https://life hacker . com/how-to-find-a-smart phone-work-on-your-network-1479382408](https://lifehacker.com/how-to-find-a-smartphone-that-works-on-your-network-1479382408)
+> 原文：<https://lifehacker.com/how-to-find-a-smartphone-that-works-on-your-network-1479382408>
 
 非合约手机很棒，尤其是如果你想在合约上省点钱，或者预付。幸运的是，知道哪些设备与您的网络兼容比您想象的要简单。
 

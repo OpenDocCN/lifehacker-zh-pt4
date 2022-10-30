@@ -1,6 +1,6 @@
 # 工具学校:拆卸和 DIY 准备往复锯
 
-> 原文:[https://life hacker . com/tool-school-the-disrupt-and-DIY-ready-recipit in-1669345425](https://lifehacker.com/tool-school-the-demolition-and-diy-ready-reciprocatin-1669345425)
+> 原文：<https://lifehacker.com/tool-school-the-demolition-and-diy-ready-reciprocatin-1669345425>
 
 往复锯(更好地称为往复锯或锯)是大多数建筑和改造工地的常见景象，但它在房主的电动工具库中也有一席之地。
 

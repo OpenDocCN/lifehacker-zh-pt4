@@ -1,6 +1,6 @@
 # 纯文本文件的十个聪明用法可以提高你的工作效率
 
-> 原文:[https://life hacker . com/ten-clever-uses-for-plain-text-files-than-can-increase-1662774267](https://lifehacker.com/ten-clever-uses-for-plain-text-files-that-can-increase-1662774267)
+> 原文：<https://lifehacker.com/ten-clever-uses-for-plain-text-files-that-can-increase-1662774267>
 
 当谈到跟踪你所有的文本和待办事项时，有很多应用程序可供选择，但有时使用纯文本文件的方便和简单实际上可能更有成效。这里有 10 个聪明的纯文本文件，你可能想把它们放在手边。
 

@@ -1,6 +1,6 @@
 # 榨汁对健康有真正的好处吗？
 
-> 原文:[https://life hacker . com/do-juicing-has-any-real-health-benefits-1542055799](https://lifehacker.com/does-juicing-have-any-real-health-benefits-1542055799)
+> 原文：<https://lifehacker.com/does-juicing-have-any-real-health-benefits-1542055799>
 
 我通常不喜欢卷入宗教辩论，但我发现目前的绿色果汁狂潮太有趣了，以至于无法抗拒投入自己的 0.02 美元。你必须住在一个没有无线网络的山洞里，才不会注意到社区的人，他们相信榨汁是地球上一切有益健康的灵丹妙药。
 

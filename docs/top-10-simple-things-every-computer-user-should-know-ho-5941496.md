@@ -1,6 +1,6 @@
 # 每个电脑用户都应该知道的 10 件简单的事情
 
-> 原文:[https://life hacker . com/top-10-simple-things-every-computer-user-should-know-ho-5941496](https://lifehacker.com/top-10-simple-things-every-computer-user-should-know-ho-5941496)
+> 原文：<https://lifehacker.com/top-10-simple-things-every-computer-user-should-know-ho-5941496>
 
 无论你有多精通技术，我们每个人在使用电脑时都必须处理某些事情——而且我们并不总是以最有效的方式处理它们。这里有 10 件事，每个人都可以(也应该)学会，让他们的电脑快速、安全、易用。
 

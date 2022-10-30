@@ -1,6 +1,6 @@
 # OS X 所有的新东西 10.10“约塞米蒂”
 
-> 原文:[https://life hacker . com/all-the-new-stuff-in-OS-x-10-10-Yosemite-1584870045](https://lifehacker.com/all-the-new-stuff-in-os-x-10-10-yosemite-1584870045)
+> 原文：<https://lifehacker.com/all-the-new-stuff-in-os-x-10-10-yosemite-1584870045>
 
 苹果公司在今天的全球开发者大会上揭开了 OS X 的面纱，被称为“约塞米蒂”它将采用一个新的界面，具有 iOS 7 的“平面”设计和配色方案的元素，新的界面，iCloud 和 Mail 的更新，同步 iOS 和 OS X 设备的功能，等等。
 

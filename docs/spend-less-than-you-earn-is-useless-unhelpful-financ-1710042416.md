@@ -1,6 +1,6 @@
 # “花得比赚得少”是无用的、无益的理财建议
 
-> 原文:[https://life hacker . com/spend-less-than-you-earn-is-used-unhelp-financ-1710042416](https://lifehacker.com/spend-less-than-you-earn-is-useless-unhelpful-financ-1710042416)
+> 原文：<https://lifehacker.com/spend-less-than-you-earn-is-useless-unhelpful-financ-1710042416>
 
 如果你读过关于个人理财的五个词，它们可能是“花的比赚的少”因为简单所以受欢迎。其实太简单了。这是由许多复杂部分组成的大拼图中最小的一块。该是我们教这些的时候了。
 

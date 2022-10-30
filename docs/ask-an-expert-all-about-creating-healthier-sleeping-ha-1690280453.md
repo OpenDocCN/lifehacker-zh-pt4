@@ -1,6 +1,6 @@
 # 问专家:所有关于创造更健康的睡眠习惯
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-creating-healthy-sleeping-ha-1690280453](https://lifehacker.com/ask-an-expert-all-about-creating-healthier-sleeping-ha-1690280453)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-creating-healthier-sleeping-ha-1690280453>
 
 当你睡眠有问题时，很少有即时的解决办法，如果你是一个浅睡眠者，养成健康的睡眠习惯尤为重要。你如何在凌晨 2 点停止查看手机，并开始优先考虑睡眠？
 

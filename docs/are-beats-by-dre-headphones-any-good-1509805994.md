@@ -1,6 +1,6 @@
 # Beats By Dre 耳机有没有好的？
 
-> 原文:[https://life hacker . com/are-beats-by-dre-headphones-any-good-1509805994](https://lifehacker.com/are-beats-by-dre-headphones-any-good-1509805994)
+> 原文：<https://lifehacker.com/are-beats-by-dre-headphones-any-good-1509805994>
 
 亲爱的 Lifehacker，
 我想买一副新耳机，我一直在盯着 Dre Studios 的节拍。我喜欢我的音乐中有很多低音，但有些人告诉我它们很烂，而且价格过高。他们其实很恐怖，还是这些人只是势利的喜欢讨厌流行耳机的音响发烧友？我会注意到不同吗？

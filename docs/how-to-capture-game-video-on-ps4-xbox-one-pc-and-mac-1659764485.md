@@ -1,6 +1,6 @@
 # 如何在 PS4、Xbox One、PC 和 Mac 上捕捉视频游戏片段[更新]
 
-> 原文:[https://kotaku . com/how-to-capture-game-video-on-ps4-Xbox-one-PC-and-MAC-1659764485](https://kotaku.com/how-to-capture-game-video-on-ps4-xbox-one-pc-and-mac-1659764485)
+> 原文：<https://kotaku.com/how-to-capture-game-video-on-ps4-xbox-one-pc-and-mac-1659764485>
 
 有没有在游戏中做了一些令人惊讶的事情，并希望你可以与世界(或者至少是脸书)分享这个片段？嗯，由于有太多的内置工具和软件来记录游戏，这比以往任何时候都容易。继续阅读 Kotaku 的(主要是)权威指南，在你的游戏机、PC 甚至 Mac 上捕捉游戏视频！
 

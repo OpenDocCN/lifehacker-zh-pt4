@@ -1,6 +1,6 @@
 # 如何建立自己的豆袋投掷板，正好赶上 7 月 4 日
 
-> 原文:[https://life hacker . com/how-to-build-your-own-bean-bag-toss-boards-just-in-Tim-1715108223](https://lifehacker.com/how-to-build-your-own-bean-bag-toss-boards-just-in-tim-1715108223)
+> 原文：<https://lifehacker.com/how-to-build-your-own-bean-bag-toss-boards-just-in-tim-1715108223>
 
 扔豆子袋(又名“袋子”或“玉米洞”)是一种户外游戏，任何年龄和运动能力的人都可以玩。这些木板也可以运到公园、海滩或你朋友的后院。
 

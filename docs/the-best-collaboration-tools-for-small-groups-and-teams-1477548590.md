@@ -1,6 +1,6 @@
 # 小型团体和团队的最佳协作工具
 
-> 原文:[https://life hacker . com/the-best-collaboration-tools-for-small-groups-and-teams-1477548590](https://lifehacker.com/the-best-collaboration-tools-for-small-groups-and-teams-1477548590)
+> 原文：<https://lifehacker.com/the-best-collaboration-tools-for-small-groups-and-teams-1477548590>
 
 在 Lifehacker，我们经常谈论个人生产力工具，但有时你并不是唯一一个需要完成项目或工作才能成功的人。无论你是想组织一次家庭装修，组织一个少年棒球联盟队，计划一次家庭度假，还是让办公室里的每个人都致力于相同的项目和优先事项，都有很多很好的工具可以帮助你。
 

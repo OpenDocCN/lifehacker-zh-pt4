@@ -1,6 +1,6 @@
 # Moto 360 智能手表评论:最好的可能还不够
 
-> 原文:[https://gizmodo . com/moto-360-smart watch-review-you-are-the-choosed-one-1633200545](https://gizmodo.com/moto-360-smartwatch-review-you-were-the-chosen-one-1633200545)
+> 原文：<https://gizmodo.com/moto-360-smartwatch-review-you-were-the-chosen-one-1633200545>
 
 今年年初，当谷歌首次发布 Android Wear 时，它用 Moto 360 戏弄了我们。这是迄今为止我们见过的最好看的智能手表。许多个月后 [终于来了](http://gizmodo.com/moto-360-hands-on-the-one-weve-been-waiting-for-proba-1630875506) 。这是迄今为止最好的 Android Wear 设备，但随着苹果手表 的出现，这是否足够好已经不再明朗。
 

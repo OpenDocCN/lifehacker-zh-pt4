@@ -1,6 +1,6 @@
 # Koss BTS1 是一款价格实惠、便携、功能强大的蓝牙扬声器
 
-> 原文:[https://life hacker . com/the-koss-Bt S1-is-an-affordable-portable-powerful-blue-1655732886](https://lifehacker.com/the-koss-bts1-is-an-affordable-portable-powerful-blue-1655732886)
+> 原文：<https://lifehacker.com/the-koss-bts1-is-an-affordable-portable-powerful-blue-1655732886>
 
 市面上不缺便携蓝牙音箱，但真正好的屈指可数。我们已经 [强调了一些我们最喜欢的](https://lifehacker.com/five-best-bluetooth-speakers-1265389497) ，但我最近测试了新的 Koss BTS1 无线扬声器。虽然它并不完美，但它是我用过的最好的产品之一。原因如下。
 

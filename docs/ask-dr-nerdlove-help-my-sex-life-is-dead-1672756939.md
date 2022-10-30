@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:救命，我的性生活已经死了
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-help-my-sex-life-is-dead-1672756939](https://kotaku.com/ask-dr-nerdlove-help-my-sex-life-is-dead-1672756939)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-help-my-sex-life-is-dead-1672756939>
 
 你好，互联网！欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是由 2814 区最新指定绿灯侠经营的一个约会建议专栏。
 

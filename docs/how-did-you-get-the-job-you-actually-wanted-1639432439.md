@@ -1,6 +1,6 @@
 # 你是如何得到你真正想要的工作的？
 
-> 原文:[https://life hacker . com/how-do-you-get-the-job-you-actually-wanted-1639432439](https://lifehacker.com/how-did-you-get-the-job-you-actually-wanted-1639432439)
+> 原文：<https://lifehacker.com/how-did-you-get-the-job-you-actually-wanted-1639432439>
 
 每个人都得找份工作。很少有人能找到他们真正想要的工作。每个行业都有不同的职业道路，建议也不是放之四海而皆准的。那么，对于那些有你喜欢的工作的人，你是怎么做到的呢？
 

@@ -1,6 +1,6 @@
 # 根据科学，从分手中恢复的最好方法
 
-> 原文:[https://gizmodo . com/the-best-way-to-1684775462](https://gizmodo.com/the-best-way-to-recover-from-a-break-up-according-to-1684775462)
+> 原文：<https://gizmodo.com/the-best-way-to-recover-from-a-break-up-according-to-1684775462>
 
 分手会感觉像是世界末日。几乎每个人都会在他们浪漫生活的某个时刻经历这些不和谐的转变，经历难以忍受的失落、困惑和绝望。幸运的是，越来越多的基于证据的策略可以帮助你应对。我们与专家交谈以了解更多信息。
 

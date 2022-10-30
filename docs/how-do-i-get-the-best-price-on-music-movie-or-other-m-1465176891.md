@@ -1,6 +1,6 @@
 # 我如何获得音乐、电影或其他媒体下载的最优惠价格？
 
-> 原文:[https://life hacker . com/how-do-I-get-the-best-price-on-music-movie-or-other-m-1465176891](https://lifehacker.com/how-do-i-get-the-best-price-on-music-movie-or-other-m-1465176891)
+> 原文：<https://lifehacker.com/how-do-i-get-the-best-price-on-music-movie-or-other-m-1465176891>
 
 亲爱的 Lifehacker，
 我在网上购买所有的电影、音乐和其他媒体，但不同网站的价格相差很大。有什么方法可以查看所有音乐或电影网站的价格，以确保我得到最好的交易？

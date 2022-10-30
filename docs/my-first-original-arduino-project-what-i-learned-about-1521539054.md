@@ -1,6 +1,6 @@
 # 我的第一个 Arduino 原创项目:关于学习我学到了什么
 
-> 原文:[https://life hacker . com/my-first-original-arduino-project-what-I-learn-about-1521539054](https://lifehacker.com/my-first-original-arduino-project-what-i-learned-about-1521539054)
+> 原文：<https://lifehacker.com/my-first-original-arduino-project-what-i-learned-about-1521539054>
 
 如果你是 DIY 新手，像我一样刚刚进入 [Arduino](http://makezine.com/category/electronics/arduino/) 的 [项目建设，你可能会感到有点不知所措。你可能认为你学不会这些东西。我对微控制器、编程和设计的世界还比较陌生...但是我做到了，而且比我想象的要容易！以下是我学到的。](https://lifehacker.com/how-to-get-started-with-diy-electronics-projects-5975190)
 

@@ -1,6 +1,6 @@
 # 此列表详细列出了您可以安全禁用的所有 Windows 功能
 
-> 原文:[https://life hacker . com/this-list-details-all-the-windows-features-you-can-safe-1606731067](https://lifehacker.com/this-list-details-all-the-windows-features-you-can-safe-1606731067)
+> 原文：<https://lifehacker.com/this-list-details-all-the-windows-features-you-can-safe-1606731067>
 
 Windows 是一个迎合了 15 亿人的大操作系统。因此，有许多您可能不一定需要的内置组件。实际上有一个地方，如果你不需要 Windows 的许多组件，你可以在那里删除它们，以减轻计算机的负荷。
 

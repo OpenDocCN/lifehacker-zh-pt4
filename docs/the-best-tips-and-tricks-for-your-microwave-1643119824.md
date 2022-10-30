@@ -1,6 +1,6 @@
 # 微波炉的最佳技巧和窍门
 
-> 原文:[https://life hacker . com/the-best-tips-and-tricks-for-your-microwave-1643119824](https://lifehacker.com/the-best-tips-and-tricks-for-your-microwave-1643119824)
+> 原文：<https://lifehacker.com/the-best-tips-and-tricks-for-your-microwave-1643119824>
 
 你可能在全国几乎每个厨房都能找到微波炉，但并不是每个人都在最大限度地使用它。这些微波技巧和窍门将确保你把这些无线电波很好地利用起来。
 

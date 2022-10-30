@@ -1,6 +1,6 @@
 # 为你已经购买的东西提供最好的、意想不到的奖励计划
 
-> 原文:[https://life hacker . com/the-best-unexpected-rewards-programs-for-things-your-1657314235](https://lifehacker.com/the-best-unexpected-rewards-programs-for-things-youre-1657314235)
+> 原文：<https://lifehacker.com/the-best-unexpected-rewards-programs-for-things-youre-1657314235>
 
 许多零售商有某种形式的奖励或忠诚度计划，他们希望你注册。不过，并不是所有人都那么优秀。无论如何，这里有一些对你正在购物的商店来说最值得的项目。
 

@@ -1,6 +1,6 @@
 # 如何在发表令人恐惧的演讲前镇定你的神经
 
-> 原文:[https://life hacker . com/how-to-California-your neurs-before-make-a-terror-spee-1677504967](https://lifehacker.com/how-to-calm-your-nerves-before-making-a-terrifying-spee-1677504967)
+> 原文：<https://lifehacker.com/how-to-calm-your-nerves-before-making-a-terrifying-spee-1677504967>
 
 在其他人面前讲话——即使是一小群人——也会令人紧张。你感到焦虑，害怕自己会出丑。虽然蝴蝶可能永远不会完全消失，但你仍然可以做一些事情来帮助你在重要时刻到来之前理清思绪。
 

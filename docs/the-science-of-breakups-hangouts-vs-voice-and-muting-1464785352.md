@@ -1,6 +1,6 @@
 # 分手的科学，聚会与声音，以及让推特用户静音
 
-> 原文:[https://life hacker . com/the-science-of-breakups-hangouts-vs-voice-and-muting-1464785352](https://lifehacker.com/the-science-of-breakups-hangouts-vs-voice-and-muting-1464785352)
+> 原文：<https://lifehacker.com/the-science-of-breakups-hangouts-vs-voice-and-muting-1464785352>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-oFn88_EI0Js&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-oFn88_EI0Js&start=0) 
 

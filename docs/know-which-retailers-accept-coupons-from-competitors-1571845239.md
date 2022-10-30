@@ -1,6 +1,6 @@
 # 了解哪些零售商接受竞争对手的优惠券
 
-> 原文:[https://life hacker . com/know-which-retailers-accept-coupons-from-competitors-1571845239](https://lifehacker.com/know-which-retailers-accept-coupons-from-competitors-1571845239)
+> 原文：<https://lifehacker.com/know-which-retailers-accept-coupons-from-competitors-1571845239>
 
 优惠券可以帮你省很多钱，但是当你出去购物的时候，你可能没有合适的优惠券去合适的商店。令人惊讶的是，一些零售商接受竞争对手的优惠券。以下是一些常见的零售店，它们会让你用一些意想不到的优惠券省下一美元。
 

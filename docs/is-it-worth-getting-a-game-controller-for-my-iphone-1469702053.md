@@ -1,6 +1,6 @@
 # 为我的 iPhone 配一个游戏手柄值得吗？
 
-> 原文:[https://life hacker . com/is-it-worth-get-a-game-controller-for-my-iphone-1469702053](https://lifehacker.com/is-it-worth-getting-a-game-controller-for-my-iphone-1469702053)
+> 原文：<https://lifehacker.com/is-it-worth-getting-a-game-controller-for-my-iphone-1469702053>
 
 亲爱的 Lifehacker，
 我听说 iOS 7 比旧版本的操作系统更好地支持游戏控制器，但我并不完全买账。这些控制器中有值得关注的吗？他们到底是做什么的？

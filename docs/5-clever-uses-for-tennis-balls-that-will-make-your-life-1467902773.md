@@ -1,6 +1,6 @@
 # 网球的 5 个巧妙用途，让你的生活更轻松
 
-> 原文:[https://life hacker . com/5-让你的生活充满智慧的网球-1467902773](https://lifehacker.com/5-clever-uses-for-tennis-balls-that-will-make-your-life-1467902773)
+> 原文：<https://lifehacker.com/5-clever-uses-for-tennis-balls-that-will-make-your-life-1467902773>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-dtnRnjblcWQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-dtnRnjblcWQ&start=0) 
 

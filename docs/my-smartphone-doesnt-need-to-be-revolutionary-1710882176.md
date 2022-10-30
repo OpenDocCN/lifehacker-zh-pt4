@@ -1,6 +1,6 @@
 # 我的智能手机不需要革新
 
-> 原文:[https://life hacker . com/my-smart phone-dont-need-to-be-revolutionary-1710882176](https://lifehacker.com/my-smartphone-doesnt-need-to-be-revolutionary-1710882176)
+> 原文：<https://lifehacker.com/my-smartphone-doesnt-need-to-be-revolutionary-1710882176>
 
 上个月，苹果的 [和的](https://lifehacker.com/everything-apple-announced-at-wwdc-2015-that-actually-m-1709861705)[谷歌](https://lifehacker.com/all-the-important-stuff-google-announced-at-i-o-2015-1707454800) 都举行了发布会，展示他们的新操作系统。两者都得到了响亮的“咩”声，随后是大声疾呼 [苹果如今只是一个模仿者](https://gizmodo.com/heres-proof-of-apples-downward-fall-from-innovator-to-i-1710185505) 。这里有一个不受欢迎的观点:我不在乎。
 

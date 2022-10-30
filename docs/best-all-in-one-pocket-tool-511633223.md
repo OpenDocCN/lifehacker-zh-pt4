@@ -1,6 +1,6 @@
 # 最佳多功能袖珍工具？
 
-> 原文:[https://life hacker . com/best-all-in-one-pocket-tool-511633223](https://lifehacker.com/best-all-in-one-pocket-tool-511633223)
+> 原文：<https://lifehacker.com/best-all-in-one-pocket-tool-511633223>
 
 无论是小刀、皮具还是网络工具，我们很多人都会带着多功能工具，以防我们突然需要锋利的刀刃、螺丝刀、开瓶器或其他工具来快速修复。本周，我们想知道你认为哪些是最好的，最便携的，并装有最有用的工具。
 

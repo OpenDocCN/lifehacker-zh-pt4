@@ -1,6 +1,6 @@
 # 使用键盘大师自动化 Mac 的初学者指南
 
-> 原文:[https://life hacker . com/a-初学者指南-自动化你的带键盘的 MAC-1630276897](https://lifehacker.com/a-beginners-guide-to-automating-your-mac-with-keyboard-1630276897)
+> 原文：<https://lifehacker.com/a-beginners-guide-to-automating-your-mac-with-keyboard-1630276897>
 
 MAC 有各种各样的 [伟大的自动化工具](https://lifehacker.com/automate-just-about-anything-on-your-mac-no-coding-req-5668648) ，但键盘大师无疑是其中最强大的。有了它，你几乎可以自动化你在 Mac 上做的任何重复性任务——从在特定时间打开网页到给 iTunes 歌曲评分——只需要一点点设置。键盘大师一开始有点势不可挡，让我们熟悉一下它的工作原理，制作我们的第一个宏。
 

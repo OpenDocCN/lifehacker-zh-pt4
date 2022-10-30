@@ -1,6 +1,6 @@
 # 启用此标志，在没有互联网的情况下加载缓存页面
 
-> 原文:[https://life hacker . com/load-cached-pages-in-chrome-without-internet-by-enablin-1705985239](https://lifehacker.com/load-cached-pages-in-chrome-without-internet-by-enablin-1705985239)
+> 原文：<https://lifehacker.com/load-cached-pages-in-chrome-without-internet-by-enablin-1705985239>
 
 您的浏览器保存了您访问的大多数页面的缓存。如果在失去网络连接时可以访问缓存，岂不是很方便？通过启用离线自动重新加载模式标志，您可以做到这一点。
 

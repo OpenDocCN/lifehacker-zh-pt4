@@ -1,6 +1,6 @@
 # 我是如何(以及为什么)不再等待别人，开始独自旅行的
 
-> 原文:[https://life hacker . com/how-and-why-I-stopped-waiting-for-others-and-started-1693510913](https://lifehacker.com/how-and-why-i-stopped-waiting-for-others-and-started-1693510913)
+> 原文：<https://lifehacker.com/how-and-why-i-stopped-waiting-for-others-and-started-1693510913>
 
 独自冒险听起来很刺激，但也很恐怖。像大多数人一样，我的大部分 [旅行都是和朋友](http://lifehacker.com/how-to-travel-with-a-group-of-friends-and-not-lose-you-1451652555) 以及家人一起完成的。直到我意识到我有自己想去的地方，却没有人想和我一起去。我独自创业，因为我对继续旅行的渴望超过了我对孤独的恐惧。
 

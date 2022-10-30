@@ -1,6 +1,6 @@
 # 预测键盘如何工作(以及如何更好地训练自己的键盘)
 
-> 原文:[https://life hacker . com/how-predictive-keyboards-work-and-how-you-can-train-yo-1643795640](https://lifehacker.com/how-predictive-keyboards-work-and-how-you-can-train-yo-1643795640)
+> 原文：<https://lifehacker.com/how-predictive-keyboards-work-and-how-you-can-train-yo-1643795640>
 
 几乎我们所有人的智能手机上都有一个预测键盘，它可以提示即将到来的超快速打字单词。即便如此，它们也不完美，有时会出现 [爆笑结果](http://www.damnyouautocorrect.com/) 。幸运的是，一旦你知道它是如何工作的，训练你的键盘理解你并不困难。
 

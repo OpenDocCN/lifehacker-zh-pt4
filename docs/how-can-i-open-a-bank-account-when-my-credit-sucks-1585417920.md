@@ -1,6 +1,6 @@
 # 信用烂了怎么开银行账户？
 
-> 原文:[https://life hacker . com/how-can-I-open-a-a-bank account-when-my-credit-sucks-1585417920](https://lifehacker.com/how-can-i-open-a-bank-account-when-my-credit-sucks-1585417920)
+> 原文：<https://lifehacker.com/how-can-i-open-a-bank-account-when-my-credit-sucks-1585417920>
 
 亲爱的两分，我终于可以开始存钱了。我现在有足够的应急基金，我希望最终能从基础投资开始。但现在，我想从我的应急基金中赚取利息，因为它目前只存在一个低收益的储蓄账户中。
 

@@ -1,6 +1,6 @@
 # 我是 Tina Wen，Dropbox 的工程师，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Tina-Wen-engineer-at-Dropbox-and-this-is-how-I-wor-1592578922](https://lifehacker.com/im-tina-wen-engineer-at-dropbox-and-this-is-how-i-wor-1592578922)
+> 原文：<https://lifehacker.com/im-tina-wen-engineer-at-dropbox-and-this-is-how-i-wor-1592578922>
 
 Dropbox 看起来很简单——拖放你的文件，无论你去哪里，它们都在那里——但它需要一个专门的设计师和工程师团队来构建这种看似毫不费力的服务。其中一位敬业的工程师是 Tina Wen。
 

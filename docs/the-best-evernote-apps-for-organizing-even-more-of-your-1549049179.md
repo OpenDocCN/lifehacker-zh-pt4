@@ -1,6 +1,6 @@
 # 最好的 Evernote 应用程序，让你的生活更有条理
 
-> 原文:[https://life hacker . com/the-best-evernote-apps-for-organizing-even-more-of-your-1549049179](https://lifehacker.com/the-best-evernote-apps-for-organizing-even-more-of-your-1549049179)
+> 原文：<https://lifehacker.com/the-best-evernote-apps-for-organizing-even-more-of-your-1549049179>
 
 [Evernote](https://lifehacker.com/ive-been-using-evernote-all-wrong-heres-why-its-actual-5989980) 是我们 [最喜欢的](http://lifehacker.com/whats-all-the-fuss-about-evernote-should-i-be-using-it-5964285) 多用途笔记工具之一，所以有这么多应用程序使用它也就不足为奇了。这些应用程序可以做任何事情，从使用 Evernote 存储到使用你的 Evernote 笔记本来做聪明的新事情。这里有一些我们最喜欢的。
 

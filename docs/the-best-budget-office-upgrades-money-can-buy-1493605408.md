@@ -1,6 +1,6 @@
 # 金钱可以买到的最佳预算办公室升级
 
-> 原文:[https://life hacker . com/the-best-budget-office-upgrades-money-can-buy-1493605408](https://lifehacker.com/the-best-budget-office-upgrades-money-can-buy-1493605408)
+> 原文：<https://lifehacker.com/the-best-budget-office-upgrades-money-can-buy-1493605408>
 
 要让你的家庭办公室更舒适、更易用，一点点就够了。无论你是一直在家工作，还是当你的老板允许的时候，它都应该是一个你感到充满活力和富有成效的地方，所有合适的工具都在你的指尖。让我们列出一份最佳预算升级清单，帮助您实现这一目标。
 

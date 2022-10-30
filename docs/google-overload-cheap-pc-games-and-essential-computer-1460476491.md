@@ -1,6 +1,6 @@
 # 谷歌超载，廉价的电脑游戏，和基本的计算机建设技巧
 
-> 原文:[https://life hacker . com/Google-overload-cheap-PC-games-and-essential-computer-1460476491](https://lifehacker.com/google-overload-cheap-pc-games-and-essential-computer-1460476491)
+> 原文：<https://lifehacker.com/google-overload-cheap-pc-games-and-essential-computer-1460476491>
 
 在本周的播客中，我们将谈论大量的谷歌新闻，寻找电脑游戏的优惠，以及首次使用电脑的人的重要时刻。我们还将回答您关于将 iPhone 数据迁移到 Android、覆盖恼人的 YouTube 默认设置以及提高 MacBook Pro 音质的问题。
 

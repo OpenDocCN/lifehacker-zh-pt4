@@ -1,6 +1,6 @@
 # 如何为你的退休账户选择投资
 
-> 原文:[https://life hacker . com/how-to-pick-investments-for-your retirement-account-1607484143](https://lifehacker.com/how-to-pick-investments-for-your-retirement-account-1607484143)
+> 原文：<https://lifehacker.com/how-to-pick-investments-for-your-retirement-account-1607484143>
 
 所以你已经注册了公司的 401(k)计划，或者为你的退休储蓄开了一个个人退休帐户。恭喜你。这是很好的第一步。
 

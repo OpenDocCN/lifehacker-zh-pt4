@@ -1,6 +1,6 @@
 # 不，平板电脑不一定会腐蚀孩子的大脑
 
-> 原文:[https://life hacker . com/no-tablets-arent-needly-rotting-kids-brains-1686825352](https://lifehacker.com/no-tablets-arent-necessarily-rotting-kids-brains-1686825352)
+> 原文：<https://lifehacker.com/no-tablets-arent-necessarily-rotting-kids-brains-1686825352>
 
 根据许多专家的说法，幼儿 [不应该有太多的屏幕时间](http://lifehacker.com/how-much-screen-time-should-children-get-every-day-1453996324) 。但平板电脑和智能手机变得如此普遍，以至于这些建议开始看起来不切实际。然而，屏幕时间不一定对孩子有害。
 

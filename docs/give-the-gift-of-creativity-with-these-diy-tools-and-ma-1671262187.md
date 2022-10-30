@@ -1,6 +1,6 @@
 # 用这些 DIY 工具和制作工具包来赠送创意礼物
 
-> 原文:[https://life hacker . com/give-the-give-gift-of-creative-with-this-DIY-tools-and-ma-1671262187](https://lifehacker.com/give-the-gift-of-creativity-with-these-diy-tools-and-ma-1671262187)
+> 原文：<https://lifehacker.com/give-the-gift-of-creativity-with-these-diy-tools-and-ma-1671262187>
 
 制作工具包和 DIY 工具非常适合你生活中的那个狡猾的人——支持你的爱好，也许还能带来新的体验。这里有一些给你最喜欢的 DIY 者的礼物建议。
 

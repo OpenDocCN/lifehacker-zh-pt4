@@ -1,6 +1,6 @@
 # 滑动垂直主屏幕
 
-> 原文:[https://life hacker . com/the-sliding-vertical-home-screen-1582266205](https://lifehacker.com/the-sliding-vertical-home-screen-1582266205)
+> 原文：<https://lifehacker.com/the-sliding-vertical-home-screen-1582266205>
 
 我的彩屏用户 Peszek 没有用你最常用的应用程序创建一堆屏幕，而是创建了一个简单的主屏幕，有四列，可以扩展显示应用程序和信息。
 

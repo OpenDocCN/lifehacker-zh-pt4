@@ -1,6 +1,6 @@
 # 处于僧侣模式的魔力
 
-> 原文:[https://life hacker . com/the-magic-of-being-in-monk-mode-1464321610](https://lifehacker.com/the-magic-of-being-in-monk-mode-1464321610)
+> 原文：<https://lifehacker.com/the-magic-of-being-in-monk-mode-1464321610>
 
 一年前的深夜，我坐在床上，睡意全无。我很累，但无法入睡。我大声叹了口气，“我永远也不会及时完成这件事！”我喘不过气来。好消息是什么？一个出版商刚刚同意出版我的第一本书。坏消息呢？现在我需要写它。正如多萝西·帕克所说，“我讨厌写作。我喜欢写作。”我能理解。
 

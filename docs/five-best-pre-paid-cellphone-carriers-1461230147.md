@@ -1,6 +1,6 @@
 # 五家最佳预付费手机运营商
 
-> 原文:[https://life hacker . com/five-best-预付费手机运营商-1461230147](https://lifehacker.com/five-best-pre-paid-cellphone-carriers-1461230147)
+> 原文：<https://lifehacker.com/five-best-pre-paid-cellphone-carriers-1461230147>
 
 如果你认为你在寻找手机服务时被困在主要运营商那里，你会很高兴地知道有一系列预付费运营商 、MVNOs 和其他可能使用大家伙的信号塔，但可以为你提供灵活的计划、更好的价格和出色的客户服务。根据你的提名，这里有五个最好的。
 

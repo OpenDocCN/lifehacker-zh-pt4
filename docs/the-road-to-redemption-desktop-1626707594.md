@@ -1,6 +1,6 @@
 # 救赎之路桌面
 
-> 原文:[https://life hacker . com/the-road-to-redemption-desktop-1626707594](https://lifehacker.com/the-road-to-redemption-desktop-1626707594)
+> 原文：<https://lifehacker.com/the-road-to-redemption-desktop-1626707594>
 
 读者他是这样设置的。
 

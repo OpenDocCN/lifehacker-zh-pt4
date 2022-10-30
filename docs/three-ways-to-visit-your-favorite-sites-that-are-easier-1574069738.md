@@ -1,6 +1,6 @@
 # 三种比书签更简单的访问你最喜欢的网站的方法
 
-> 原文:[https://life hacker . com/three-way-to-visit-your favorite-sites-that-is-easy-1574069738](https://lifehacker.com/three-ways-to-visit-your-favorite-sites-that-are-easier-1574069738)
+> 原文：<https://lifehacker.com/three-ways-to-visit-your-favorite-sites-that-are-easier-1574069738>
 
 有些网站和页面是你每天都会访问的。书签使访问这些网站变得容易得多，但它们不是唯一的方式——事实上，有一些技巧比你浏览器的书签栏更快更容易。
 

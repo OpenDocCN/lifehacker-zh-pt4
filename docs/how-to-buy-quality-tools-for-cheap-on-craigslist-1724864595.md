@@ -1,6 +1,6 @@
 # 如何在 Craigslist 上买到物美价廉的工具
 
-> 原文:[https://life hacker . com/how-to-buy-quality-tools-on-craigslist-1724864595](https://lifehacker.com/how-to-buy-quality-tools-for-cheap-on-craigslist-1724864595)
+> 原文：<https://lifehacker.com/how-to-buy-quality-tools-for-cheap-on-craigslist-1724864595>
 
 新工具并不便宜，但如果你知道如何去哪里找，你可以在 Craigslist 上找到一些令人难以置信的便宜货。
 

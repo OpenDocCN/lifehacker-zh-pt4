@@ -1,6 +1,6 @@
 # 为什么 ResearchKit 是苹果昨天宣布的最令人兴奋的东西
 
-> 原文:[https://life hacker . com/why-research kit-is-the-most-exciting-thing-apple-an noun-1690533190](https://lifehacker.com/why-researchkit-is-the-most-exciting-thing-apple-announ-1690533190)
+> 原文：<https://lifehacker.com/why-researchkit-is-the-most-exciting-thing-apple-announ-1690533190>
 
 苹果 [昨天宣布了几件事](https://lifehacker.com/everything-apple-announced-today-that-actually-matters-1690313457) ，但是该公司新的医学研究和健康平台 ResearchKit 显然是最有潜力实际改善人们生活的技术。像这样的服务已经在全球范围内开展，帮助医生和病人控制症状和改善健康。这就是为什么它是重要的，以及它如何实际上更好地改变医疗保健。
 

@@ -1,6 +1,6 @@
 # Shellshock 和 Heartbleed 这样的 bug 是真的严重，还是只是炒作？
 
-> 原文:[https://life hacker . com/are-bugs-like-shell shock-and-heart bleed-really-serious-1641177186](https://lifehacker.com/are-bugs-like-shellshock-and-heartbleed-really-serious-1641177186)
+> 原文：<https://lifehacker.com/are-bugs-like-shellshock-and-heartbleed-really-serious-1641177186>
 
 亲爱的 Lifehacker，
 所以 Shellshock 是 [可能“攻破互联网”的最新漏洞](https://gizmodo.com/why-the-shellshock-bash-bug-could-be-even-worse-than-he-1639047786) 上次他们说的 [是关于心痛](http://lifehacker.com/what-the-heartbleed-security-bug-means-for-you-1560801201) 。我真的需要担心所有这些错误和漏洞吗，或者这是科技公司需要关心的事情吗？有人能用这些来对付我吗？

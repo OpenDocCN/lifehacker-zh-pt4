@@ -1,6 +1,6 @@
 # 应对当下焦虑的三招
 
-> 原文:[https://life hacker . com/three-tricks-for-dealing-in-the-moment-1607266321](https://lifehacker.com/three-tricks-for-dealing-with-anxiety-in-the-moment-1607266321)
+> 原文：<https://lifehacker.com/three-tricks-for-dealing-with-anxiety-in-the-moment-1607266321>
 
 你可能已经为紧张的情况做好了准备，如工作面试、重要会议或演示，但在这种情况下，你仍然可能会有些焦虑。那很正常！这里有一些事情你可以试着缓解你的焦虑。
 

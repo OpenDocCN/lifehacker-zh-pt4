@@ -1,6 +1,6 @@
 # 电子书订阅服务值得吗？
 
-> 原文:[https://life hacker . com/are-ebook-subscription-services-worth-it-1513205735](https://lifehacker.com/are-ebook-subscription-services-worth-it-1513205735)
+> 原文：<https://lifehacker.com/are-ebook-subscription-services-worth-it-1513205735>
 
 亲爱的 Lifehacker，
 我已经看到一些不同的网飞风格的电子书阅读服务，如[Scribd](http://www.scribd.com/)和 [Entitle](https://www.entitlebooks.com/) 最近出现，但我不确定它们是否真的值得花费。你怎么想呢?

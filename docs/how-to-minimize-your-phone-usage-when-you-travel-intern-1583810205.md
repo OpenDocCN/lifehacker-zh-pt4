@@ -1,6 +1,6 @@
 # 当你出国旅行时，如何最大限度地减少手机的使用
 
-> 原文:[https://life hacker . com/how-to-minimize-your-phone-usage-when-you travel-intern-1583810205](https://lifehacker.com/how-to-minimize-your-phone-usage-when-you-travel-intern-1583810205)
+> 原文：<https://lifehacker.com/how-to-minimize-your-phone-usage-when-you-travel-intern-1583810205>
 
 不担心你的手机，国际旅行已经够困难的了。如果你不想支付高昂的国际漫游费，以下是如何让你的手机为国际旅行做准备，这样你就可以保持联系——而不用购买数据计划。
 

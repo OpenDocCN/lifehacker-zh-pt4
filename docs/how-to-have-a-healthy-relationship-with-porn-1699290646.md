@@ -1,6 +1,6 @@
 # 如何与色情保持健康的关系
 
-> 原文:[https://life hacker . com/how-to-have-a-healthy-relationship-1699290646](https://lifehacker.com/how-to-have-a-healthy-relationship-with-porn-1699290646)
+> 原文：<https://lifehacker.com/how-to-have-a-healthy-relationship-with-porn-1699290646>
 
 自从人类第一次发现如何在洞穴墙壁上画裸体的人，色情就已经存在了，我们也一直在争论它是否健康。我怀疑我们是否会对色情使用的影响有一个明确的共识，但如果你想改善你与色情的关系，仍然有一些简单的指导方针可以遵循。
 

@@ -1,6 +1,6 @@
 # 半大的斜挎包
 
-> 原文:[https://life hacker . com/the-half-size-messenger-bag-1714686468](https://lifehacker.com/the-half-sized-messenger-bag-1714686468)
+> 原文：<https://lifehacker.com/the-half-sized-messenger-bag-1714686468>
 
 包有各种形状和尺寸。举个例子，《每日邮报》的读者托尼·贝克汉姆分享了他的小斜挎包，它仍然适合他一天所需的一切。
 

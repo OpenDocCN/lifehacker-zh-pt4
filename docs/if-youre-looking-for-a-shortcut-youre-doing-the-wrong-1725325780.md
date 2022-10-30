@@ -1,6 +1,6 @@
 # 如果你在寻找捷径，那你就做错了
 
-> 原文:[https://life hacker . com/if-you-seeing-a-shortcut-you-do-the-mist-1725325780](https://lifehacker.com/if-youre-looking-for-a-shortcut-youre-doing-the-wrong-1725325780)
+> 原文：<https://lifehacker.com/if-youre-looking-for-a-shortcut-youre-doing-the-wrong-1725325780>
 
 有很多方法可以让工作变得更简单，无论是 [减肥](http://vitals.lifehacker.com/four-things-nobody-tells-you-about-successful-weight-lo-1691216418)[学习新技能](http://lifehacker.com/the-science-behind-how-we-learn-new-skills-908488422) ，还是 [做一顿美妙的晚餐](http://lifehacker.com/the-essential-kitchen-skills-no-one-taught-but-everyon-1485609388) 。但是更有效地做某事和完全避免工作之间有很大的区别。没有“大”捷径，如果你花更多的时间寻找它们，而不是做你需要做的事情，那么是时候重新评估你为什么要做这件事了。
 

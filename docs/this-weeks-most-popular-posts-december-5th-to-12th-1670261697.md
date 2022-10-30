@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:12 月 5 日至 12 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-December-5-to-12-1670261697](https://lifehacker.com/this-weeks-most-popular-posts-december-5th-to-12th-1670261697)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-december-5th-to-12th-1670261697>
 
 本周我们 [看了《大扫除》](https://lifehacker.com/what-happens-in-your-body-during-a-cleanse-or-detox-1669540259)[背后的科学，发现了哪些项目自己买单](http://twocents.lifehacker.com/what-items-pay-for-themselves-over-time-1668009444)[排名全国最好的航空公司](http://lifehacker.com/the-best-and-worst-airlines-in-the-us-1667028259)[发现了拥有副学士学位](http://lifehacker.com/the-highest-paying-jobs-that-require-only-an-associates-1668435831) 可以获得的薪酬最高的工作。这里回顾一下。
 

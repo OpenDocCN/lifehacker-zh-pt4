@@ -1,6 +1,6 @@
 # iPhone 最佳摄影应用:2014 版
 
-> 原文:[https://life hacker . com/the-best-photography-apps-for-iphone-2014-edition-1496689753](https://lifehacker.com/the-best-photography-apps-for-iphone-2014-edition-1496689753)
+> 原文：<https://lifehacker.com/the-best-photography-apps-for-iphone-2014-edition-1496689753>
 
 iPhone 有一个非常棒的摄像头，但要真正获得最佳体验，你需要安装一些额外的应用程序。这里是每个 iPhone 摄影师可以在他们的工具包中使用的东西。
 

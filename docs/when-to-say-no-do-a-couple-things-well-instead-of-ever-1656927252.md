@@ -1,6 +1,6 @@
 # 何时说不:做好几件事，而不是什么都做不好
 
-> 原文:[https://life hacker . com/when-to-say-no-do-a-two-things-well-inst-ever-1656927252](https://lifehacker.com/when-to-say-no-do-a-couple-things-well-instead-of-ever-1656927252)
+> 原文：<https://lifehacker.com/when-to-say-no-do-a-couple-things-well-instead-of-ever-1656927252>
 
 你是否有时(或总是)觉得你有太多的事情要做而时间太少？不管我们如何管理好我们的时间，最终我们都会有太多的事情要做。这时你需要开始说不。
 

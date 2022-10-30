@@ -1,6 +1,6 @@
 # 你付多少有线电视费？
 
-> 原文:[https://gizmodo.com/how-much-do-you-pay-for-cable-493684295](https://gizmodo.com/how-much-do-you-pay-for-cable-493684295)
+> 原文：<https://gizmodo.com/how-much-do-you-pay-for-cable-493684295>
 
 无论你住在我们这个伟大国家的哪个地方，你都很有可能从你的有线电视运营商那里得到不公平的待遇。或者你只是让自己相信了。今天，我们要找出真相——或者，无论如何，我们要试一试。
 

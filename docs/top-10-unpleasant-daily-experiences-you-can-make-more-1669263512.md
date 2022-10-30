@@ -1,6 +1,6 @@
 # 十大不愉快的日常经历，你可以让它们变得更愉快
 
-> 原文:[https://life hacker . com/top-10-不愉快的日常经历-你可以做得更多-1669263512](https://lifehacker.com/top-10-unpleasant-daily-experiences-you-can-make-more-1669263512)
+> 原文：<https://lifehacker.com/top-10-unpleasant-daily-experiences-you-can-make-more-1669263512>
 
 当你不能解决生活中的大问题时，解决小问题。以下是 10 个一点都不有趣的日常经历，以及如何让它们变得更有趣。
 

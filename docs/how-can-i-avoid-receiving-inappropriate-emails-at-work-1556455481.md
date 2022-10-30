@@ -1,6 +1,6 @@
 # 如何避免在工作中收到不合适的邮件？
 
-> 原文:[https://life hacker . com/how-can-I-avoid-receiving-unlimited-emails-in-work-1556455481](https://lifehacker.com/how-can-i-avoid-receiving-inappropriate-emails-at-work-1556455481)
+> 原文：<https://lifehacker.com/how-can-i-avoid-receiving-inappropriate-emails-at-work-1556455481>
 
 亲爱的 Lifehacker (After Hours)，
 我有一个混蛋朋友给我发了一封题为“滑稽笑话”的邮件，结果是一张两个老年人口交的照片。我在工作的时候打开了这个，很明显我是个有趣的笑话。幸运的是没有人看到这个图像，但是如果他们看到了呢？我怎样才能避免惹上麻烦或者更糟？

@@ -1,6 +1,6 @@
 # 如何在每个云服务上最大化您的免费存储空间
 
-> 原文:[https://life hacker . com/how-to-maximize-your-free-storage-space-on-every-cloud-1690775421](https://lifehacker.com/how-to-maximize-your-free-storage-space-on-every-cloud-1690775421)
+> 原文：<https://lifehacker.com/how-to-maximize-your-free-storage-space-on-every-cloud-1690775421>
 
 在 Dropbox、Google Drive、OneDrive 和半打其他服务之间，你可以免费获得多少云存储空间。以下是获得每项服务的一些最佳技巧。
 

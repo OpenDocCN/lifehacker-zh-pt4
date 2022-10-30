@@ -1,6 +1,6 @@
 # 如何跳过常规机场安检线登上精英一号
 
-> 原文:[https://life hacker . com/how-to-skip-the-regular-airport-security-line-and-get-o-14566694585](https://lifehacker.com/how-to-skip-the-regular-airport-security-line-and-get-o-1456694585)
+> 原文：<https://lifehacker.com/how-to-skip-the-regular-airport-security-line-and-get-o-1456694585>
 
 当你被普通人堵在一条巨大的、蜿蜒的队伍后面，而“精英”旅行者却可以快速通过他们的优先通道时，感觉糟透了。即使你是经济舱，你也不必排那么长的队。你所要做的就是*看起来*像是你在航空公司拥有精英地位。
 

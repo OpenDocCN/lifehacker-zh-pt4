@@ -1,6 +1,6 @@
 # 我从 RA 身上学到的最重要的解决冲突的技巧
 
-> 原文:[https://life hacker . com/the-most-important-mediation-tips-I-learn-from-be-1670193626](https://lifehacker.com/the-most-important-mediation-tips-i-learned-from-being-1670193626)
+> 原文：<https://lifehacker.com/the-most-important-mediation-tips-i-learned-from-being-1670193626>
 
 你可能还记得大学时代的宿舍助理。RA 负责许多事情，但作为 RA，我学到的最重要的事情之一是如何调解冲突。这里有一些任何人都可以使用的技巧。
 

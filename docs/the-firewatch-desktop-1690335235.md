@@ -1,6 +1,6 @@
 # Firewatch 桌面
 
-> 原文:[https://lifehacker.com/the-firewatch-desktop-1690335235](https://lifehacker.com/the-firewatch-desktop-1690335235)
+> 原文：<https://lifehacker.com/the-firewatch-desktop-1690335235>
 
 在 Flickr 上， [艾哈迈德](https://www.flickr.com/photos/130314598@N05/) 为 [火眼金睛](http://www.firewatchgame.com/) 而欢呼，这是一款即将到来的游戏，有望令人惊叹。他的桌面让我们从一个美丽的制高点看日落——但它也帮助他启动应用程序和检查他的系统状态。他是这样设置的。
 

@@ -1,6 +1,6 @@
 # 你的汽车在商店里被损坏了。谁付钱？
 
-> 原文:[https://jalopnik . com/your-car-was-in-the-shop-who-pays-1677368418](https://jalopnik.com/your-car-was-damaged-while-in-the-shop-who-pays-1677368418)
+> 原文：<https://jalopnik.com/your-car-was-damaged-while-in-the-shop-who-pays-1677368418>
 
 你把车送到经销商那里修理，当你提车时，发现车上有一个凹痕。经理告诉你向保险公司提出索赔，因为他不知道你的车出了什么事。你跟他说了什么？
 

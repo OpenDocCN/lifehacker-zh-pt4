@@ -1,6 +1,6 @@
 # 如果必须的话，如何睡在你的车里
 
-> 原文:[https://jalopnik . com/how-to-sleep in-your-car-if-you-absolute-have-to 1659087637](https://jalopnik.com/how-to-sleep-in-your-car-if-you-absolutely-have-to-1659087637)
+> 原文：<https://jalopnik.com/how-to-sleep-in-your-car-if-you-absolutely-have-to-1659087637>
 
 睡在你的车里曾经是汽车制造商引以为豪的事情。例如，可以斜躺在床上的座椅是漫步者这类汽车的主要卖点。现在，由于反无家可归法 和不想在车里度过悲惨夜晚的病态愿望，几乎没有人还会这么做。但我觉得值得一试。
 

@@ -1,6 +1,6 @@
 # 最好的日常随身小刀是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-daily-carry-knife-1699568382](https://lifehacker.com/whats-the-best-everyday-carry-knife-1699568382)
+> 原文：<https://lifehacker.com/whats-the-best-everyday-carry-knife-1699568382>
 
 你永远不知道什么时候你会需要一把小刀。无论你是在打开箱子，需要切断电缆或绳子，还是在紧急情况下需要一把刀片，它都会有所帮助。本周，我们想知道哪些简单、便携、日常携带的小刀是你认为最好的。
 

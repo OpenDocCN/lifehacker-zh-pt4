@@ -1,6 +1,6 @@
 # 专家们不同意的理财建议:上大学
 
-> 原文:[https://life hacker . com/money-advice-the-experts-don-agree-on-to-college-1624121205](https://lifehacker.com/money-advice-the-experts-dont-agree-on-going-to-colleg-1624121205)
+> 原文：<https://lifehacker.com/money-advice-the-experts-dont-agree-on-going-to-colleg-1624121205>
 
 借来的钱通常分为“好债”和“坏账”坏账意味着为贬值的东西负债——比如一个健全的系统。好债是用于投资的债务。比如房地产。或者大学教育。但是，由于学生贷款危机，一些人现在开始质疑大学是否仍被视为“好债”。
 

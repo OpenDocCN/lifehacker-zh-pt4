@@ -1,6 +1,6 @@
 # 10 句来自邪恶的人的惊人励志语录
 
-> 原文:[https://life hacker . com/10-惊奇-励志-引自邪恶-人-1454328362](https://lifehacker.com/10-surprisingly-inspirational-quotes-from-evil-people-1454328362)
+> 原文：<https://lifehacker.com/10-surprisingly-inspirational-quotes-from-evil-people-1454328362>
 
 仅仅因为你是一个可怕的人，并不意味着你没有什么深刻的见解要说。事实上，历史上几个最坏的人说过一些真正鼓舞人心的话。这里有一些我们发现特别有洞察力的。
 

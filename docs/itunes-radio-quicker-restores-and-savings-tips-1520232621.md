@@ -1,6 +1,6 @@
 # iTunes Radio、更快的恢复和节省技巧
 
-> 原文:[https://life hacker . com/itunes-radio-quickless-restores-and-savings-tips-1520232621](https://lifehacker.com/itunes-radio-quicker-restores-and-savings-tips-1520232621)
+> 原文：<https://lifehacker.com/itunes-radio-quicker-restores-and-savings-tips-1520232621>
 
 读者提供了为 iTunes 电台创建桌面快捷方式的最佳技巧，记住你在手机上安装了什么应用程序，并留出一点额外的钱。
 

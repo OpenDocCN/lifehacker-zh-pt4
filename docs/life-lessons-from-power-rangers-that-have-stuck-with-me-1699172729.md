@@ -1,6 +1,6 @@
 # 我永远不会忘记《权力的流浪者》给我上的人生课
 
-> 原文:[https://life hacker . com/life-lessons from-power-rangers-that-d-stick-with-me-1699172729](https://lifehacker.com/life-lessons-from-power-rangers-that-have-stuck-with-me-1699172729)
+> 原文：<https://lifehacker.com/life-lessons-from-power-rangers-that-have-stuck-with-me-1699172729>
 
 儿童节目很俗气。力量游骑兵，加倍如此。从我们小时候喜欢的电视节目中学习真实的成人生活课程的想法听起来很傻，但有时事情会一直伴随着你。这是那些超级骑警教给我的，实际上一直存在的东西。说真的。
 

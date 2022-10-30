@@ -1,6 +1,6 @@
 # 在网上销售时，如何为你的商品定价
 
-> 原文:[https://life hacker . com/how-to-set-prices-when-your-style-online-1690500578](https://lifehacker.com/how-to-set-prices-for-your-stuff-when-selling-online-1690500578)
+> 原文：<https://lifehacker.com/how-to-set-prices-for-your-stuff-when-selling-online-1690500578>
 
 当你在易贝或 Craigslist 这样的网站上出售你的东西时，定价可能是一个呆若木鸡的时刻。如果你不小心，你可能会降低自己的价格并赔钱。以下是如何计算出你的东西值多少钱，并尽可能多的把钱拿回来。
 

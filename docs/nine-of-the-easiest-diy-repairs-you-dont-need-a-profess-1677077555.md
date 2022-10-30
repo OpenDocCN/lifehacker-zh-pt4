@@ -1,6 +1,6 @@
 # 九种最简单的不需要专业人员就能自己动手修理的方法
 
-> 原文:[https://life hacker . com/nine-of-the-easy-DIY-repairs-you-done-need-a professor-1677077555](https://lifehacker.com/nine-of-the-easiest-diy-repairs-you-dont-need-a-profess-1677077555)
+> 原文：<https://lifehacker.com/nine-of-the-easiest-diy-repairs-you-dont-need-a-profess-1677077555>
 
 有一些家用维修是如此简单，甚至连专业人士都觉得收费不好(真的！).这些管道、供暖、电力、空调和电器维修中的许多都是房主忽略的简单事情，所有这些维修可以在下次出现问题时为你节省一大笔钱。
 

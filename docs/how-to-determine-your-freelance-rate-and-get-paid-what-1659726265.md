@@ -1,6 +1,6 @@
 # 如何确定你的自由职业报酬，并得到你应得的报酬
 
-> 原文:[https://life hacker . com/how-to-determine-your-freelance-rate-and-get-payed-what-1659726265](https://lifehacker.com/how-to-determine-your-freelance-rate-and-get-paid-what-1659726265)
+> 原文：<https://lifehacker.com/how-to-determine-your-freelance-rate-and-get-paid-what-1659726265>
 
 当我接下第一个客户时，我不知道如何设定我的自由职业报酬。要求太多会让我看起来很贪婪，要求太少会让我工作过度，工资过低。这花了几年时间，但我终于想出了一个系统来设定一个对我和我的客户都最好的利率。
 

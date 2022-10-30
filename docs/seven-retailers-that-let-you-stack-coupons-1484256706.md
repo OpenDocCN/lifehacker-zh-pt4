@@ -1,6 +1,6 @@
 # 允许你叠优惠券的七家零售商
 
-> 原文:[https://life hacker . com/seven-retailers-that-let-you-stack-coupons-1484256706](https://lifehacker.com/seven-retailers-that-let-you-stack-coupons-1484256706)
+> 原文：<https://lifehacker.com/seven-retailers-that-let-you-stack-coupons-1484256706>
 
 尽管我经营着一个优惠券网站，这个网站是我在 12 年前 [创办](http://www.threethriftyguys.com/2013/02/how-to-start-an-online-business-on-a-shoestring-budget/) 的，但我从来没有叠过优惠券。这主要是因为我不知道哪些零售商会让你叠优惠券。我是个优惠券呆子，是吧？
 

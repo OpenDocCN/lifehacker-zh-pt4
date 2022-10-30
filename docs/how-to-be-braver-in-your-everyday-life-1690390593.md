@@ -1,6 +1,6 @@
 # 如何在日常生活中变得更勇敢
 
-> 原文:[https://life hacker . com/how-to-be brave in your daily life-1690390593](https://lifehacker.com/how-to-be-braver-in-your-everyday-life-1690390593)
+> 原文：<https://lifehacker.com/how-to-be-braver-in-your-everyday-life-1690390593>
 
 我们都希望自己能更勇敢一点，但恐惧仍然会渗透到我们的日常活动中。它阻止我们采取行动，在工作中进步，甚至导致我们拖延。这里有一些方法可以增强你的勇气，让你每天都充满勇气。
 

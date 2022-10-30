@@ -1,6 +1,6 @@
 # 设计学生的日常包
 
-> 原文:[https://life hacker . com/the-design-students-daily-bag-1642910505](https://lifehacker.com/the-design-students-daily-bag-1642910505)
+> 原文：<https://lifehacker.com/the-design-students-daily-bag-1642910505>
 
 学生们不得不整天拖着行李去上课，所以他们的书包里往往只装着必需品，仅此而已。举个例子，读者 DgnKoopa 的背包里有他们上学需要的一切(和一点点浪费的时间)，除此之外什么都没有。
 

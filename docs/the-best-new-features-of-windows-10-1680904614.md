@@ -1,6 +1,6 @@
 # Windows 10 的最佳新功能
 
-> 原文:[https://life hacker . com/the-best-new-features-of-windows-10-1680904614](https://lifehacker.com/the-best-new-features-of-windows-10-1680904614)
+> 原文：<https://lifehacker.com/the-best-new-features-of-windows-10-1680904614>
 
 今天，Windows 10 终于到来了！虽然推出 [将在波](http://gizmodo.com/okay-so-maybe-you-wont-get-windows-10-on-july-29th-1715532559) 到来，我们已经运行了几个月的内幕预览。当你决定升级时，这里有一些你可以期待的最好的功能。
 

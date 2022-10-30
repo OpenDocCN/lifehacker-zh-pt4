@@ -1,6 +1,6 @@
 # 如何成为 21 世纪的完美客人
 
-> 原文:[https://life hacker . com/how-to-be-a perfect-guest-21 世纪-5612122](https://lifehacker.com/how-to-be-a-perfect-guest-in-the-21st-century-5612122)
+> 原文：<https://lifehacker.com/how-to-be-a-perfect-guest-in-the-21st-century-5612122>
 
 你母亲的来信“要有礼貌！”可能足以让你成为一个还过得去的客人。但是，如果你真的想成为一个与众不同、永远受欢迎的客人，你可能需要在你的旅行包里增加一两个小技巧。
 

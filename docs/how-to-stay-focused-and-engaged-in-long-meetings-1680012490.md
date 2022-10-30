@@ -1,6 +1,6 @@
 # 如何在长时间的会议中保持专注
 
-> 原文:[https://life hacker . com/how-to-stay-focused-and-engaged-long-meetings-1680012490](https://lifehacker.com/how-to-stay-focused-and-engaged-in-long-meetings-1680012490)
+> 原文：<https://lifehacker.com/how-to-stay-focused-and-engaged-in-long-meetings-1680012490>
 
 对许多人来说，会议是工作中不可避免的一部分，有时你知道你将要参加一个会拖得很久的会议。你如何让自己做好参与和警觉的准备？这里有一些在那些长时间会议中生存下来的方法。
 

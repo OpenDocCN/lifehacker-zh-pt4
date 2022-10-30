@@ -1,6 +1,6 @@
 # 问问 Nerdlove 博士:女性在约会中会更容易吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-do-women-have-it-easy-in-dating-1596566465](https://kotaku.com/ask-dr-nerdlove-do-women-have-it-easier-in-dating-1596566465)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-do-women-have-it-easier-in-dating-1596566465>
 
 你好，互联网！欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个可以计算出浪漫受挫的极客的精神动能的精确 Twinkie 值的约会建议专栏。
 

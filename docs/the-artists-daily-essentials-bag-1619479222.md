@@ -1,6 +1,6 @@
 # 艺术家的日常必需品包
 
-> 原文:[https://life hacker . com/the-artists-daily-essentials-bag-1619479222](https://lifehacker.com/the-artists-daily-essentials-bag-1619479222)
+> 原文：<https://lifehacker.com/the-artists-daily-essentials-bag-1619479222>
 
 作为一名艺术家意味着随时准备创作，这正是 Lifehacker 读者 [卡洛斯阿森西奥](http://cargocollective.com/chensio) 准备用他的日常必需品包做的事情。
 

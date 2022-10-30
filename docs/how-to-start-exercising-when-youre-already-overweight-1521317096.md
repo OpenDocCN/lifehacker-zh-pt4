@@ -1,6 +1,6 @@
 # 当你已经超重时，如何开始锻炼
 
-> 原文:[https://life hacker . com/how-to-start-exercise-when you-has-been-weight-1521317096](https://lifehacker.com/how-to-start-exercising-when-youre-already-overweight-1521317096)
+> 原文：<https://lifehacker.com/how-to-start-exercising-when-youre-already-overweight-1521317096>
 
 健康的生活并不容易。对于一些人来说，这是自然而然的，但对于那些已经超重的人来说——大到很难甚至很痛苦去做瘦人能做的事情——开始就更难了。以下是一些有用的提示。
 

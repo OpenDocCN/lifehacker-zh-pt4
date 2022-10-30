@@ -1,6 +1,6 @@
 # 设置并了解您的新 Android 手机
 
-> 原文:[https://life hacker . com/set-up-and-get-know-your-new-Android-phone-5717356](https://lifehacker.com/set-up-and-get-to-know-your-new-android-phone-5717356)
+> 原文：<https://lifehacker.com/set-up-and-get-to-know-your-new-android-phone-5717356>
 
 甜蜜的机器人喜悦——你刚刚打开一个安卓手机，伙计，它闪闪发光。以下是我们对应用程序抓取、设置调整以及你可以用谷歌迷你超级计算机做的非常漂亮的事情的建议。
 

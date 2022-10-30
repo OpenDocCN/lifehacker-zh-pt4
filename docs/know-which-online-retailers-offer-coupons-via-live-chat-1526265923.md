@@ -1,6 +1,6 @@
 # 通过实时聊天了解哪些在线零售商提供优惠券
 
-> 原文:[https://life hacker . com/know-which-online-retailers-offer-coupons-via-live-chat-1526265923](https://lifehacker.com/know-which-online-retailers-offer-coupons-via-live-chat-1526265923)
+> 原文：<https://lifehacker.com/know-which-online-retailers-offer-coupons-via-live-chat-1526265923>
 
 哪里都找不到优惠券代码？随着“实时聊天”客户服务趋势的增长，许多操作员都被训练向礼貌的购物者分发优惠券代码，他们只是简单地问一下。我做了研究，发现了十几家最受欢迎的零售商，他们会通过实时聊天向正确出牌的购物者发放密码。
 

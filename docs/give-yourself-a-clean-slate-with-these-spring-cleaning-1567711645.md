@@ -1,6 +1,6 @@
 # 用这些春季大扫除项目给自己一个清白的记录
 
-> 原文:[https://life hacker . com/给自己一个干净的石板用这些-春季大扫除-1567711645](https://lifehacker.com/give-yourself-a-clean-slate-with-these-spring-cleaning-1567711645)
+> 原文：<https://lifehacker.com/give-yourself-a-clean-slate-with-these-spring-cleaning-1567711645>
 
 即使你的家相对来说井井有条， [关于春季大扫除还有一些宣泄的](http://lifehacker.com/do-you-spring-clean-1566074950) 。今年春天，花点时间用这个任务列表来组织你自己。
 

@@ -1,6 +1,6 @@
 # Linux 安全发行版比较:Tails vs. Kali vs. Qubes
 
-> 原文:[https://life hacker . com/Linux-security-distros-comparated-tails-vs-kali-vs-qub-1658139404](https://lifehacker.com/linux-security-distros-compared-tails-vs-kali-vs-qub-1658139404)
+> 原文：<https://lifehacker.com/linux-security-distros-compared-tails-vs-kali-vs-qub-1658139404>
 
 如果您对安全性感兴趣，您可能已经听说过关注安全性的 Linux 发行版，如 Tails、Kali 和 Qubes。它们对于匿名浏览、渗透测试和收紧系统以防止潜在黑客攻击非常有用。以下是这三者的优缺点。
 

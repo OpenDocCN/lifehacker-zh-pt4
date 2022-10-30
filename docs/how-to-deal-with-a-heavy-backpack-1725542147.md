@@ -1,6 +1,6 @@
 # 如何处理沉重的背包
 
-> 原文:[https://life hacker . com/how-to-deal-a-heavy-backpack-1725542147](https://lifehacker.com/how-to-deal-with-a-heavy-backpack-1725542147)
+> 原文：<https://lifehacker.com/how-to-deal-with-a-heavy-backpack-1725542147>
 
 随着学校开学，书包里很快装满了书——很重的书。那么，当你觉得随身携带的所有东西都是必需品时，如何避免扭伤背部呢？你的教育可能感觉像一个负担，但那是你肩上的重担。
 

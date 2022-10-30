@@ -1,6 +1,6 @@
 # 我买了一套公寓，只是为了在 Airbnb 上出租
 
-> 原文:[https://gizmodo . com/I-buyed-an-apartment-just-to-rent-out-on-Airbnb-1458666661](https://gizmodo.com/i-bought-an-apartment-just-to-rent-it-out-on-airbnb-1458666661)
+> 原文：<https://gizmodo.com/i-bought-an-apartment-just-to-rent-it-out-on-airbnb-1458666661>
 
 2012 年，我买了一套公寓，专门在 [airbnb](http://airbnb.com/) 出租。去年我一直在远程管理它。这篇文章包括了我学到的所有东西以及一些收入数字。
 

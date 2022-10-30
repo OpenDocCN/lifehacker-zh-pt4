@@ -1,6 +1,6 @@
 # TextExpander 综合指南
 
-> 原文:[https://life hacker . com/a-comprehensive-guide-to-text expander-1616374942](https://lifehacker.com/a-comprehensive-guide-to-textexpander-1616374942)
+> 原文：<https://lifehacker.com/a-comprehensive-guide-to-textexpander-1616374942>
 
 当你发现自己在重复输入相同的信息时，文本扩展应用程序 是节省时间的好方法，但它们能做的远不止这些。我们最喜欢的是 Mac 上的 TextExpander，一旦你学会如何使用它，它就是一个强大的工具。
 

@@ -1,6 +1,6 @@
 # 如何建立一个树莓派点唱机任何非极客可以使用
 
-> 原文:[https://life hacker . com/how-to-build-a-raspberry-pi-jukebox-any-non-geek-can-us-1712107103](https://lifehacker.com/how-to-build-a-raspberry-pi-jukebox-any-non-geek-can-us-1712107103)
+> 原文：<https://lifehacker.com/how-to-build-a-raspberry-pi-jukebox-any-non-geek-can-us-1712107103>
 
 你有大量的选择来从你的立体声系统访问你的计算机的音乐库，但是大多数需要一点技术知识来实际使用。你可以用树莓派(一种微型电脑)制作一台点唱机，任何人都可以使用，即使他们不知道树莓派是什么。
 

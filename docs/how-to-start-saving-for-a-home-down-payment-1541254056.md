@@ -1,6 +1,6 @@
 # 如何开始为家庭首付储蓄
 
-> 原文:[https://life hacker . com/how-to-start-储蓄买房首付-1541254056](https://lifehacker.com/how-to-start-saving-for-a-home-down-payment-1541254056)
+> 原文：<https://lifehacker.com/how-to-start-saving-for-a-home-down-payment-1541254056>
 
 买房是令人兴奋的人生里程碑 ，但也可能令人生畏。你的房子可能是你购买过的最昂贵的东西，所以你要为所有权建立一个负责任的计划。如果你对攒钱付首付有点畏惧，以下是开始的方法。
 

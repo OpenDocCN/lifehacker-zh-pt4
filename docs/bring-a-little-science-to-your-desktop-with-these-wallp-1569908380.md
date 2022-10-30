@@ -1,6 +1,6 @@
 # 用这些壁纸给你的桌面带来一点科学
 
-> 原文:[https://life hacker . com/bring-a little-science-to-your desktop with these-wallp-1569908380](https://lifehacker.com/bring-a-little-science-to-your-desktop-with-these-wallp-1569908380)
+> 原文：<https://lifehacker.com/bring-a-little-science-to-your-desktop-with-these-wallp-1569908380>
 
 科学是令人敬畏的，你可以展示你对所有科学事物的欣赏——从化学和生物到物理和地质——用这些科学主题的壁纸装饰你的桌面。
 

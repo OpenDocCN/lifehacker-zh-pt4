@@ -1,6 +1,6 @@
 # 你应该修理那个坏掉的小玩意还是买个新的？
 
-> 原文:[https://life hacker . com/should-you-fix-that-broken-gadget-or-just-buy-a-new-one-1711409066](https://lifehacker.com/should-you-fix-that-broken-gadget-or-just-buy-a-new-one-1711409066)
+> 原文：<https://lifehacker.com/should-you-fix-that-broken-gadget-or-just-buy-a-new-one-1711409066>
 
 有时候，修理一台奄奄一息的笔记本电脑、破裂的屏幕、损坏的主板或闪光的游戏机几乎和买一台新的一样昂贵。当这种情况发生时，你有一个非常艰难的决定要做:你是坚持使用你一直使用和喜爱的东西，还是买一些闪亮的新东西？以下是你在做出选择之前应该考虑的。
 

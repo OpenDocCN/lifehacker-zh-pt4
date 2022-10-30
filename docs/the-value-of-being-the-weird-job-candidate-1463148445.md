@@ -1,6 +1,6 @@
 # 成为“古怪”求职者的价值
 
-> 原文:[https://life hacker . com/the-value-of-being-the-diverged-job-candidate-1463148445](https://lifehacker.com/the-value-of-being-the-weird-job-candidate-1463148445)
+> 原文：<https://lifehacker.com/the-value-of-being-the-weird-job-candidate-1463148445>
 
 20 世纪 30 年代，德国心理学家海德薇·冯·雷斯托夫 有了一个重要的发现，尽管不是很违反直觉:与典型事物相比，T4 突出的事物更容易被记住。
 

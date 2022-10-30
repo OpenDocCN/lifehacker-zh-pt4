@@ -1,6 +1,6 @@
 # 如何悬挂没有可见紧固件的搁板？
 
-> 原文:[https://life hacker . com/how-can-I-hang-a-shelf-with-no-visible-fasteners-1447913936](https://lifehacker.com/how-can-i-hang-a-shelf-with-no-visible-fasteners-1447913936)
+> 原文：<https://lifehacker.com/how-can-i-hang-a-shelf-with-no-visible-fasteners-1447913936>
 
 所以你已经做了一个架子！现在，你如何以一种美观的方式(没有外露的螺丝、胶带或胶水)来悬挂它？ [*栈交换*](http://diy.stackexchange.com?utm_source=lifehacker&utm_medium=syndication&utm_content=89&utm_campaign=crowdhacker) *的专家们都来帮忙了。*
 

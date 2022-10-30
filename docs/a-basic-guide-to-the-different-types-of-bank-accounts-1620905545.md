@@ -1,6 +1,6 @@
 # 不同类型银行账户的基本指南
 
-> 原文:[https://life hacker . com/a-basic-guide-to-the-different-type of-bank-accounts-1620905545](https://lifehacker.com/a-basic-guide-to-the-different-types-of-bank-accounts-1620905545)
+> 原文：<https://lifehacker.com/a-basic-guide-to-the-different-types-of-bank-accounts-1620905545>
 
 我们大多数人都有一个支票和储蓄账户——这很正常。但是银行和信用合作社也提供一些其他种类的账户。我们认为我们已经整理出了基本账户类型的初级读本，所以你可以看看哪些可能适合你。
 

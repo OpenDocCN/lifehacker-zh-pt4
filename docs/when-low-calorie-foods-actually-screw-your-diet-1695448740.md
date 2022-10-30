@@ -1,6 +1,6 @@
 # 当低热量食物真的搅乱了你的饮食
 
-> 原文:[https://life hacker . com/when-low-Caroline-foods-actually-screw-your diet-1695448740](https://lifehacker.com/when-low-calorie-foods-actually-screw-your-diet-1695448740)
+> 原文：<https://lifehacker.com/when-low-calorie-foods-actually-screw-your-diet-1695448740>
 
 “低卡路里”食物现在很流行。当然，它们表面上看起来是个好主意，但有时它们像想“如果我把这块蛋糕切成两半，我可以吃两倍的量”一样愚蠢。以下是如何判断低卡路里的选择何时是正确的决定。
 

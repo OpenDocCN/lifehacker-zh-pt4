@@ -1,6 +1,6 @@
 # 指向 Wi-Fi 路由器天线的最佳方式:垂直
 
-> 原文:[https://life hacker . com/the-best-way-to-point-your-wi-fi-router-antennas-perpe-1605924745](https://lifehacker.com/the-best-way-to-point-your-wi-fi-router-antennas-perpe-1605924745)
+> 原文：<https://lifehacker.com/the-best-way-to-point-your-wi-fi-router-antennas-perpe-1605924745>
 
 如果你认为路由器的两个天线都朝上对无线网络接收更好，请举手。是啊，我们也是。然而，根据一位前苹果 Wi-Fi 工程师的说法，最佳位置是一根天线垂直，另一根水平。
 

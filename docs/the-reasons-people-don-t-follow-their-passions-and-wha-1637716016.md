@@ -1,6 +1,6 @@
 # 人们不追随激情的原因，以及你能做什么
 
-> 原文:[https://life hacker . com/the-reasons-people-not-following these-wha-1637716016](https://lifehacker.com/the-reasons-people-don-t-follow-their-passions-and-wha-1637716016)
+> 原文：<https://lifehacker.com/the-reasons-people-don-t-follow-their-passions-and-wha-1637716016>
 
 追求你的激情对不同的人来说可能意味着不同的事情，但不管你的定义是什么，似乎人们总是有一个他们做不到的理由。如果你一直想追寻自己的梦想，但从未获得任何动力，这里有一些答案。
 

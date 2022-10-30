@@ -1,6 +1,6 @@
 # 为您的订单提供当天送货的服务
 
-> 原文:[https://life hacker . com/the-services-that-offer-on-your-order-1687474934](https://lifehacker.com/the-services-that-offer-same-day-delivery-on-your-order-1687474934)
+> 原文：<https://lifehacker.com/the-services-that-offer-same-day-delivery-on-your-order-1687474934>
 
 不久前，在网上订购东西意味着要等几周才能送货上门。一切都变了。现在有一个很好的机会，你可以订购一些东西，并在一夜之间，甚至当天拿到手。让我们看看使这成为可能的一些服务，以及你能从它们那里得到什么类型的东西。
 

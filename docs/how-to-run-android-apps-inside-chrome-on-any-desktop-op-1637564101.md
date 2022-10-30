@@ -1,6 +1,6 @@
 # 如何在任何桌面操作系统上运行 Chrome 内部的 Android 应用程序
 
-> 原文:[https://life hacker . com/how-to-run-Android-apps-inside-chrome-on-any-desktop-op-1637564101](https://lifehacker.com/how-to-run-android-apps-inside-chrome-on-any-desktop-op-1637564101)
+> 原文：<https://lifehacker.com/how-to-run-android-apps-inside-chrome-on-any-desktop-op-1637564101>
 
 近日，谷歌为 Chrome 提供了首批安卓应用 [。一些聪明的用户将这种能力赋予每个人只是时间问题。现在是时候了。以下是如何在任何操作系统上安装(几乎)任何安卓应用。](https://lifehacker.com/the-first-android-apps-are-now-available-for-chrome-os-1633549691)
 

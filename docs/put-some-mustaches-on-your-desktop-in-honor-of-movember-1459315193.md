@@ -1,6 +1,6 @@
 # 在你的桌面上放一些八字胡来纪念八字胡
 
-> 原文:[https://life hacker . com/put-some-mustaches-on-your-honor-of-movember-1459315193](https://lifehacker.com/put-some-mustaches-on-your-desktop-in-honor-of-movember-1459315193)
+> 原文：<https://lifehacker.com/put-some-mustaches-on-your-desktop-in-honor-of-movember-1459315193>
 
 谁不喜欢好的小胡子，尤其是在 [八月天](http://us.movember.com/) ？无论是手柄、铅笔还是海象，用这些壁纸为你的桌面增添一点时尚的胡须。
 

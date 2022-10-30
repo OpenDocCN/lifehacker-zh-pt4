@@ -1,6 +1,6 @@
 # 最好的密码管理器是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-password-manager-1678121716](https://lifehacker.com/whats-the-best-password-manager-1678121716)
+> 原文：<https://lifehacker.com/whats-the-best-password-manager-1678121716>
 
 我们已经很久没有看到一些最好的密码管理器了，这些最好的密码管理器在过去的几年里有了很大的发展。随着自动密码更改、黑客通知等新功能的出现，是时候重新审视保护我们在线身份安全的最佳工具了。
 

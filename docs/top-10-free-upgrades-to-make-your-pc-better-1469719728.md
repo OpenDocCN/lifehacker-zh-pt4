@@ -1,6 +1,6 @@
 # 十大免费升级，让您的电脑更出色
 
-> 原文:[https://life hacker . com/top-10-free-upgrades-to-make-your-PC-better-1469719728](https://lifehacker.com/top-10-free-upgrades-to-make-your-pc-better-1469719728)
+> 原文：<https://lifehacker.com/top-10-free-upgrades-to-make-your-pc-better-1469719728>
 
 现在的机会是，你没有充分利用你的电脑。可能有点慢，可能你的显示器颜色不太对，也可能就是灰尘多，声音大。你可能甚至没有意识到这些事情正在发生。但是有了一个自由的下午，你可以不花一毛钱，从上到下的改善。这里有 10 种方法可以做到这一点。
 

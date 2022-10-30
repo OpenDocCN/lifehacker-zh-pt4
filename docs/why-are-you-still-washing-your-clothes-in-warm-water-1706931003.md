@@ -1,6 +1,6 @@
 # 你为什么还在温水里洗衣服？
 
-> 原文:[https://gizmodo . com/why-you ' s still-washing-you-why-washing-you-washing-why-you-washing-washing-you-washing-water-1706931003](https://gizmodo.com/why-are-you-still-washing-your-clothes-in-warm-water-1706931003)
+> 原文：<https://gizmodo.com/why-are-you-still-washing-your-clothes-in-warm-water-1706931003>
 
 超过 60%的美国人仍然用温水洗衣服。这种做法既费钱又不环保。更重要的是，它并没有让我们的衣服变得更干净。这就是为什么你应该切换到冷水。
 

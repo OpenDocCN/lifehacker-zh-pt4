@@ -1,6 +1,6 @@
 # 超越基础:如何在 Microsoft Word 中与他人协作
 
-> 原文:[https://life hacker . com/beyond-the-basics-how-to-collaborative-others-in-mi-1702471295](https://lifehacker.com/beyond-the-basics-how-to-collaborate-with-others-in-mi-1702471295)
+> 原文：<https://lifehacker.com/beyond-the-basics-how-to-collaborate-with-others-in-mi-1702471295>
 
 在大多数工作场所，协作是良好文档创建的关键要素。像 Microsoft Word 中的大多数东西一样，协作工具功能强大，但在您了解它们如何工作以及如何充分利用它们之前，可能会令人沮丧。
 

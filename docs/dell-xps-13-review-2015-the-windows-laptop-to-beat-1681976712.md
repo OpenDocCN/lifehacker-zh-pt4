@@ -1,6 +1,6 @@
 # 戴尔 XPS 13 回顾(2015):击败 Windows 笔记本电脑
 
-> 原文:[https://gizmodo . com/Dell-XPS-13-review-2015-the-windows-laptop-to-beat-1681976712](https://gizmodo.com/dell-xps-13-review-2015-the-windows-laptop-to-beat-1681976712)
+> 原文：<https://gizmodo.com/dell-xps-13-review-2015-the-windows-laptop-to-beat-1681976712>
 
 您是否在考虑购买一台 Windows 笔记本电脑？不要，直到你读完这篇评论。新的戴尔 XPS 13 并不完美，但花 800 美元买一台回家也是令人难以置信的。
 

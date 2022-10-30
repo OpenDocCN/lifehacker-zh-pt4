@@ -1,6 +1,6 @@
 # 我如何通过一些小的调整战胜重复性压力损伤
 
-> 原文:[https://life hacker . com/how-I-beat-repetitive-stress-injury-RSI-with-some-mi-5922956](https://lifehacker.com/how-i-beat-repetitive-stress-injury-rsi-with-a-few-mi-5922956)
+> 原文：<https://lifehacker.com/how-i-beat-repetitive-stress-injury-rsi-with-a-few-mi-5922956>
 
 2005 年，程序员 Henrik Warne 开发了 RSI——重复性压力损伤。在六个月的时间里，病情严重恶化，以至于他考虑换一份职业。幸运的是，通过一系列的行动，他成功摆脱了疼痛并完全康复。
 

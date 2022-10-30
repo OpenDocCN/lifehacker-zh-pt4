@@ -1,6 +1,6 @@
 # 问一个专家:所有关于得到最好的黑色星期五交易
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-get-the-best-black-Friday-1662604866](https://lifehacker.com/ask-an-expert-all-about-getting-the-best-black-friday-1662604866)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-getting-the-best-black-friday-1662604866>
 
 又到了一年中的这个时候:节日装饰品在涨价，价格在下跌，哪怕只是一天也好。黑色星期五——感恩节后的星期五——即将到来，许多人将前往商店寻找低价。这里提供指导的是 [DealNews](http://dealnews.com/) 的马克·洛克斯特罗。
 

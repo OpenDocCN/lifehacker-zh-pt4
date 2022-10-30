@@ -1,6 +1,6 @@
 # 当你在工作中失去动力时，如何坚持下去
 
-> 原文:[https://life hacker . com/how-to-keep-go-when-you-demotide-in-work-1631681320](https://lifehacker.com/how-to-keep-going-when-youre-demotivated-at-work-1631681320)
+> 原文：<https://lifehacker.com/how-to-keep-going-when-youre-demotivated-at-work-1631681320>
 
 有时候，你会在工作中到达一个你的动力完全耗尽的点。但是情况决定了你不能退出。那么如何坚持下去呢？总有办法的。
 

@@ -1,6 +1,6 @@
 # 如何不倾家荡产留学
 
-> 原文:[https://life hacker . com/how-to-留学不倾家荡产-1563442759](https://lifehacker.com/how-to-study-abroad-without-breaking-the-bank-1563442759)
+> 原文：<https://lifehacker.com/how-to-study-abroad-without-breaking-the-bank-1563442759>
 
 出国留学可能会改变生活，极大地丰富经历(T2 和 T3)。走出自己的舒适区，进入一个包括文化交流的学习环境，新的环境，获得更广阔的世界观，对任何年龄的学生来说都是一种美妙的体验。这种经历也可能会花很多钱，仔细的计划是至关重要的，以避免旅途开始后资金短缺或做出一些糟糕的财务举动，或者更糟糕的是，因为意想不到的财务问题而不得不回家。这里有一些保持低成本和良好规划的技巧。
 

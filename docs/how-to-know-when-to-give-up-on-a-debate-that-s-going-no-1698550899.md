@@ -1,6 +1,6 @@
 # 如何知道何时放弃一场毫无结果的辩论
 
-> 原文:[https://life hacker . com/how-to-know-when-to-give-on-a-debate-that-s-going-no-1698550899](https://lifehacker.com/how-to-know-when-to-give-up-on-a-debate-that-s-going-no-1698550899)
+> 原文：<https://lifehacker.com/how-to-know-when-to-give-up-on-a-debate-that-s-going-no-1698550899>
 
 有些辩论似乎会爆发成无意识的争论，没有人愿意试着去达成一致。为了避免在这种辩论中浪费时间，这里有一些危险信号需要注意，以及在退出之前如何挽救讨论。
 

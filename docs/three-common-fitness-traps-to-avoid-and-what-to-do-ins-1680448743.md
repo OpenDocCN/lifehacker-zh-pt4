@@ -1,6 +1,6 @@
 # 要避免的三个常见健身陷阱(以及应该怎么做)
 
-> 原文:[https://life hacker . com/three-common-fitness-traps-to-avoid-and-do-of-ins-1680448743](https://lifehacker.com/three-common-fitness-traps-to-avoid-and-what-to-do-ins-1680448743)
+> 原文：<https://lifehacker.com/three-common-fitness-traps-to-avoid-and-what-to-do-ins-1680448743>
 
 本杰明·富兰克林曾经说过，生命中有三件事是不可避免的:死亡、税收和太多的健康信息。好吧，他没有说最后一个，但这仍然是真的。健身压倒一切。我们通过做出让我们变得脆弱的愚蠢决定来进行补偿。让我们看看三种方法，我们可以防止自己成为自己的心理和营销人员的受害者。
 

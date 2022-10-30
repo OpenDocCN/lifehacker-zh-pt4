@@ -1,6 +1,6 @@
 # 最有用的节省空间的极客工具，留下你的包
 
-> 原文:[https://life hacker . com/the-most-used-saving-space-geek-tools-to-leave-your-b-1643347941](https://lifehacker.com/the-most-useful-space-saving-geek-tools-to-leave-your-b-1643347941)
+> 原文：<https://lifehacker.com/the-most-useful-space-saving-geek-tools-to-leave-your-b-1643347941>
 
 你不能总是带着一个包，有时候，你就是不想带。但这并不意味着你需要留下你的小工具和工具。有很多方法可以把你的极客必需品装进你的口袋。
 

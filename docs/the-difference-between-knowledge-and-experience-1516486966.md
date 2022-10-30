@@ -1,6 +1,6 @@
 # 知识和经验的区别
 
-> 原文:[https://life hacker . com/the-difference of-knowledge-and-experience-1516486966](https://lifehacker.com/the-difference-between-knowledge-and-experience-1516486966)
+> 原文：<https://lifehacker.com/the-difference-between-knowledge-and-experience-1516486966>
 
 知识和经验有什么区别，你的大脑是如何处理这两者的？创造性思维哪个更重要？缓冲区的贝尔贝丝库珀调查。
 

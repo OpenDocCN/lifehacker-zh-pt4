@@ -1,6 +1,6 @@
 # 请教专家:关于买车的一切
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-car-buying-1642857342](https://lifehacker.com/ask-an-expert-all-about-car-buying-1642857342)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-car-buying-1642857342>
 
 买车是一个重大决定，需要考虑很多因素。无论你是想要新车的味道，还是在寻找完美的二手车，你都在努力平衡你的需求和潜在成本。不会被骗。
 

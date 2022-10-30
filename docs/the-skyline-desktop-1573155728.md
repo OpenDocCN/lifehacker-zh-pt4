@@ -1,6 +1,6 @@
 # 天际线桌面
 
-> 原文:[https://lifehacker.com/the-skyline-desktop-1573155728](https://lifehacker.com/the-skyline-desktop-1573155728)
+> 原文：<https://lifehacker.com/the-skyline-desktop-1573155728>
 
 我们之前已经强调过一些的桌面，但是这个拱形的 Linux 桌面看起来很有趣，不管有没有壁纸。另外，它很容易配置。这是你需要的。
 

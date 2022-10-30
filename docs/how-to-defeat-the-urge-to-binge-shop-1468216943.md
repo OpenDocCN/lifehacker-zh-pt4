@@ -1,6 +1,6 @@
 # 如何战胜疯狂购物的冲动
 
-> 原文:[https://life hacker . com/how-to-faith-the-urge-to-binge-shop-1468216943](https://lifehacker.com/how-to-defeat-the-urge-to-binge-shop-1468216943)
+> 原文：<https://lifehacker.com/how-to-defeat-the-urge-to-binge-shop-1468216943>
 
 看似矛盾，但我爱节俭，也爱花钱。然而，在过去的几年里，我对节俭的热爱超过了对消费的热爱——这对我的储蓄有好处。是的，有时候花钱也是可以的。如果你有，而且你对现在和未来的财务状况感到满意，那就想尽一切办法花掉。但是我们很多人，包括我自己，在不该消费的时候消费。
 

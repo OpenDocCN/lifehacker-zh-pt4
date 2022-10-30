@@ -1,6 +1,6 @@
 # 最佳视频播放器和格式，延长 Windows 电池寿命
 
-> 原文:[https://life hacker . com/the-best-video-players-and-formats-for-long-battery-l-1556254833](https://lifehacker.com/the-best-video-players-and-formats-for-longer-battery-l-1556254833)
+> 原文：<https://lifehacker.com/the-best-video-players-and-formats-for-longer-battery-l-1556254833>
 
 所以你想在你的 Windows 笔记本电脑上看一两部电影，但附近可能没有插座。您选择的视频播放器和视频格式会对您的电池续航时间产生巨大影响。
 

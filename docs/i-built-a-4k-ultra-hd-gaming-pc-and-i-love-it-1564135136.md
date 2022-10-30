@@ -1,6 +1,6 @@
 # 我建造了一台 4K 超高清游戏电脑...我喜欢它
 
-> 原文:[https://kotaku . com/I-build-a-4k-ultra-HD-gaming-PC-and-I-love-it-1564135136](https://kotaku.com/i-built-a-4k-ultra-hd-gaming-pc-and-i-love-it-1564135136)
+> 原文：<https://kotaku.com/i-built-a-4k-ultra-hd-gaming-pc-and-i-love-it-1564135136>
 
 下一代显示器技术即将到来，我们的显示器可以显示的像素数量翻了两番，给我们四面楚歌的显卡带来了沉重的负担。组装一台适用于 4K 的游戏电脑需要什么？让我们在 AMD 的一点帮助下找出答案。
 

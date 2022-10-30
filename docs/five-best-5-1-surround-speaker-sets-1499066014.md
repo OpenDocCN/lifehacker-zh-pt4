@@ -1,6 +1,6 @@
 # 五套最佳 5.1 环绕音箱
 
-> 原文:[https://life hacker . com/five-best-5-1-surround-speaker-sets-1499066014](https://lifehacker.com/five-best-5-1-surround-speaker-sets-1499066014)
+> 原文：<https://lifehacker.com/five-best-5-1-surround-speaker-sets-1499066014>
 
 一套出色的环绕声扬声器可以让任何家庭影院充满丰富和充满活力的声音，无论您将它们放置在什么空间。然而，一套出色的扬声器不仅仅是扬声器本身——预算、尺寸、节省空间的设计、与多种设备的兼容性——这些都起着作用。本周，我们将根据您的提名，来看看五款最佳环绕声扬声器。
 

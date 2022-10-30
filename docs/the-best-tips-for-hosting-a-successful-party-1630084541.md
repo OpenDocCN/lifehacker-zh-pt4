@@ -1,6 +1,6 @@
 # 成功举办派对的最佳秘诀
 
-> 原文:[https://life hacker . com/the-best-tips-for-hosting-a-successful-party-1630084541](https://lifehacker.com/the-best-tips-for-hosting-a-successful-party-1630084541)
+> 原文：<https://lifehacker.com/the-best-tips-for-hosting-a-successful-party-1630084541>
 
 政党需要努力。事实上，如果它们不那么有趣，我们可能都会认为它们不值得我们去做。既然如此，有很多方法可以让聚会顺利进行。这里只是几个。
 

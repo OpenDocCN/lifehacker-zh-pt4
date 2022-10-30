@@ -1,6 +1,6 @@
 # 拥有一个完美、无压力假期的十大秘诀
 
-> 原文:[https://life hacker . com/top-10-tips-拥有一个完美的无压力假期-1722867267](https://lifehacker.com/top-10-tips-for-having-a-perfect-stress-free-vacation-1722867267)
+> 原文：<https://lifehacker.com/top-10-tips-for-having-a-perfect-stress-free-vacation-1722867267>
 
 度假的全部目的是放松和缓解压力，但通常情况下，你需要在休假后再休假一次来从休假中恢复过来。这里有十个建议，让你的假期成为真正的压力克星。
 

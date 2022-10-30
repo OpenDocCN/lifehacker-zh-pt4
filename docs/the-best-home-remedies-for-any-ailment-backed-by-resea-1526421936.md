@@ -1,6 +1,6 @@
 # 有研究支持的治疗任何疾病的最佳家庭疗法
 
-> 原文:[https://life hacker . com/the-best-home-remedies-for-any-disease-backed-by-resea-1526421936](https://lifehacker.com/the-best-home-remedies-for-any-ailment-backed-by-resea-1526421936)
+> 原文：<https://lifehacker.com/the-best-home-remedies-for-any-ailment-backed-by-resea-1526421936>
 
 家庭疗法是解决宿醉、头痛、痤疮等常见小问题的绝佳方法。但是对它们的研究有多少呢？我们来看看哪些背后有研究。
 

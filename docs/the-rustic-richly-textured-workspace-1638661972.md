@@ -1,6 +1,6 @@
 # 质朴、纹理丰富的工作空间
 
-> 原文:[https://life hacker . com/the-trust-rich-textured-workspace-1638661972](https://lifehacker.com/the-rustic-richly-textured-workspace-1638661972)
+> 原文：<https://lifehacker.com/the-rustic-richly-textured-workspace-1638661972>
 
 这座位于纽约市西村的阁楼式公寓以华丽的裸露砖墙、亮点色彩和复古家具为特色。
 

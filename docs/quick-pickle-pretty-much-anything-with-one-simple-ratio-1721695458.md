@@ -1,6 +1,6 @@
 # 用一个简单的比例快速腌制几乎任何东西
 
-> 原文:[https://life hacker . com/quick-pickle-pretty-much-any-one-simple-ratio-1721695458](https://lifehacker.com/quick-pickle-pretty-much-anything-with-one-simple-ratio-1721695458)
+> 原文：<https://lifehacker.com/quick-pickle-pretty-much-anything-with-one-simple-ratio-1721695458>
 
 无论是南瓜，西瓜皮，还是普通的老黄瓜，我们，我的朋友，都可以(快速)腌制。在对丰收的预期中，Epicurious 的聪明人想出了一个简单的腌制基础，它可以让你在心情激动时腌制任何东西。
 

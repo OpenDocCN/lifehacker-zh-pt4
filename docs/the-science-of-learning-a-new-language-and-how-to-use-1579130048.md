@@ -1,6 +1,6 @@
 # 学习一门新语言(以及如何使用它)的科学
 
-> 原文:[https://life hacker . com/the-science-of-learning-a-new-language-and-how-to-use-1579130048](https://lifehacker.com/the-science-of-learning-a-new-language-and-how-to-use-1579130048)
+> 原文：<https://lifehacker.com/the-science-of-learning-a-new-language-and-how-to-use-1579130048>
 
 学习新语言是儿童的自然本能，然而随着年龄的增长，这变得更加困难。作为成年人，我们可能处于劣势，但通过一些学习方法，你仍然可以给自己提供学习一门新语言的最佳机会。
 

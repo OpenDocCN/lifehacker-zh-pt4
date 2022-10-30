@@ -1,6 +1,6 @@
 # 大数字是如何让你的大脑和财务短路的
 
-> 原文:[https://life hacker . com/how-big-numbers-short-your-brain and your-finan-1518166831](https://lifehacker.com/how-big-numbers-short-circuit-your-brain-and-your-finan-1518166831)
+> 原文：<https://lifehacker.com/how-big-numbers-short-circuit-your-brain-and-your-finan-1518166831>
 
 很抱歉告诉你这个，但是你的大脑还没有进化到处理大数字的程度。在我们从狩猎采集者到工资奴隶的旅程中，智人从未完全进化出有效处理我们通常在购买汽车、办理抵押贷款和为退休储蓄时面临的高数字所需的心理机器。
 

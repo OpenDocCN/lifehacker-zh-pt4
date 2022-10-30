@@ -1,6 +1,6 @@
 # 如何安全安装 OS X Yosemite 测试版
 
-> 原文:[https://life hacker . com/how-to-safety-install-the-OS-x-Yosemite-beta-1609781530](https://lifehacker.com/how-to-safely-install-the-os-x-yosemite-beta-1609781530)
+> 原文：<https://lifehacker.com/how-to-safely-install-the-os-x-yosemite-beta-1609781530>
 
 OS X Yosemite 公开测试版今天出来了，既然是测试版软件， [你需要在安装](https://lifehacker.com/should-i-install-the-ios-8-and-os-x-yosemite-betas-1587109709) 之前多加小心。这并不意味着你不得不 [错过所有有趣的](http://lifehacker.com/all-the-new-stuff-in-os-x-10-10-yosemite-1584870045) ，这里是如何安装测试版而不打乱你的整个系统。
 

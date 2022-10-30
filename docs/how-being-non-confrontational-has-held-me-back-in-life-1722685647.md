@@ -1,6 +1,6 @@
 # 不对抗是如何阻碍了我的生活
 
-> 原文:[https://life hacker . com/how-being-non-对抗性-have-hold-me-back-in-life-1722685647](https://lifehacker.com/how-being-non-confrontational-has-held-me-back-in-life-1722685647)
+> 原文：<https://lifehacker.com/how-being-non-confrontational-has-held-me-back-in-life-1722685647>
 
 随着年龄的增长，我的温和态度和良好行为得到了高分。我是个“好孩子”，从不惹麻烦，也不大惊小怪。这种情况一直延续到成年，我像躲避瘟疫一样避开每一次争论。但是作为一个成年人，不对抗是有害无益的。
 

@@ -1,6 +1,6 @@
 # 每个人在家里都应该拥有的必备工具
 
-> 原文:[https://life hacker . com/the-essential-tiny-tool-kit-every one-should-have-at-hom-1643714563](https://lifehacker.com/the-essential-tiny-tool-kit-everyone-should-have-at-hom-1643714563)
+> 原文：<https://lifehacker.com/the-essential-tiny-tool-kit-everyone-should-have-at-hom-1643714563>
 
 每个人都需要拥有一定数量的工具，以帮助他们完成各种家务，但不是每个人都有空间容纳一个完整的工具包。所以只拿必需品。但是它们是什么呢？这里有一些你需要拥有的工具，可以在不占用宝贵的壁橱空间的情况下完成大多数日常修复项目。
 

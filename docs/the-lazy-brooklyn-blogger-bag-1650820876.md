@@ -1,6 +1,6 @@
 # 懒惰的布鲁克林博客包
 
-> 原文:[https://life hacker . com/the-lazy-Brooklyn-blogger-bag-1650820876](https://lifehacker.com/the-lazy-brooklyn-blogger-bag-1650820876)
+> 原文：<https://lifehacker.com/the-lazy-brooklyn-blogger-bag-1650820876>
 
 我并不是真的懒，但我喜欢保持事情简单，尽量不去想我带的是什么装备。这是我通常的日常设置。
 

@@ -1,6 +1,6 @@
 # 我该如何和同事约会？
 
-> 原文:[https://life hacker . com/how-do-I-navigate-与同事约会-1497162289](https://lifehacker.com/how-do-i-navigate-dating-a-coworker-1497162289)
+> 原文：<https://lifehacker.com/how-do-i-navigate-dating-a-coworker-1497162289>
 
 亲爱的生活黑客，我最近开始和一个同事约会。我们都想继续我们的关系，但我们不知道如何让我们共同的雇主参与进来。我们应该联系人力资源部吗？我们如何着手将生活和工作分开？
 

@@ -1,6 +1,6 @@
 # 奖励你免费酒店住宿的信用卡
 
-> 原文:[https://life hacker . com/the-credit-cards-that-reward-you-with-free-hotel-stays-1702665041](https://lifehacker.com/the-credit-cards-that-reward-you-with-free-hotel-stays-1702665041)
+> 原文：<https://lifehacker.com/the-credit-cards-that-reward-you-with-free-hotel-stays-1702665041>
 
 当谈到使用信用卡的好处时，现金返还和奖励里程只是冰山一角。除了通常的额外津贴，一些信用卡还提供免费酒店住宿。如果你想在享受信用卡优惠的同时享受一次免费旅行，这里有一些卡片供你考虑。
 

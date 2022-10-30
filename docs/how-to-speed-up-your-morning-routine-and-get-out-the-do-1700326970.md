@@ -1,6 +1,6 @@
 # 如何加快你早晨的例行公事，准时出门
 
-> 原文:[https://life hacker . com/how-to-speed your ' s morning-routine-and-out-the-do-1700326970](https://lifehacker.com/how-to-speed-up-your-morning-routine-and-get-out-the-do-1700326970)
+> 原文：<https://lifehacker.com/how-to-speed-up-your-morning-routine-and-get-out-the-do-1700326970>
 
 如果你真的能够在闹钟 响起的时候 [醒来，那么唯一阻止你准时出门的就是你早上的例行公事。这里有一些加快进度的建议，这样你就可以晚睡一会儿，多睡一会儿，还有时间为新的一天做准备。](https://lifehacker.com/how-to-stop-snoozing-and-get-yourself-out-of-bed-5934145) 
 

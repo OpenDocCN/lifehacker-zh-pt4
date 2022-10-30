@@ -1,6 +1,6 @@
 # 为什么我们吹嘘自己很忙(以及如何重新获得注意力)
 
-> 原文:[https://life hacker . com/why-we-brag-about-busy-and-how-re-focus-1591590935](https://lifehacker.com/why-we-brag-about-being-busy-and-how-to-regain-focus-1591590935)
+> 原文：<https://lifehacker.com/why-we-brag-about-being-busy-and-how-to-regain-focus-1591590935>
 
 我们有一个问题——奇怪的是，我们不仅知道它，我们还在庆祝它。就在今天，有人向我吹嘘说她太忙了，在过去的两周里，她平均每晚只睡四个小时。她没有抱怨；她为此感到自豪。她并不孤单。
 

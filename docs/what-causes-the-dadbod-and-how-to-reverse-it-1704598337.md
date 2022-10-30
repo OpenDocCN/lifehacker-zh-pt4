@@ -1,6 +1,6 @@
 # 什么导致了“Dadbod”(以及如何逆转它)
 
-> 原文:[https://life hacker . com/what-causes-the-dad BOD-and-how-to-reverse-it-1704598337](https://lifehacker.com/what-causes-the-dadbod-and-how-to-reverse-it-1704598337)
+> 原文：<https://lifehacker.com/what-causes-the-dadbod-and-how-to-reverse-it-1704598337>
 
 啊，“爸爸”这是一个最近创造的术语，它描述了一个男人的身体，他的肚子表明他在 NFL 周日喝了几千瓶啤酒。现在，他一点也不“胖”。事实上，他宽阔的肩膀表明他用卧推和卷发来平衡他的比萨饼摄入量。那么这个身体是如何产生的，你又是如何解除一个“爸爸”的呢？
 

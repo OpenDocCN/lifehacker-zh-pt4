@@ -1,6 +1,6 @@
 # 从薄荷中获取更多的中级指南
 
-> 原文:[https://life hacker . com/an-intermediates-guide-to-get-more-out-of-mint-1696389687](https://lifehacker.com/an-intermediates-guide-to-getting-more-out-of-mint-1696389687)
+> 原文：<https://lifehacker.com/an-intermediates-guide-to-getting-more-out-of-mint-1696389687>
 
 预算可能是一个拖累，但薄荷使它少了很多痛苦。这是免费的，很容易，而且它会自动跟踪你的消费。但是，如果你愿意挖掘和使用它的一些不太经常吹捧的功能，你真的可以把它变成一个发电站。
 

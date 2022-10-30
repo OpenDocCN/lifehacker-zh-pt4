@@ -1,6 +1,6 @@
 # 如何打败最常见的自我实现的健身预言
 
-> 原文:[https://life hacker . com/how-to-failed-the-most-common-self-fulfilling-fitness-p-1694598142](https://lifehacker.com/how-to-defeat-the-most-common-self-fulfilling-fitness-p-1694598142)
+> 原文：<https://lifehacker.com/how-to-defeat-the-most-common-self-fulfilling-fitness-p-1694598142>
 
 “我毁了我的饮食”是一个粉碎动机的短语。我们喜欢认为我们是自己健康生活的相当值得信赖的分析师，但我们经常是错的——并且做出我们自己的悲观分析实际上可能会导致糟糕的结果。
 

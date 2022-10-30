@@ -1,6 +1,6 @@
 # 如何同时处理买房和卖房
 
-> 原文:[https://life hacker . com/how-to-handle-buy-and-selling-a-home at-same-Tim-1689554379](https://lifehacker.com/how-to-handle-buying-and-selling-a-home-at-the-same-tim-1689554379)
+> 原文：<https://lifehacker.com/how-to-handle-buying-and-selling-a-home-at-the-same-tim-1689554379>
 
 买房是一项巨大的努力，文书工作、最后期限和研究可能会给你带来不小的压力。与此同时，卖掉一套房子，这可能会变成一个巨大的，令人无法抗拒的头痛。当你同时买卖房屋时，要记住以下几点。
 

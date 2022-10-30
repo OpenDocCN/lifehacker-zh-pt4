@@ -1,6 +1,6 @@
 # 如何定制 OS X 的外观和功能
 
-> 原文:[https://life hacker . com/how-to-customize-the-look-and-functional-of-OS-x-1613680553](https://lifehacker.com/how-to-customize-the-look-and-functionality-of-os-x-1613680553)
+> 原文：<https://lifehacker.com/how-to-customize-the-look-and-functionality-of-os-x-1613680553>
 
 人们通常认为 OS X 是一个受限的、不可定制的操作系统。但是如果你知道在哪里看，你可以改变你的 Mac 的外观和工作方式。下面是怎么做的。
 

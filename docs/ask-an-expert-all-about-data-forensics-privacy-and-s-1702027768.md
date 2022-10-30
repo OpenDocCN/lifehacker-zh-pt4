@@ -1,6 +1,6 @@
 # 请教专家:所有关于数据取证、隐私和安全的问题
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-data-forensics-privacy-and-s-1702027768](https://lifehacker.com/ask-an-expert-all-about-data-forensics-privacy-and-s-1702027768)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-data-forensics-privacy-and-s-1702027768>
 
 向 [极乐世界数码](https://www.elys.com/) 的杰森·艾迪问好。Elysium 进行数字取证和安全调查，通常与技术相关的法律事务组织合作。
 

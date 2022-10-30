@@ -1,6 +1,6 @@
 # 大白工作区
 
-> 原文:[https://lifehacker.com/the-baymax-workspace-1703881341](https://lifehacker.com/the-baymax-workspace-1703881341)
+> 原文：<https://lifehacker.com/the-baymax-workspace-1703881341>
 
 《大英雄 6》是一部有趣、娱乐性强的电影，今天的特色工作空间是为了纪念其中的一个主要角色。
 

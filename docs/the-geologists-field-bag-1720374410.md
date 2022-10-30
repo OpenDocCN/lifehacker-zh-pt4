@@ -1,6 +1,6 @@
 # 地质学家的野外包
 
-> 原文:[https://lifehacker.com/the-geologists-field-bag-1720374410](https://lifehacker.com/the-geologists-field-bag-1720374410)
+> 原文：<https://lifehacker.com/the-geologists-field-bag-1720374410>
 
 不管你的职业是什么，野外锻炼总是需要不同的工具。在《日常携带》中，地质学家 J.G .分享了他的包，里面装满了各种有趣的东西。
 

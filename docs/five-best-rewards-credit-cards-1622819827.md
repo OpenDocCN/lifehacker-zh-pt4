@@ -1,6 +1,6 @@
 # 五张最佳奖励信用卡
 
-> 原文:[https://life hacker . com/five-best-rewards-credit-cards-1622819827](https://lifehacker.com/five-best-rewards-credit-cards-1622819827)
+> 原文：<https://lifehacker.com/five-best-rewards-credit-cards-1622819827>
 
 如果你知道如何使用信用卡，它会是一个有用的工具，而积分卡会给有金融头脑的聪明购物者提供很多额外的好处。本周，我们将根据你们的提名选出五位最佳选手。
 

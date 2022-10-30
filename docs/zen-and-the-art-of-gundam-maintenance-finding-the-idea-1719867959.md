@@ -1,6 +1,6 @@
 # 禅宗与高达维修艺术:寻找理想的下班后爱好
 
-> 原文:[https://life hacker . com/Zen-and-the-art-of-gundam-maintenance-finding-the-idea-1719867959](https://lifehacker.com/zen-and-the-art-of-gundam-maintenance-finding-the-idea-1719867959)
+> 原文：<https://lifehacker.com/zen-and-the-art-of-gundam-maintenance-finding-the-idea-1719867959>
 
 我真的不喜欢在沙发上放松。矛盾的是，我对一切都很好奇，但当我的大脑不工作时，我很快就会感到无聊。我总是需要做一些事情。因此，我终于找到了晚上娱乐和放松的完美平衡，而不是回家后盯着另一个屏幕。
 

@@ -1,6 +1,6 @@
 # 每个人都可以在日常生活中使用的三个基本设计原则
 
-> 原文:[https://life hacker . com/three-basic-design-principles-every-every-can-use-in-every-1616278215](https://lifehacker.com/three-basic-design-principles-everyone-can-use-in-every-1616278215)
+> 原文：<https://lifehacker.com/three-basic-design-principles-everyone-can-use-in-every-1616278215>
 
 我们都喜欢好的设计，但不是每个人都有经验知道如何正确地做。即使你不是艺术家，每个人都可以学到一些在日常工作中有用的原则。
 

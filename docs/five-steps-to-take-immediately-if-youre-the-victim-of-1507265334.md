@@ -1,6 +1,6 @@
 # 如果你是身份盗窃的受害者，立即采取五个步骤
 
-> 原文:[https://life hacker . com/1507265334](https://lifehacker.com/five-steps-to-take-immediately-if-youre-the-victim-of-1507265334)
+> 原文：<https://lifehacker.com/five-steps-to-take-immediately-if-youre-the-victim-of-1507265334>
 
 身份盗窃已经连续 13 年在美国联邦贸易委员会提交的消费者投诉 名单中高居 [榜首，而且没有证据表明今年它会排在第 14 位。每年有多少身份盗窃的受害者？虽然我们还没有 2013 年的数字，但一份权威的](http://www.ftc.gov/news-events/press-releases/2013/02/ftc-releases-top-10-complaint-categories-2012) [报告](https://www.javelinstrategy.com/news/1387/92/More-Than-12-Million-Identity-Fraud-Victims-in-2012-According-to-Latest-Javelin-Strategy-Research-Report/d,pressRoomDetail) 称 2012 年的数字为 1260 万。
 

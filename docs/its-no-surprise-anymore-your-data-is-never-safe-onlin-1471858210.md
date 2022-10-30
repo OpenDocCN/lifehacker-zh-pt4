@@ -1,6 +1,6 @@
 # 这已经不足为奇了:你的数据在网上从来都不安全
 
-> 原文:[https://life hacker . com/its-no-surprise-any-more-your-data-is never-safe-onlin-1471858210](https://lifehacker.com/its-no-surprise-anymore-your-data-is-never-safe-onlin-1471858210)
+> 原文：<https://lifehacker.com/its-no-surprise-anymore-your-data-is-never-safe-onlin-1471858210>
 
 我有一些不幸的消息要告诉你:你的数据不安全。你不必惊慌失措，也不必拔掉笔记本电脑上的 Wi-Fi 卡，但你应该知道，这不仅不安全，而且你的数据可能不安全这一事实也不足为奇。
 

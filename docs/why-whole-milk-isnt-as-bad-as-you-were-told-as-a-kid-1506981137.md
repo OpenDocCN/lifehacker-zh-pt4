@@ -1,6 +1,6 @@
 # 为什么全脂牛奶没有你小时候被告知的那么糟糕
 
-> 原文:[https://life hacker . com/why-what-what-what-what-what-what-what-what-what-what-what-what-what-what-what-what-what-what-what-what-what-what-what-what-what-what-what-what-what-all-milk-not-as-you-should-as-a-kid-1506981137](https://lifehacker.com/why-whole-milk-isnt-as-bad-as-you-were-told-as-a-kid-1506981137)
+> 原文：<https://lifehacker.com/why-whole-milk-isnt-as-bad-as-you-were-told-as-a-kid-1506981137>
 
 几年前，当主要的营养哲学是高脂肪食物会让你变胖，低脂肪饮食会让你变瘦时，全脂牛奶受到了一些不好的指责。相反，我们被告知喝 2%或脱脂饮料。和大多数事情一样，事实更复杂，高脂牛奶可能应该在你的冰箱里有一席之地。
 

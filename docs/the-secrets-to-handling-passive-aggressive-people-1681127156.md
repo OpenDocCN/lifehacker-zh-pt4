@@ -1,6 +1,6 @@
 # 对付消极好斗的人的秘密
 
-> 原文:[https://gizmodo . com/the-secrets-to-handling-passive-aggressive-people-1681127156](https://gizmodo.com/the-secrets-to-handling-passive-aggressive-people-1681127156)
+> 原文：<https://gizmodo.com/the-secrets-to-handling-passive-aggressive-people-1681127156>
 
 与表现出消极攻击行为的人打交道很容易成为我们社会生活中最具挑战性的方面之一。以下是你需要了解的关于这种令人讨厌的性格怪癖，以及你如何处理那些以间接和挖苦的方式表达敌意的人。
 

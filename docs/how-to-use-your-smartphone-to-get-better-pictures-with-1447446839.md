@@ -1,6 +1,6 @@
 # 如何使用智能手机用真相机拍出更好的照片
 
-> 原文:[https://life hacker . com/how-to-use-your-smart phone-to-get-better-pictures-with-1447446839](https://lifehacker.com/how-to-use-your-smartphone-to-get-better-pictures-with-1447446839)
+> 原文：<https://lifehacker.com/how-to-use-your-smartphone-to-get-better-pictures-with-1447446839>
 
 大多数人只是出于纯粹的方便使用智能手机中的相机，但我们中的一些人更喜欢独立相机的卓越图像质量。在两者之间无法抉择？有一个中间地带:通过一些应用程序、技巧和技术，你的智能手机可以连接到你的相机上，更好地拍摄和分享。
 

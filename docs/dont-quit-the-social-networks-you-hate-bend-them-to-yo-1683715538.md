@@ -1,6 +1,6 @@
 # 不要退出你讨厌的社交网络。让他们屈从于你的意志
 
-> 原文:[https://life hacker . com/don-quit-the-social-networks-you-hate-bend-them-to-yo-1683715538](https://lifehacker.com/dont-quit-the-social-networks-you-hate-bend-them-to-yo-1683715538)
+> 原文：<https://lifehacker.com/dont-quit-the-social-networks-you-hate-bend-them-to-yo-1683715538>
 
 我们明白了:没有人喜欢脸书。推特上全是巨魔。社交网络可能是一种痛苦，但它们也是与朋友保持联系和与陌生人交谈的好方法。即便如此，每隔几周，我们都会听到有人想要彻底“退出”脸书。这就是为什么这是一个愚蠢的想法，你可以做些什么来让你同样快乐。
 

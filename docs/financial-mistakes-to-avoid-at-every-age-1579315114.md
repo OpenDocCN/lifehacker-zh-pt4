@@ -1,6 +1,6 @@
 # 每个年龄都要避免的财务错误
 
-> 原文:[https://life hacker . com/financial-errors-to-avoid-every-age-1579315114](https://lifehacker.com/financial-mistakes-to-avoid-at-every-age-1579315114)
+> 原文：<https://lifehacker.com/financial-mistakes-to-avoid-at-every-age-1579315114>
 
 我们都会犯错，从错误中学习是很棒的。但是从一开始就阻止它们发生就更好了。以下是人们在每个年龄段都会犯的一些典型的金钱错误，以及如何避免这些错误。
 

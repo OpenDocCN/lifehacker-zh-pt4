@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:7 月 31 日至 8 月 7 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-July-31-to-8-7-1722677297](https://lifehacker.com/this-weeks-most-popular-posts-july-31st-to-august-7th-1722677297)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-july-31st-to-august-7th-1722677297>
 
 本周，我们继续关注 Windows 10 隐私设置和开始菜单定制的细微差别，学习如何像成年人一样喝酒，讨论过于流行的应用程序，等等。这里回顾一下。
 

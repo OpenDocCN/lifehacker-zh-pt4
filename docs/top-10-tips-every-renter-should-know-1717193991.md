@@ -1,6 +1,6 @@
 # 每个租房者都应该知道的 10 大技巧
 
-> 原文:[https://life hacker . com/top-10-tips-every-renter-should-know-1717193991](https://lifehacker.com/top-10-tips-every-renter-should-know-1717193991)
+> 原文：<https://lifehacker.com/top-10-tips-every-renter-should-know-1717193991>
 
 当你是一个租房者时，你在搬家和决定住在哪里方面有更多的灵活性。然而，租房也有其他的利弊，所以这里是我们的 10 大建议，让租房生活变得更容易。
 

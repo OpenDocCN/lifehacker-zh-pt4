@@ -1,6 +1,6 @@
 # 用这些问题和你的搭档开始“金钱对话”
 
-> 原文:[https://life hacker . com/use-these-questions-to-start-the-money-talk-with-your-1705760534](https://lifehacker.com/use-these-questions-to-start-the-money-talk-with-your-1705760534)
+> 原文：<https://lifehacker.com/use-these-questions-to-start-the-money-talk-with-your-1705760534>
 
 [在一段关系中公开谈论金钱是重要的](http://lifehacker.com/how-to-stop-fighting-about-money-with-your-significant-1543085460)——也是困难的。通过比较你和你的搭档对这些问题的回答来开始对话。
 

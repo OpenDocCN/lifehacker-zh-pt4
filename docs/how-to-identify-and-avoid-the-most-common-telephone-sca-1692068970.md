@@ -1,6 +1,6 @@
 # 如何识别和避免最常见的电话诈骗
 
-> 原文:[https://life hacker . com/how-to-identify-and-avoid-the-most-common-phone-SCA-1692068970](https://lifehacker.com/how-to-identify-and-avoid-the-most-common-telephone-sca-1692068970)
+> 原文：<https://lifehacker.com/how-to-identify-and-avoid-the-most-common-telephone-sca-1692068970>
 
 尽管听起来可能已经过时，但电话诈骗仍然猖獗。美国财政部监察长 [每周收到 9000-12000 起投诉](https://www.youtube.com/watch?v=Ev1TLj5f7vo) 。根据普林斯顿研究调查协会“超过 50 岁的人不成比例地成为电话诈骗的受害者。”确保你和你爱的人知道如何识别和避免最常见的电话诈骗——就像这些。
 

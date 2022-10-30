@@ -1,6 +1,6 @@
 # 工具学校:从拼图开始基础木工
 
-> 原文:[https://life hacker . com/tool-school-start-basic-wood-with-a-jigsaw-1678988649](https://lifehacker.com/tool-school-start-basic-woodworking-with-a-jigsaw-1678988649)
+> 原文：<https://lifehacker.com/tool-school-start-basic-woodworking-with-a-jigsaw-1678988649>
 
 无论你是在制作脚凳还是桌子，你都可以用拼图开始你的木工生涯。 [拼图](http://www.amazon.com/Jig-Saws/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/tool-school-start-basic-woodworking-with-a-jigsaw-1678988649&asc_source=&ie=UTF8&node=552934&tag=kinjalifehackerlink-20) 可以像箭一样切割直线，也可以切割你选择的曲线，任何人都可以操作这种工具，无论经验如何。
 

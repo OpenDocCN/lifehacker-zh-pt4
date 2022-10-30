@@ -1,6 +1,6 @@
 # 宣布买车前你需要阅读的唯一指南
 
-> 原文:[https://jalopnik . com/announcing-the only-guide-you-before-you-b-1724659049](https://jalopnik.com/announcing-the-only-guide-you-need-to-read-before-you-b-1724659049)
+> 原文：<https://jalopnik.com/announcing-the-only-guide-you-need-to-read-before-you-b-1724659049>
 
 我们注意到，你们中的许多人根据我们所说的话购买或推荐汽车。为了方便读者，我们将所有车辆指南放在一个地方。期待你、你的堂兄和你堂兄的堂兄的妈妈给你的建议。
 

@@ -1,6 +1,6 @@
 # 请教专家:关于训狗的一切
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-dog-training-1694552629](https://lifehacker.com/ask-an-expert-all-about-dog-training-1694552629)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-dog-training-1694552629>
 
 每个人都喜欢狗，但是当你回到家看到被咬烂的沙发和散落在厨房地板上的垃圾时，这只小狗可能就不那么可爱了。训练是养狗和拥有狗的一个重要部分，因为即使是最可爱的狗狗也不总是表现出你想要的样子。
 

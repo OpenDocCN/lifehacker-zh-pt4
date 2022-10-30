@@ -1,6 +1,6 @@
 # 关于选择退休计划，你需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-choose-a retirement-1456689559](https://lifehacker.com/everything-you-need-to-know-about-choosing-a-retirement-1456689559)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-choosing-a-retirement-1456689559>
 
 现在征税还是以后征税？不幸的是，“完全免税”不是一个选项。但当涉及到你的退休储蓄时，你确实可以控制何时支付给山姆大叔。
 

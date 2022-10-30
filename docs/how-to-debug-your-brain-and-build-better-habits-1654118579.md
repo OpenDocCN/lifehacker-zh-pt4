@@ -1,6 +1,6 @@
 # 如何调试大脑，养成更好的习惯
 
-> 原文:[https://life hacker . com/how-to-debug-your-brain-and-build-better-habits-1654118579](https://lifehacker.com/how-to-debug-your-brain-and-build-better-habits-1654118579)
+> 原文：<https://lifehacker.com/how-to-debug-your-brain-and-build-better-habits-1654118579>
 
 如果你能像调试坏代码一样调试你的大脑，那不是很好吗？我们可能无法对自己重新编程，但我们可以利用调试的原则来帮助自己建立更好的习惯。以下是调试大脑的方法。
 

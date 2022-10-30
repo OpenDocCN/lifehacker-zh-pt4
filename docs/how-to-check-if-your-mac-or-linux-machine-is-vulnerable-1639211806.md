@@ -1,6 +1,6 @@
 # 如何检查你的 Mac 或 Linux 机器是否容易受到 Shellshock 的攻击
 
-> 原文:[https://life hacker . com/how-to-check-if-your-MAC-or-Linux-machine-is-vulnerable-1639211806](https://lifehacker.com/how-to-check-if-your-mac-or-linux-machine-is-vulnerable-1639211806)
+> 原文：<https://lifehacker.com/how-to-check-if-your-mac-or-linux-machine-is-vulnerable-1639211806>
 
 Shellshock，这个新发现的漏洞 [允许攻击者向你的机器](https://gizmodo.com/why-the-shellshock-bash-bug-could-be-even-worse-than-he-1639047786) 注入代码，使你的 Mac 或 Linux 面临恶意攻击的严重风险。以下是如何测试您的机器是否易受攻击。
 

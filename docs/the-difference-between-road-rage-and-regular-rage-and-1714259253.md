@@ -1,6 +1,6 @@
 # 公路暴怒和普通暴怒的区别(以及它的重要性)
 
-> 原文:[https://life hacker . com/the-difference-between-road-rage-and-1714259253](https://lifehacker.com/the-difference-between-road-rage-and-regular-rage-and-1714259253)
+> 原文：<https://lifehacker.com/the-difference-between-road-rage-and-regular-rage-and-1714259253>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-hk-c5jlk48s&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-hk-c5jlk48s&start=0) 
 

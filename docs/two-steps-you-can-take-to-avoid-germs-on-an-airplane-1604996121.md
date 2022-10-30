@@ -1,6 +1,6 @@
 # 在飞机上避免细菌的两个步骤
 
-> 原文:[https://life hacker . com/two-steps-you-can-take-to-avoid-the-bacteria-on-a-plant-1604996121](https://lifehacker.com/two-steps-you-can-take-to-avoid-germs-on-an-airplane-1604996121)
+> 原文：<https://lifehacker.com/two-steps-you-can-take-to-avoid-germs-on-an-airplane-1604996121>
 
 飞机非常适合旅行，但更适合传播疾病。NPR 采访了航空医学专家马克·詹德鲁博士，你可以做两件事来保持健康。
 

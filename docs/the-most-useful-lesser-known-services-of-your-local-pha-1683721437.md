@@ -1,6 +1,6 @@
 # 当地药房最有用但鲜为人知的服务
 
-> 原文:[https://life hacker . com/the-most-used-lesser-known-services-of-your-local-PHA-1683721437](https://lifehacker.com/the-most-useful-lesser-known-services-of-your-local-pha-1683721437)
+> 原文：<https://lifehacker.com/the-most-useful-lesser-known-services-of-your-local-pha-1683721437>
 
 众所周知，假期过后不久，药店会根据处方配药并出售廉价糖果。然而，如果你直到流感季节才冒险进去，你可能已经错过了街角药房可以提供的一些有用的服务。
 

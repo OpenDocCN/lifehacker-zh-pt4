@@ -1,6 +1,6 @@
 # 请教专家:关于使用 LinkedIn 的最佳方式
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-the-best-ways-to-use-LinkedIn-1697065328](https://lifehacker.com/ask-an-expert-all-about-the-best-ways-to-use-linkedin-1697065328)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-the-best-ways-to-use-linkedin-1697065328>
 
 我们大多数人都有 LinkedIn 的个人资料，即使我们不知道我们为什么要上这项服务。你实际上如何使用这个网站，你应该提供多少关于你自己的信息？
 

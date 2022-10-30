@@ -1,6 +1,6 @@
 # 如何隐藏你的色情
 
-> 原文:[https://lifehacker.com/how-to-hide-your-porn-1525454917](https://lifehacker.com/how-to-hide-your-porn-1525454917)
+> 原文：<https://lifehacker.com/how-to-hide-your-porn-1525454917>
 
 令人惊讶的是，很少有人愿意承认自己看色情片，所以可以理解你可能想隐藏自己的收藏，以免被人窥探。这里有几个方法。
 

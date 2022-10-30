@@ -1,6 +1,6 @@
 # 如何计算你的最大心率(你可能做错了)
 
-> 原文:[https://life hacker . com/how-to-calculate-you-probably-d-1683716934](https://lifehacker.com/how-to-calculate-your-max-heart-rate-youre-probably-d-1683716934)
+> 原文：<https://lifehacker.com/how-to-calculate-your-max-heart-rate-youre-probably-d-1683716934>
 
 如果你是一个将心率作为最大限度锻炼方式的人，我们有一个坏消息:你所依赖的数字——也就是你的最大心率——可能不准确。
 

@@ -1,6 +1,6 @@
 # 工具学校:优雅而坚固的手刨
 
-> 原文:[https://life hacker . com/tool-school-the-elegant-and-study-hand-plane-1715319410](https://lifehacker.com/tool-school-the-elegant-and-sturdy-hand-plane-1715319410)
+> 原文：<https://lifehacker.com/tool-school-the-elegant-and-sturdy-hand-plane-1715319410>
 
 手摇飞机是优雅的工具，如果护理得当，可以使用一生。以下是如何使用它们，以及如何让它们保持良好的状态，为各种场合做好准备。
 

@@ -1,6 +1,6 @@
 # 比起第三方的替代品，你更喜欢哪些股票应用？
 
-> 原文:[https://life hacker . com/what-stock-apps-do-you-like-better-third-party-alt-1652956640](https://lifehacker.com/what-stock-apps-do-you-like-better-than-third-party-alt-1652956640)
+> 原文：<https://lifehacker.com/what-stock-apps-do-you-like-better-than-third-party-alt-1652956640>
 
 我们经常谈论 [比](https://lifehacker.com/third-party-apps-that-are-better-than-the-official-coun-1582242852) 好多少，但这并不意味着所有的第一方应用都是垃圾。苹果、微软和谷歌都做出了一些相当出色的东西，所以让我们花点时间来欣赏它们。
 

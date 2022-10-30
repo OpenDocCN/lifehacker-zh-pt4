@@ -1,6 +1,6 @@
 # 如何停止成为一个任性的抱怨者
 
-> 原文:[https://life hacker . com/how-to-stop-be-a-peturance-whiner-1680019034](https://lifehacker.com/how-to-stop-being-a-petulant-whiner-1680019034)
+> 原文：<https://lifehacker.com/how-to-stop-being-a-petulant-whiner-1680019034>
 
 我们都会发牢骚——有些人比其他人更爱发牢骚。但是，除非你总是拿着满满的杯子走来走去，否则你可能会比你想象的更经常地发牢骚。然而，抑制这种行为是可能的，你做得越多，你就会越快乐。
 

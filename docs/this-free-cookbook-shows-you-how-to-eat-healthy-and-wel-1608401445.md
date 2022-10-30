@@ -1,6 +1,6 @@
 # 这本免费的食谱告诉你如何健康饮食，每天只需 4 美元
 
-> 原文:[https://life hacker . com/this-free-cookbook-show-how-to-eat-healthy-wel-1608401445](https://lifehacker.com/this-free-cookbook-shows-you-how-to-eat-healthy-and-wel-1608401445)
+> 原文：<https://lifehacker.com/this-free-cookbook-shows-you-how-to-eat-healthy-and-wel-1608401445>
 
 对大多数人来说，吃既健康又便宜的美食似乎是遥不可及的黄金三连击。学生作家符晓薇·布朗接受挑战，寻找一种每天 4 美元就能吃好的方法。结果是一本你可以免费下载的食谱。
 

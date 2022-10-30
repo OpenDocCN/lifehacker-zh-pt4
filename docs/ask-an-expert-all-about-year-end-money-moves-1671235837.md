@@ -1,6 +1,6 @@
 # 请教专家:年终资金动向
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-year-end-money-moves-1671235837](https://lifehacker.com/ask-an-expert-all-about-year-end-money-moves-1671235837)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-year-end-money-moves-1671235837>
 
 随着 2014 年接近尾声，重要的是让你的财务在新的一年井然有序，并考虑如何在税收上节省一点。时机很重要，无论你是希望注销一些商业购买还是进行慈善捐赠。
 

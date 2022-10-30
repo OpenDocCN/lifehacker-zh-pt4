@@ -1,6 +1,6 @@
 # 牛奶的最佳替代品是什么？
 
-> 原文:[https://life hacker . com/what ' s the best-alternative-to-milk-1479430034](https://lifehacker.com/what-is-the-best-alternative-to-milk-1479430034)
+> 原文：<https://lifehacker.com/what-is-the-best-alternative-to-milk-1479430034>
 
 亲爱的生活黑客，
 我听说 [牛奶实际上对你不好](https://lifehacker.com/you-dont-need-and-probably-shouldnt-have-milk-30781798) ，或者至少与许多替代选择相比是无益的。但是如果我不应该喝牛奶，最好的选择是什么？有好的吗？我听说过 most 的好消息和坏消息，所以我该如何决定？

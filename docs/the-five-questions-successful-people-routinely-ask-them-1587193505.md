@@ -1,6 +1,6 @@
 # 成功人士经常问自己的五个问题
 
-> 原文:[https://life hacker . com/the-five-questions-successful-people-routine-ask-them-1587193505](https://lifehacker.com/the-five-questions-successful-people-routinely-ask-them-1587193505)
+> 原文：<https://lifehacker.com/the-five-questions-successful-people-routinely-ask-them-1587193505>
 
 虽然每个人对职业成功都有不同的定义，但所有成功人士都有一个共同点，那就是努力超越前一天。前进的动力是关键，你可以通过问正确的问题来控制自己。
 

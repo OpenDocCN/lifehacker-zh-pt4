@@ -1,6 +1,6 @@
 # 钻石主屏幕
 
-> 原文:[https://lifehacker.com/the-diamond-home-screen-1696839162](https://lifehacker.com/the-diamond-home-screen-1696839162)
+> 原文：<https://lifehacker.com/the-diamond-home-screen-1696839162>
 
 谁需要水平线？这种主屏幕设计改变了一切，将所有重要的小部件和快捷方式放在一个时尚的菱形网格上。
 

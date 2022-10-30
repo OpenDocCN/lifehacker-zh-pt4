@@ -1,6 +1,6 @@
 # 如何在一天内让你的整个互联网生活更加安全
 
-> 原文:[https://life hacker . com/how-to-make-your-all-internet-life-in-on-1348598911](https://lifehacker.com/how-to-make-your-entire-internet-life-more-secure-in-on-1348598911)
+> 原文：<https://lifehacker.com/how-to-make-your-entire-internet-life-more-secure-in-on-1348598911>
 
 在 Lifehacker，我们谈论了很多关于 [隐私](http://lifehacker.com/tag/privacy) 和 [安全](http://lifehacker.com/tag/security) 的话题，虽然现在比你更安全相对容易，但感觉这需要做很多工作。因此，我们决定运行一些最流行的安全和隐私措施，从聊天加密到安全备份，并找到最简单的方法来确保您的在线生活安全，而不会造成太多不便。
 

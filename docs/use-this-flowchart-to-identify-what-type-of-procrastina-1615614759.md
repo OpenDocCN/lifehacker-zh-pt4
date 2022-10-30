@@ -1,6 +1,6 @@
 # 使用这个流程图来确定你是哪种类型的拖延者
 
-> 原文:[https://life hacker . com/use-this-flow-to-identify-what-type-of-prorastina-1615614759](https://lifehacker.com/use-this-flowchart-to-identify-what-type-of-procrastina-1615614759)
+> 原文：<https://lifehacker.com/use-this-flowchart-to-identify-what-type-of-procrastina-1615614759>
 
 拖延者浪费了太多时间，但是要克服这种不良倾向，你需要知道 [你为什么拖延](https://lifehacker.com/the-complete-guide-to-procrastinating-at-work-477166257) 。德保罗大学的 Joseph Ferrari 博士将一些基本类型的浪费时间的人进行了分类，并提出了解决方法。
 

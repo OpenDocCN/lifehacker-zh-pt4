@@ -1,6 +1,6 @@
 # 绿色主屏幕
 
-> 原文:[https://lifehacker.com/the-green-home-screen-1727029206](https://lifehacker.com/the-green-home-screen-1727029206)
+> 原文：<https://lifehacker.com/the-green-home-screen-1727029206>
 
 如果你喜欢大胆、高对比度的设计，今天的主屏幕就是为你准备的。这种设计主要使用黑色基底(这使得它非常适合 AMOLED 显示器)，用鲜明的绿色强调，以形成有吸引力的显示器。
 

@@ -1,6 +1,6 @@
 # 在五分钟内学会如何驾驶手动挡
 
-> 原文:[https://jalopnik . com/learn-how-to-drive-stick-in-five-minutes-1723451535](https://jalopnik.com/learn-how-to-drive-stick-in-five-minutes-1723451535)
+> 原文：<https://jalopnik.com/learn-how-to-drive-stick-in-five-minutes-1723451535>
 
  [https://jalopnik.com/embed/inset/iframe?id=youtube-video-KthjI2mMkFc&start=0](https://jalopnik.com/embed/inset/iframe?id=youtube-video-KthjI2mMkFc&start=0) 
 

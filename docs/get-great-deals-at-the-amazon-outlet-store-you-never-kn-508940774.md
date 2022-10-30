@@ -1,6 +1,6 @@
 # 在你从来不知道的亚马逊直销店获得优惠
 
-> 原文:[https://life hacker . com/get-great-deals-at-the-Amazon-outlet-store-you-never-kn-508940774](https://lifehacker.com/get-great-deals-at-the-amazon-outlet-store-you-never-kn-508940774)
+> 原文：<https://lifehacker.com/get-great-deals-at-the-amazon-outlet-store-you-never-kn-508940774>
 
 亚马逊经常赢得世界上最大的在线零售商的声誉，因为他们提供大量令人敬畏的折扣和服务，我们大多数人都不知道，直到他们出现多年。最新的？他们的虚拟直销店。
 

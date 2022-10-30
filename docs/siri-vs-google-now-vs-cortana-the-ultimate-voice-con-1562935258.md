@@ -1,6 +1,6 @@
 # Siri vs. Google Now vs. Cortana:终极语音控制对决
 
-> 原文:[https://gizmodo . com/Siri-vs-Google-now-vs-cortana-the-ultimate-voice-con-1562935258](https://gizmodo.com/siri-vs-google-now-vs-cortana-the-ultimate-voice-con-1562935258)
+> 原文：<https://gizmodo.com/siri-vs-google-now-vs-cortana-the-ultimate-voice-con-1562935258>
 
  [https://gizmodo.com/embed/inset/iframe?id=vimeo-112085940](https://gizmodo.com/embed/inset/iframe?id=vimeo-112085940) 
 

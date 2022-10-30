@@ -1,6 +1,6 @@
 # Leatherman Tread 评论:手镯多工具真的有用吗？
 
-> 原文:[https://gizmodo . com/leather man-tread-review-is-the-branch-multi tool-genu-1717101223](https://gizmodo.com/leatherman-tread-review-is-the-bracelet-multitool-genu-1717101223)
+> 原文：<https://gizmodo.com/leatherman-tread-review-is-the-bracelet-multitool-genu-1717101223>
 
 一款符合 TSA 标准的多功能工具，可以戴在手腕上。整洁！但是，它作为一种工具是否像男人味的手腕首饰一样好用呢？为了找到答案，我把它放在房子周围和自行车上。
 

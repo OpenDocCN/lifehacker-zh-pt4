@@ -1,6 +1,6 @@
 # 如何解决“我们应该在哪里吃饭？”彻底的争论
 
-> 原文:[https://life hacker . com/how-to-solve-the-where-we-should-eat-argument-once-a-1634801417](https://lifehacker.com/how-to-solve-the-where-should-we-eat-argument-once-a-1634801417)
+> 原文：<https://lifehacker.com/how-to-solve-the-where-should-we-eat-argument-once-a-1634801417>
 
 这是一场永恒的、令人疲惫和沮丧的斗争。你和一个朋友或你的另一半在一起，你们都很饿，你开始想知道另一个人会喜欢一个小牧场的味道。在诉诸谋杀和食人之前，试试下面这些技巧。
 

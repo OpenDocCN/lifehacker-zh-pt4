@@ -1,6 +1,6 @@
 # 为什么想得太长远会破坏你的成功
 
-> 原文:[https://life hacker . com/why-thinking-too-long-term-can-desruption-your-success-1688057984](https://lifehacker.com/why-thinking-too-long-term-can-sabotage-your-success-1688057984)
+> 原文：<https://lifehacker.com/why-thinking-too-long-term-can-sabotage-your-success-1688057984>
 
 当我们谈论时间管理时，短期思维会受到指责，但是如果你只关注你的长期目标，你可能会精疲力尽。忽视你眼前的、短期的需求只会让你压力更大，尽管你做了精心的计划。
 

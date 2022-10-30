@@ -1,6 +1,6 @@
 # 一个第三方应用程序可能泄露了数万张 Snapchat 照片
 
-> 原文:[https://gizmodo . com/a-third-party-app-may-have-leaved-of-s-1644811226](https://gizmodo.com/a-third-party-app-may-have-leaked-tens-of-thousand-of-s-1644811226)
+> 原文：<https://gizmodo.com/a-third-party-app-may-have-leaked-tens-of-thousand-of-s-1644811226>
 
 有人试图让“抢购”发生。
 

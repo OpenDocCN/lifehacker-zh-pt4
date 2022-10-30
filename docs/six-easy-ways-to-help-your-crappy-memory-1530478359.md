@@ -1,6 +1,6 @@
 # 六个简单的方法来帮助你糟糕的记忆
 
-> 原文:[https://life hacker . com/six-easy-ways-help-your ' s lappy-memory-1530478359](https://lifehacker.com/six-easy-ways-to-help-your-crappy-memory-1530478359)
+> 原文：<https://lifehacker.com/six-easy-ways-to-help-your-crappy-memory-1530478359>
 
 当丢失车钥匙、错过约会和忘记密码每天都在发生时，这就变得令人沮丧。如果你的记忆力不如以前那么好，不如你希望的那么好，这里有一些我最喜欢的简单方法来弥补“不完美”的记忆。
 

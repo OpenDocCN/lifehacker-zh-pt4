@@ -1,6 +1,6 @@
 # 如何在漫长的一天工作后保持旺盛的性欲
 
-> 原文:[https://life hacker . com/how-to-keep-your-sex-drive-up-after-long day-work-1690403209](https://lifehacker.com/how-to-keep-your-sex-drive-up-after-a-long-day-at-work-1690403209)
+> 原文：<https://lifehacker.com/how-to-keep-your-sex-drive-up-after-a-long-day-at-work-1690403209>
 
 整天坐在椅子上，盯着屏幕，与紧张的同事打交道，很难对性产生兴趣。没有人喜欢承认工作正在摧毁他们的性欲，但你可能会到达一个需要改变的点。这里有七个步骤可以让你在工作日保持甚至提高性欲。
 

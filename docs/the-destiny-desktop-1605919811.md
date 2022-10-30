@@ -1,6 +1,6 @@
 # 命运桌面
 
-> 原文:[https://lifehacker.com/the-destiny-desktop-1605919811](https://lifehacker.com/the-destiny-desktop-1605919811)
+> 原文：<https://lifehacker.com/the-destiny-desktop-1605919811>
 
 像许多人一样，我们急切地等待 Bungie 的最新标题，命运。Flickr 用户 [雅各布考菲尔德](https://www.flickr.com/photos/125797916@N05/) 尤其兴奋，满怀期待地定制了自己的桌面。如果你喜欢这个造型，以下是你也可以得到它的方法。
 

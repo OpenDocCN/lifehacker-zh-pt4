@@ -1,6 +1,6 @@
 # 盗版如何让公司受益，即使他们不承认
 
-> 原文:[https://life hacker . com/how-pirate-benefits-companies-even-if-they-done-admit-1649353452](https://lifehacker.com/how-piracy-benefits-companies-even-if-they-dont-admit-1649353452)
+> 原文：<https://lifehacker.com/how-piracy-benefits-companies-even-if-they-dont-admit-1649353452>
 
 在 Lifehacker 这里，我们已经谈论了很多关于盗版 合法性的 [话题，但实际上，你可能每天都在违法。然而，盗版有时也有它的好处。即使是拥有版权的公司。](https://lifehacker.com/do-you-pirate-media-you-already-own-5510752)
 

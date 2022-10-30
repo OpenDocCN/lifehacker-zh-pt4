@@ -1,6 +1,6 @@
 # 用这些壁纸为感恩节准备好你的桌面
 
-> 原文:[https://life hacker . com/get-your-desktop-ready-for-thanksgiving with these-wall-1463067141](https://lifehacker.com/get-your-desktop-ready-for-thanksgiving-with-these-wall-1463067141)
+> 原文：<https://lifehacker.com/get-your-desktop-ready-for-thanksgiving-with-these-wall-1463067141>
 
 感恩节快到了！用一些季节性壁纸来装点你的桌面，展示火鸡、馅饼、美食和乐趣。
 

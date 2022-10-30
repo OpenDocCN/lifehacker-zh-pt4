@@ -1,6 +1,6 @@
 # 你应该买哪一款手机在一张简便的流程图中有所解释
 
-> 原文:[https://gizmodo . com/which-phone-you-should-buy-in-one-handy-flowc-1520851857](https://gizmodo.com/which-phone-you-should-buy-explained-in-one-handy-flowc-1520851857)
+> 原文：<https://gizmodo.com/which-phone-you-should-buy-explained-in-one-handy-flowc-1520851857>
 
 外面有成吨的手机。很多选择。这很好，但也可能导致艰难的决定。哪个是给你的？我们正好有你需要的流程图。
 

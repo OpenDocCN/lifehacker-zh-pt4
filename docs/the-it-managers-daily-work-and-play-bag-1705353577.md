@@ -1,6 +1,6 @@
 # IT 经理的日常工作和娱乐包
 
-> 原文:[https://life hacker . com/the-it-managers-daily-work-and-play-bag-1705353577](https://lifehacker.com/the-it-managers-daily-work-and-play-bag-1705353577)
+> 原文：<https://lifehacker.com/the-it-managers-daily-work-and-play-bag-1705353577>
 
 作为一名既喜欢工作又喜欢娱乐的 IT 经理，意味着要在你的日常行囊中留出一些额外的空间。以下是 Lifehacker 读者 Chris Vega 随身携带的内容。
 

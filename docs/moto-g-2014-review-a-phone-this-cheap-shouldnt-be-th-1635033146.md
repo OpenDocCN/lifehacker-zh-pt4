@@ -1,6 +1,6 @@
 # Moto G (2014)评论:这么便宜的手机不应该这么好
 
-> 原文:[https://gizmodo . com/moto-g-2014-review-a-phone-this-cheap-should-not-th-1635033146](https://gizmodo.com/moto-g-2014-review-a-phone-this-cheap-shouldnt-be-th-1635033146)
+> 原文：<https://gizmodo.com/moto-g-2014-review-a-phone-this-cheap-shouldnt-be-th-1635033146>
 
 你现在进入了廉价智能手机的世界。你在便宜货箱里，最底层，最便宜的那种。放弃你对极速处理器、高像素相机、高级金属机身或 2K 屏幕的期望。此外，当你这么做的时候，不要认为“便宜”意味着“不好”我刚刚测试了新的 Moto G，它出奇的优秀。
 

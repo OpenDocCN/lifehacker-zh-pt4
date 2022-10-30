@@ -1,6 +1,6 @@
 # 如何停止购买你从不穿的衣服
 
-> 原文:[https://life hacker . com/how-to-stop-buying-you-never-wear-1566730349](https://lifehacker.com/how-to-stop-buying-clothes-you-never-wear-1566730349)
+> 原文：<https://lifehacker.com/how-to-stop-buying-clothes-you-never-wear-1566730349>
 
 我们都这样做——买我们穿过一次或两次的衣服，然后把它们放在衣柜的后面。这是对金钱的不良利用，也是一种组织混乱。但是通过一些深谋远虑和自我控制，你可以停止浪费金钱，开始买你真正会穿的衣服。
 

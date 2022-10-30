@@ -1,6 +1,6 @@
 # 为学习而制造:为什么你应该只为体验而制造东西
 
-> 原文:[https://life hacker . com/build-to-learn-why-you-should-make-things-for-the-just 1691087923](https://lifehacker.com/build-to-learn-why-you-should-make-things-just-for-the-1691087923)
+> 原文：<https://lifehacker.com/build-to-learn-why-you-should-make-things-just-for-the-1691087923>
 
 如果你曾经开发过类似应用程序的东西，你就会知道拥有真实用户带来的兴奋。没有什么比知道你帮助或娱乐了另一个人更好的了。所以，当你只为自己做东西时，可能会觉得是一种倒退，除非有一个很好的理由:帮助你学习。
 

@@ -1,6 +1,6 @@
 # 设置并了解您的新 iPhone、iPad 或 iPod Touch
 
-> 原文:[https://life hacker . com/set-up-and-get-know-your-new-iphone-ipad-or-ipod-t-5717449](https://lifehacker.com/set-up-and-get-to-know-your-new-iphone-ipad-or-ipod-t-5717449)
+> 原文：<https://lifehacker.com/set-up-and-get-to-know-your-new-iphone-ipad-or-ipod-t-5717449>
 
 你刚刚得到了一个设备:一个神奇的实体，它赋予了你无法理解的更多应用程序。我们将为您闪亮的新苹果玩具提供一些优秀的应用程序、提示和技巧，帮助您理解这一切。
 

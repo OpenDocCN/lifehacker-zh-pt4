@@ -1,6 +1,6 @@
 # 五款最佳膳食计划应用
 
-> 原文:[https://life hacker . com/five-best-meal-planning-apps-1533809184](https://lifehacker.com/five-best-meal-planning-apps-1533809184)
+> 原文：<https://lifehacker.com/five-best-meal-planning-apps-1533809184>
 
 通过 [计划你的膳食](https://lifehacker.com/how-to-plan-your-weekly-meals-stress-free-30791921) 会有很多收获。你吃更好、更健康的食物，为自己做更多的烹饪，对你吃的东西花更多的心思，尝试新的食谱，同时在杂货店省钱。然而，这可能有点令人生畏；筛选食谱并列出清单。这就是为什么会有 app 帮忙的原因。本周，我们来看五个最好的。
 

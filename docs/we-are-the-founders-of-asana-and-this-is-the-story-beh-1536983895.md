@@ -1,6 +1,6 @@
 # 我们是 Asana 的创始人，这是应用程序背后的故事
 
-> 原文:[https://life hacker . com/we-are-the-founders-of-asana-and-this-the-story-beh-1536983895](https://lifehacker.com/we-are-the-founders-of-asana-and-this-is-the-story-beh-1536983895)
+> 原文：<https://lifehacker.com/we-are-the-founders-of-asana-and-this-is-the-story-beh-1536983895>
 
 试图和你的团队一起管理大型项目有时会感觉像是在拆除炸弹时变戏法。在完成实际工作的同时，很难让每个人都保持一致。因此，当达斯汀·莫斯科维茨和贾斯汀·罗森斯坦帮助建立脸书，需要一个促进有效合作的工具时，他们决定建立自己的工具。那个工具变成了 [体式](https://lifehacker.com/asana-is-a-free-project-management-and-collaboration-to-5855549) 。我们采访了 Dustin 和 Justin，了解他们的过程、挑战以及对有抱负的开发人员的建议。
 

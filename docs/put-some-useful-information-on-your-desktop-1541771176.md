@@ -1,6 +1,6 @@
 # 在你的桌面上放一些有用的信息
 
-> 原文:[https://life hacker . com/put-some-used-information-on-your-desktop-1541771176](https://lifehacker.com/put-some-useful-information-on-your-desktop-1541771176)
+> 原文：<https://lifehacker.com/put-some-useful-information-on-your-desktop-1541771176>
 
 一般来说，你为你的桌面选择一个图像，这样它看起来就很好。但是如果你能有一个好的审美*和*一些有用的信息呢？这些信息图壁纸应该会有用。
 

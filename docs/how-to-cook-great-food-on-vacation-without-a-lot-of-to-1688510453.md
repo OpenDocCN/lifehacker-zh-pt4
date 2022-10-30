@@ -1,6 +1,6 @@
 # 如何在假期烹饪美食(不用很多工具)
 
-> 原文:[https://life hacker . com/how-to-cook-great-food-without-a-lot-to 1688510453](https://lifehacker.com/how-to-cook-great-food-on-vacation-without-a-lot-of-to-1688510453)
+> 原文：<https://lifehacker.com/how-to-cook-great-food-on-vacation-without-a-lot-of-to-1688510453>
 
 假期租赁并不完全适合家庭烹饪，但是用有限的工具做一些美味的食物是可能的。这里有一些事情要记住。
 

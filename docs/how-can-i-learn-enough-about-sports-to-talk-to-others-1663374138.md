@@ -1,6 +1,6 @@
 # 我怎样才能学到足够的体育知识来和别人交谈？
 
-> 原文:[https://life hacker . com/how-can-I-learn-up-to-talk-to-others-1663374138](https://lifehacker.com/how-can-i-learn-enough-about-sports-to-talk-to-others-1663374138)
+> 原文：<https://lifehacker.com/how-can-i-learn-enough-about-sports-to-talk-to-others-1663374138>
 
 亲爱的生活黑客，每个人都在办公室谈论体育。我不是特别感兴趣，但是我想要至少加入并且与我的同事建立联系。我怎样才能在不浪费大量时间的情况下学会社交呢？
 

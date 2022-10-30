@@ -1,6 +1,6 @@
 # 用这个图解指南从冰中幸存下来
 
-> 原文:[https://life hacker . com/survive-a fall-through-ice with this-illustrated-guide-1520029142](https://lifehacker.com/survive-a-fall-through-ice-with-this-illustrated-guide-1520029142)
+> 原文：<https://lifehacker.com/survive-a-fall-through-ice-with-this-illustrated-guide-1520029142>
 
 掉进一个冰冻的湖里可不是闹着玩的，而且要出来也不像看起来那么容易。《男子气概艺术》的人们已经整理出了一个很好的指南，可以帮助你在冰天雪地中幸存下来。
 

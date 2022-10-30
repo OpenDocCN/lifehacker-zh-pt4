@@ -1,6 +1,6 @@
 # 这个周末开始多喝水
 
-> 原文:[https://life hacker . com/start-drinking-more-water-this-weekend-1460539647](https://lifehacker.com/start-drinking-more-water-this-weekend-1460539647)
+> 原文：<https://lifehacker.com/start-drinking-more-water-this-weekend-1460539647>
 
 没有食物你可以活一个月左右，但是没有水只能活一个星期。作为人类，我们大部分是由这种物质组成的，大量饮用这种物质非常重要。也就是说，你可能不喜欢水，并发现喝足够的水有点困难——这个挑战你应该在这个周末克服。
 

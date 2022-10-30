@@ -1,6 +1,6 @@
 # 我从网上玩游戏中学到了如何与人打交道
 
-> 原文:[https://life hacker . com/what-I-learn-about-dealing-from-playing-g-1682012747](https://lifehacker.com/what-i-learned-about-dealing-with-people-from-playing-g-1682012747)
+> 原文：<https://lifehacker.com/what-i-learned-about-dealing-with-people-from-playing-g-1682012747>
 
 电子游戏不仅仅是娱乐时间的。带他们上网，他们甚至可以教我们一些如何与他人互动的事情。以下是我从网络游戏中学到的一些在现实生活中与人打交道的经验。
 

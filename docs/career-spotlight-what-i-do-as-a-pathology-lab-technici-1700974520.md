@@ -1,6 +1,6 @@
 # 职业聚焦:我作为一名病理实验室技术员做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-pathology-lab-technici-1700974520](https://lifehacker.com/career-spotlight-what-i-do-as-a-pathology-lab-technici-1700974520)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-pathology-lab-technici-1700974520>
 
 当医生将活检样本送到“实验室”时，他们指的是病理实验室，在那里技术人员和病理学家准备并分析癌症或其他疾病的组织。这里的绝对准确性是一个沉重的负担，但这都是一天的工作。
 

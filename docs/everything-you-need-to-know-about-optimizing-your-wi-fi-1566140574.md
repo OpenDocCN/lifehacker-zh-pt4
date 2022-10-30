@@ -1,6 +1,6 @@
 # 在一个视频中，您可以了解优化 Wi-Fi 的所有信息
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-optimizing-your-wi-fi-1566140574](https://lifehacker.com/everything-you-need-to-know-about-optimizing-your-wi-fi-1566140574)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-optimizing-your-wi-fi-1566140574>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-iZk0ksn0Yak&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-iZk0ksn0Yak&start=0) 
 

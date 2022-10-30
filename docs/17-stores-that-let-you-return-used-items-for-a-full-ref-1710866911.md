@@ -1,6 +1,6 @@
 # 17 家商店让你退回用过的物品，获得全额退款
 
-> 原文:[https://life hacker . com/17-stores-that-let-you-return-for-a-full-ref-1710866911](https://lifehacker.com/17-stores-that-let-you-return-used-items-for-a-full-ref-1710866911)
+> 原文：<https://lifehacker.com/17-stores-that-let-you-return-used-items-for-a-full-ref-1710866911>
 
 你有没有过这样的经历:买了东西，拿回家撕开，却发现它很烂，或者不合身，或者根本不是你想象的那样？然后意识到，既然你打开了它，你就不能归还它，并且永远被它困住。幸运的是，一些零售商会让你退回用过的物品，不会问任何问题。
 

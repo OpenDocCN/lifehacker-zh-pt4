@@ -1,6 +1,6 @@
 # 在您的城市免费乘坐 Lyft 的三种方式
 
-> 原文:[https://life hacker . com/three-way-to-get-free-lyft-rides-in-your-city-1631000736](https://lifehacker.com/three-ways-to-get-free-lyft-rides-in-your-city-1631000736)
+> 原文：<https://lifehacker.com/three-ways-to-get-free-lyft-rides-in-your-city-1631000736>
 
 拼车应用已经便宜了很多，但是如果你知道去哪里找，你可以找到很好的交易。Lyft 在每个城市都有免费乘车服务，我们知道有三种方式可以让您免费乘车。
 

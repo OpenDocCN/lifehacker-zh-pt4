@@ -1,6 +1,6 @@
 # 尼泊尔桌面
 
-> 原文:[https://lifehacker.com/the-nepali-desktop-1657719128](https://lifehacker.com/the-nepali-desktop-1657719128)
+> 原文：<https://lifehacker.com/the-nepali-desktop-1657719128>
 
 读者 [Brisngr](http://roshangautam.kinja.com/) 热爱尼泊尔的自然美景，并将其与 OS X Yosemite 和几个 bersicht 小工具相结合，制作了一个好看、实用的桌面，既有启发性又能提供信息。以下是您也可以设置这一切的方法。
 

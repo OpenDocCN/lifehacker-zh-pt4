@@ -1,6 +1,6 @@
 # 如何克服工作量瘫痪并重新投入行动
 
-> 原文:[https://life hacker . com/how-to-over-workload-placement-and-get-back-into-AC-1693169798](https://lifehacker.com/how-to-overcome-workload-paralysis-and-get-back-into-ac-1693169798)
+> 原文：<https://lifehacker.com/how-to-overcome-workload-paralysis-and-get-back-into-ac-1693169798>
 
 我们都很忙，但有时我们会经历工作堆积如山，似乎永远也不会结束的时期。你可能有太多的工作要做，以至于你甚至不敢开始。这时，你需要后退一步，深呼吸，开始分清主次。
 

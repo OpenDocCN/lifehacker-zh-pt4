@@ -1,6 +1,6 @@
 # 如何立即获得 iOS 8 的(一些)最佳功能
 
-> 原文:[https://life hacker . com/how-to-get-some-of-the-best-features-of-IOs-8-right-n-1584977909](https://lifehacker.com/how-to-get-some-of-the-best-features-of-ios-8-right-n-1584977909)
+> 原文：<https://lifehacker.com/how-to-get-some-of-the-best-features-of-ios-8-right-n-1584977909>
 
 iOS 8 今天宣布推出一大堆 [很酷的新功能](https://lifehacker.com/all-the-new-stuff-in-ios-8-1584893352) ，但要到秋天才能上市。如果你现在就渴望得到其中的一些特性，这里有一些方法。
 

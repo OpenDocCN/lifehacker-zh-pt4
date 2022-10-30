@@ -1,6 +1,6 @@
 # 失业后要采取的财务措施
 
-> 原文:[https://life hacker . com/the-financial-moves-to-make-after-your-job-1634261741](https://lifehacker.com/the-financial-moves-to-make-after-losing-your-job-1634261741)
+> 原文：<https://lifehacker.com/the-financial-moves-to-make-after-losing-your-job-1634261741>
 
 不管你是被解雇还是被解雇，丢掉工作都很糟糕。这需要付出情感代价，除此之外，你还要担心自己的财务状况。以下是发生这种情况时你应该采取的财务措施。
 

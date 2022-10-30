@@ -1,6 +1,6 @@
 # 如何克服一份工作对“工作经验年限”的要求
 
-> 原文:[https://life hacker . com/how-to-over-a-jobs-years-of-experience-requirements-1567659254](https://lifehacker.com/how-to-overcome-a-jobs-years-of-experience-requiremen-1567659254)
+> 原文：<https://lifehacker.com/how-to-overcome-a-jobs-years-of-experience-requiremen-1567659254>
 
 *技能:检查。学历:查。体验:没那么多。当你知道自己有能力胜任一份工作，但工作要求却说你太没有经验时，你该怎么办？职场专家在* [*栈交流*](http://workplace.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=workplace-115) *提供一些有益的建议。*
 

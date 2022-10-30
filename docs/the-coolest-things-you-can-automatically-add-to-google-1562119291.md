@@ -1,6 +1,6 @@
 # 你可以自动添加到谷歌日历的最酷的东西
 
-> 原文:[https://life hacker . com/the-cool-things-you-can-automatically-add-to-Google-1562119291](https://lifehacker.com/the-coolest-things-you-can-automatically-add-to-google-1562119291)
+> 原文：<https://lifehacker.com/the-coolest-things-you-can-automatically-add-to-google-1562119291>
 
 谷歌日历是一个很棒的工具。虽然很多人可能知道你可以导入预先做好的日历，上面有各种假期 的列表，但你可以用这项服务做更多很酷的事情，要么是内置的，要么可能用简单的脚本和 IFTTT 食谱。
 

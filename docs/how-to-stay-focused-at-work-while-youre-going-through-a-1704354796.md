@@ -1,6 +1,6 @@
 # 当你经历分手时，如何在工作中保持专注
 
-> 原文:[https://life hacker . com/how-to-stay-focus-in-work-while you-through-a-1704354796](https://lifehacker.com/how-to-stay-focused-at-work-while-youre-going-through-a-1704354796)
+> 原文：<https://lifehacker.com/how-to-stay-focused-at-work-while-youre-going-through-a-1704354796>
 
 分手不仅会扼杀浪漫，还会扰乱你生活的方方面面。你不想做你喜欢的事情，你无法停止想前任，你可能会发现难以置信地难以集中精力工作。如果你在分手期间很难保持高效，这里有一些方法可以帮你度过难关。
 

@@ -1,6 +1,6 @@
 # 你可能不知道的五个 3DS 功能
 
-> 原文:[https://kotaku . com/five-3ds-features-you-may-not-know-on-1697555159](https://kotaku.com/five-3ds-features-you-might-not-know-about-1697555159)
+> 原文：<https://kotaku.com/five-3ds-features-you-might-not-know-about-1697555159>
 
 尽管只有口袋大小，3DS 确实有一些秘密。3DS 可以做一些你可能意识不到的事情！
 

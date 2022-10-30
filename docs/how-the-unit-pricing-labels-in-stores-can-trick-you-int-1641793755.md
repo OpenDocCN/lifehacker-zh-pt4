@@ -1,6 +1,6 @@
 # 商店里的单价标签是如何欺骗你花更多钱的
 
-> 原文:[https://life hacker . com/how-the-unit-pricing-labels-in-stores-can-trick-you-int-1641793755](https://lifehacker.com/how-the-unit-pricing-labels-in-stores-can-trick-you-int-1641793755)
+> 原文：<https://lifehacker.com/how-the-unit-pricing-labels-in-stores-can-trick-you-int-1641793755>
 
 [单价](https://lifehacker.com/look-for-unit-pricing-to-save-money-at-the-grocery-stor-5987916) 使得比较产品——从一个品牌到另一个品牌或不同尺寸之间——更像是比较苹果和苹果，因此更容易看出哪个商品*真正为你节省了最多的钱*。不幸的是，你在杂货店看到的标签上的单价并不总是可靠的。
 

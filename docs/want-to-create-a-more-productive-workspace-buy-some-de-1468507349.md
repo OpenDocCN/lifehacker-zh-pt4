@@ -1,6 +1,6 @@
 # 为什么桌上植物能让你更有效率
 
-> 原文:[https://life hacker . com/want-to-create-a-more-productive-workspace-buy-some-de-1468507349](https://lifehacker.com/want-to-create-a-more-productive-workspace-buy-some-de-1468507349)
+> 原文：<https://lifehacker.com/want-to-create-a-more-productive-workspace-buy-some-de-1468507349>
 
 更高的生产率可能只需要去一趟温室。说真的。办公室植物提供了“微修复”——让我们的大脑一整天都有机会充电。
 

@@ -1,6 +1,6 @@
 # 如何规划完美的公路旅行
 
-> 原文:[https://life hacker . com/how-to-plan-the-perfect-road-trip-1581847075](https://lifehacker.com/how-to-plan-the-perfect-road-trip-1581847075)
+> 原文：<https://lifehacker.com/how-to-plan-the-perfect-road-trip-1581847075>
 
 又到了一年中的这个时候:是时候把你的朋友或家人打包上车，上路了。规划您的完美公路旅行可能是一个令人筋疲力尽的考验，但我们在这里提供帮助。
 

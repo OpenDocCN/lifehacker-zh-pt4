@@ -1,6 +1,6 @@
 # 欢迎来到 Lifehacker 第四届年度邪恶周
 
-> 原文:[https://life hacker . com/welcome-to-life hacker-fourth-annual-evil-week-1453143089](https://lifehacker.com/welcome-to-lifehackers-fourth-annual-evil-week-1453143089)
+> 原文：<https://lifehacker.com/welcome-to-lifehackers-fourth-annual-evil-week-1453143089>
 
 随着万圣节越来越近，我们放松了我们的道德标准，并着眼于生活黑客的黑暗面。欢迎来到 Lifehacker 的第四个邪恶周。
 

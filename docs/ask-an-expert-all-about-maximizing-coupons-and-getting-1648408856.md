@@ -1,6 +1,6 @@
 # 问专家:所有关于最大化优惠券和获得最佳交易
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-maximizing-of-coupons-and-get-1648408856](https://lifehacker.com/ask-an-expert-all-about-maximizing-coupons-and-getting-1648408856)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-maximizing-coupons-and-getting-1648408856>
 
 随着假期即将来临，毫无疑问，当我们外出购物时，我们都希望节省一美元。无论是剪优惠券还是在网上搜索最优惠的商品，你都可以使用各种策略来省钱。
 

@@ -1,6 +1,6 @@
 # 马赛克主屏幕
 
-> 原文:[https://lifehacker.com/the-mosaic-home-screen-1670066851](https://lifehacker.com/the-mosaic-home-screen-1670066851)
+> 原文：<https://lifehacker.com/the-mosaic-home-screen-1670066851>
 
 问任何一个 Windows Phone 用户，他们都会告诉你方形磁贴是启动应用程序的好方法。但是你有没有想过 45 度角会更好？是的，今天的主屏幕就是这么古怪。
 

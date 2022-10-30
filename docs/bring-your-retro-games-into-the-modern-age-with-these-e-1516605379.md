@@ -1,6 +1,6 @@
 # 用这些模拟器技巧将你的复古游戏带入现代
 
-> 原文:[https://life hacker . com/bring-your-retro-games-with these-e-1516605379](https://lifehacker.com/bring-your-retro-games-into-the-modern-age-with-these-e-1516605379)
+> 原文：<https://lifehacker.com/bring-your-retro-games-into-the-modern-age-with-these-e-1516605379>
 
 你可能已经知道你可以在你的电脑 、 [平板电脑或者带模拟器的手机](http://lifehacker.com/how-to-turn-your-android-or-iphone-into-a-portable-retr-5849961) 上玩你最喜欢的复古游戏。但是模拟器的好处不仅仅是节省娱乐柜的空间，它们还可以让你的游戏看起来和玩起来比原来的系统更好。这里有一些方法可以让那些过时的旧游戏变得现代化。
 

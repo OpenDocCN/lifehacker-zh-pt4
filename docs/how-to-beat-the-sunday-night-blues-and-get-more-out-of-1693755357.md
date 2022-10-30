@@ -1,6 +1,6 @@
 # 如何战胜周日晚上的忧郁，让你的周末过得更充实
 
-> 原文:[https://life hacker . com/how-to-beat the Sunday-night-blues-and-get-more-out-of-1693755357](https://lifehacker.com/how-to-beat-the-sunday-night-blues-and-get-more-out-of-1693755357)
+> 原文：<https://lifehacker.com/how-to-beat-the-sunday-night-blues-and-get-more-out-of-1693755357>
 
 看到一件好事结束是令人难过的，这也是为什么我们大多数人在周日会感到有点沮丧。你突然意识到星期一即将来临，你开始感到恐惧。即使你喜欢你的工作，这种焦虑也会让你一天都不开心。这个周末，提前计划，把周日的忧郁扼杀在萌芽状态。
 

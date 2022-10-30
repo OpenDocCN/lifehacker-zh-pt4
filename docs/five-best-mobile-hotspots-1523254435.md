@@ -1,6 +1,6 @@
 # 五个最佳移动热点
 
-> 原文:[https://lifehacker.com/five-best-mobile-hotspots-1523254435](https://lifehacker.com/five-best-mobile-hotspots-1523254435)
+> 原文：<https://lifehacker.com/five-best-mobile-hotspots-1523254435>
 
 在旅途中接入高速互联网并不意味着一定要使用某人的大开 Wi-Fi。有很多很好的 3G 和 4G 热点可以完成这项工作，不需要花费太多，而且足够小，可以放在口袋里，以备不时之需。无论你是在旅途中还是家里没有有线电视，这里有五个最好的移动热点让你保持联系。
 

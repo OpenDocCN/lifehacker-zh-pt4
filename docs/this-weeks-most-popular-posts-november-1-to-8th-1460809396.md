@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:11 月 1 日至 8 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-November-1-to-8-1460809396](https://lifehacker.com/this-weeks-most-popular-posts-november-1-to-8th-1460809396)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-november-1-to-8th-1460809396>
 
 本周我们 [学习了科学上喝咖啡的最佳时间](https://lifehacker.com/the-scientifically-best-time-to-drink-your-coffee-1456767721)[用我们的 iPads 换了 200 美元](http://lifehacker.com/get-200-at-target-with-any-ipad-trade-in-even-a-first-1458268904)[得到了现在安卓 KitKat 的最佳功能](http://lifehacker.com/how-to-get-the-best-features-of-android-kitkat-now-1456739585)[挂上了终极厨房小抄](http://lifehacker.com/this-kitchen-cheat-sheet-has-weights-measures-cuts-of-1458393112) 。这里回顾一下。
 

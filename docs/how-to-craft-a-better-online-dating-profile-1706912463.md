@@ -1,6 +1,6 @@
 # 如何制作更好的网上约会档案
 
-> 原文:[https://life hacker . com/how-to-craft-a-better-online-dating-profile-1706912463](https://lifehacker.com/how-to-craft-a-better-online-dating-profile-1706912463)
+> 原文：<https://lifehacker.com/how-to-craft-a-better-online-dating-profile-1706912463>
 
 网上约会最令人畏惧的部分(除了，你知道，和新认识的人交谈)是建立个人资料——然而这是最重要的部分之一。这份尴尬的个人简历是人们看到的第一件东西，它可能意味着约会和未回复信息的区别。以下是如何制作一份能让你脱颖而出而不感到尴尬的个人资料。
 

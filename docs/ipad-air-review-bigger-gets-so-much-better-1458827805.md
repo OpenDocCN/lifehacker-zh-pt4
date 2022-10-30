@@ -1,6 +1,6 @@
 # iPad Air 评论:越大越好
 
-> 原文:[https://gizmodo . com/ipad-air-review-bigger-gets-so-more-better-1458827805](https://gizmodo.com/ipad-air-review-bigger-gets-so-much-better-1458827805)
+> 原文：<https://gizmodo.com/ipad-air-review-bigger-gets-so-much-better-1458827805>
 
 很难想象第一代 iPad 问世才三年，因为*平板电脑*已经成为我们日常生活的一部分。当然以前有平板电脑，但没有我们今天知道和使用的*平板电脑*。虽然 iPad 永远改变了个人电脑，但它基本上没有改变——尤其是在外观上。也就是说，直到现在。
 

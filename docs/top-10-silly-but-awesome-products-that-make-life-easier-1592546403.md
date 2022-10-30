@@ -1,6 +1,6 @@
 # 让生活变得更简单的 10 大愚蠢但令人敬畏的产品
 
-> 原文:[https://life hacker . com/top-10-傻乎乎但很棒的-让生活更简单的产品-1592546403](https://lifehacker.com/top-10-silly-but-awesome-products-that-make-life-easier-1592546403)
+> 原文：<https://lifehacker.com/top-10-silly-but-awesome-products-that-make-life-easier-1592546403>
 
 有 [很多小玩意和小发明](https://lifehacker.com/top-10-gadgets-you-should-have-in-your-go-bag-5858925)[让你的生活更轻松](http://lifehacker.com/rejuvenate-your-workspace-with-these-office-supply-favo-5364380) 。然而，有些比其他的更傻一些——以至于它们看起来像是玩笑产品。这里有几个听起来很疯狂，但实际上很管用的小玩意和产品。
 

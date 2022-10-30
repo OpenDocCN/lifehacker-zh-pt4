@@ -1,6 +1,6 @@
 # 不寻常的 YouTube 频道实际上教会了你一些东西
 
-> 原文:[https://life hacker . com/unregular-YouTube-channels-that-actually-teach-you-someth-1693101828](https://lifehacker.com/unusual-youtube-channels-that-actually-teach-you-someth-1693101828)
+> 原文：<https://lifehacker.com/unusual-youtube-channels-that-actually-teach-you-someth-1693101828>
 
 尽管存在问题，YouTube 是一个学习新事物的好地方。一些渠道是直截了当的和指导性的，但是其他的使用古怪和有趣的人或方法来教你一些新的东西。让我们列出值得订阅的伟大作品。
 

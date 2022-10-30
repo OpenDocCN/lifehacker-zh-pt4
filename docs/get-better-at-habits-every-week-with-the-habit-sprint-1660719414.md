@@ -1,6 +1,6 @@
 # 通过每周一次的习惯冲刺，养成更好的习惯(并坚持下去)
 
-> 原文:[https://life hacker . com/get-better-at-habits-weekly-with-the-habits-sprint-1660719414](https://lifehacker.com/get-better-at-habits-every-week-with-the-habit-sprint-1660719414)
+> 原文：<https://lifehacker.com/get-better-at-habits-every-week-with-the-habit-sprint-1660719414>
 
 大多数人在培养新习惯时面临的一个问题是，当事情出错时，习惯改变就会失败。这是因为每个习惯计划都是从幻想开始的:“这是我希望事情会如何发展。”当现实出现阻碍时，计划就被打破了。
 

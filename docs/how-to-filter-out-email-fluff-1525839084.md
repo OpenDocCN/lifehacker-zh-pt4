@@ -1,6 +1,6 @@
 # 如何过滤掉邮件中的“绒毛”
 
-> 原文:[https://life hacker . com/how-to-fill-out-email-fluff-1525839084](https://lifehacker.com/how-to-filter-out-email-fluff-1525839084)
+> 原文：<https://lifehacker.com/how-to-filter-out-email-fluff-1525839084>
 
 首席执行官关心的事情很多，但可以说最重要的事情之一是他们的时间。无论是经营财富 500 强公司还是创业公司，首席执行官们都有很多事情要做，在全球经济中，每一秒都很重要。
 

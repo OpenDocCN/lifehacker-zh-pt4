@@ -1,6 +1,6 @@
 # 最好的动作相机是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-action-camera-1710482626](https://lifehacker.com/whats-the-best-action-camera-1710482626)
+> 原文：<https://lifehacker.com/whats-the-best-action-camera-1710482626>
 
 无论你是想要一台可以在骑山地自行车或玩滑板时绑在头上的相机，还是想要一台可以放在汽车仪表板上捕捉疯狂司机或保护自己免受欺诈的相机，你都有大量的选择。本周，我们想听听他们的想法。
 

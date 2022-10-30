@@ -1,6 +1,6 @@
 # 最好的 iPhone 闹钟应用
 
-> 原文:[https://life hacker . com/the-best-alarm-clock-app-for-iphone-5860145](https://lifehacker.com/the-best-alarm-clock-app-for-iphone-5860145)
+> 原文：<https://lifehacker.com/the-best-alarm-clock-app-for-iphone-5860145>
 
 iTunes 商店的闹钟数量几乎和待办应用一样多，所以很难选择合适的。在我们的测试中，我们发现 Wake Alarm Clock 是最好的，这要归功于它良好的功能和可靠的可靠性。
 

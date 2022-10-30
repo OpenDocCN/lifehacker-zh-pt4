@@ -1,6 +1,6 @@
 # 四个残酷的事实会让你成为一个更健康的人
 
-> 原文:[https://life hacker . com/four-harsh-truth-that-will-be-make-you-a-healthy-person-1684899154](https://lifehacker.com/four-harsh-truths-that-will-make-you-a-healthier-person-1684899154)
+> 原文：<https://lifehacker.com/four-harsh-truths-that-will-make-you-a-healthier-person-1684899154>
 
 如果你对自己的健康完全满意，就不要读这篇文章。这不是给你的。给自己一个鼓励，省下滚动的时间。对于你们其余的人来说，以开放的心态对待我将要说的话，也许你会成为一个更健康的人。
 

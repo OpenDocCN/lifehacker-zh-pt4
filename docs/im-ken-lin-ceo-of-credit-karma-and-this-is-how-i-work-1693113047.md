@@ -1,6 +1,6 @@
 # 我是林肯，信贷业的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-ken-Lin-CEO-of-credit-karma-and-this-is-how-I-work-1693113047](https://lifehacker.com/im-ken-lin-ceo-of-credit-karma-and-this-is-how-i-work-1693113047)
+> 原文：<https://lifehacker.com/im-ken-lin-ceo-of-credit-karma-and-this-is-how-i-work-1693113047>
 
 你的信用评分真的是你的财务因果报应的表现，不是吗？好的和坏的行为反映在那个不祥的数字上。这就是为什么 [Credit Karma](https://www.creditkarma.com/) 提供了一种免费的方式来关注你的信用并监控你的财务健康状况。
 

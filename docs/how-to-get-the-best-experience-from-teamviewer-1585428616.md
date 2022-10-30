@@ -1,6 +1,6 @@
 # 如何从 TeamViewer 获得最佳体验
 
-> 原文:[https://life hacker . com/how-to-get-the-best-experience-from-teamviewer-1585428616](https://lifehacker.com/how-to-get-the-best-experience-from-teamviewer-1585428616)
+> 原文：<https://lifehacker.com/how-to-get-the-best-experience-from-teamviewer-1585428616>
 
 众所周知，[【TeamViewer】](http://www.teamviewer.com/en/index.aspx)、Windows、Mac 和 Linux 的远程桌面客户端 [在我们这个地方](https://lifehacker.com/most-popular-remote-desktop-tool-teamviewer-1511020644) 很流行。它免费且易于使用，但有时远程访问会感觉笨拙和迟缓。这些提示会让你的 TeamViewer 体验非常流畅，你会觉得你的家用电脑就在你面前。
 

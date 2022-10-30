@@ -1,6 +1,6 @@
 # 我们因技术而失去的技能(以及如何找回它们)
 
-> 原文:[https://life hacker . com/the-skills-we ve-lost-to-technology-and-how-to-get them-1641465499](https://lifehacker.com/the-skills-weve-lost-to-technology-and-how-to-get-them-1641465499)
+> 原文：<https://lifehacker.com/the-skills-weve-lost-to-technology-and-how-to-get-them-1641465499>
 
 技术通常使我们的生活更容易。这也使得我们不必练习一些基本技能。使用智能手机多年后，我们中的许多人甚至记不起电话号码。以下是如何找回重要技能的方法。
 

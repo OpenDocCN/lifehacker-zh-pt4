@@ -1,6 +1,6 @@
 # 此图将带您完成四分钟的锻炼
 
-> 原文:[https://life hacker . com/this-graphic-walks-you-through the four-minute-1564411819](https://lifehacker.com/this-graphic-walks-you-through-the-four-minute-workout-1564411819)
+> 原文：<https://lifehacker.com/this-graphic-walks-you-through-the-four-minute-workout-1564411819>
 
 我们已经提到对于那些已经很活跃的人来说，四分钟的锻炼对保持活跃和良好状态大有帮助 。如果你不记得那项锻炼需要什么，这张图片会带你浏览这些锻炼，以及每项锻炼需要多长时间。
 

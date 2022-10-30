@@ -1,6 +1,6 @@
 # 大学前的夏天你需要做的一切:清单
 
-> 原文:[https://life hacker . com/everything-you-need to do the summer-before-a-1704012158](https://lifehacker.com/everything-you-need-to-do-the-summer-before-college-a-1704012158)
+> 原文：<https://lifehacker.com/everything-you-need-to-do-the-summer-before-college-a-1704012158>
 
 上大学前的那个夏天可能是一场活动的旋风，尽管令人兴奋，但事情很容易被遗漏或推迟到最后一分钟。为了让事情变得更顺利，这里有一个你应该注意的事情的清单。
 

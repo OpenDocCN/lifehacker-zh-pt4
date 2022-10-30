@@ -1,6 +1,6 @@
 # 五款最佳智能恒温器
 
-> 原文:[https://life hacker . com/five-best-smart-恒温器-1717145893](https://lifehacker.com/five-best-smart-thermostats-1717145893)
+> 原文：<https://lifehacker.com/five-best-smart-thermostats-1717145893>
 
 一个好的恒温器可以为你节省电费，让你的家保持舒适，甚至了解你的习惯和偏好 。也就是说，现在有大量易于安装、可定制且灵活的恒温器。本周我们将根据你们的提名选出五位最佳选手。
 

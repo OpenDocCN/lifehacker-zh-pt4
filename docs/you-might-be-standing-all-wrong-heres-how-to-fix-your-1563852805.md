@@ -1,6 +1,6 @@
 # 你可能站错了。以下是如何修复你的不平衡
 
-> 原文:[https://life hacker . com/you-may-be-standing-all-wrong-heres-how-to-fix-your-1563852805](https://lifehacker.com/you-might-be-standing-all-wrong-heres-how-to-fix-your-1563852805)
+> 原文：<https://lifehacker.com/you-might-be-standing-all-wrong-heres-how-to-fix-your-1563852805>
 
 站着。只是你做的一些事情，对吧(比如 [呼吸](http://lifehacker.com/you-might-be-breathing-ineffectively-heres-how-to-fix-1547766439) )？事实是，有一种完美的对齐和平衡的站立方式...和我们许多人的不平衡方式。
 

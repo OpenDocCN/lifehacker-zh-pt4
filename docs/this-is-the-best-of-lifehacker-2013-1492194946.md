@@ -1,6 +1,6 @@
 # 这是 Lifehacker 2013 的精华
 
-> 原文:[https://life hacker . com/this-is-the-best-of-life hacker-2013-1492194946](https://lifehacker.com/this-is-the-best-of-lifehacker-2013-1492194946)
+> 原文：<https://lifehacker.com/this-is-the-best-of-lifehacker-2013-1492194946>
 
 每年年底，我们都会回顾一下我们最受欢迎的帖子，以供回忆(并补上你可能错过的任何东西)。这里是对 2013 年 Lifehacker 的最后一次回顾。新年快乐
 

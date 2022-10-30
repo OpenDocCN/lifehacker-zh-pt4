@@ -1,6 +1,6 @@
 # 为什么有创造力的天才经常保持一张凌乱的桌子
 
-> 原文:[https://life hacker . com/why-creative-genius-only-keep-a-disty-desk-1534885018](https://lifehacker.com/why-creative-geniuses-often-keep-a-messy-desk-1534885018)
+> 原文：<https://lifehacker.com/why-creative-geniuses-often-keep-a-messy-desk-1534885018>
 
 史蒂夫·乔布斯、阿尔伯特·爱因斯坦和马克·吐温。这三个幻想家有什么共同点？他们的工作空间都很乱。
 

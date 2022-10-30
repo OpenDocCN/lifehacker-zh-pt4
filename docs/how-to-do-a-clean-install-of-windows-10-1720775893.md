@@ -1,6 +1,6 @@
 # 如何全新安装 Windows 10
 
-> 原文:[https://life hacker . com/how-do-a-clean-install-of-windows-10-1720775893](https://lifehacker.com/how-to-do-a-clean-install-of-windows-10-1720775893)
+> 原文：<https://lifehacker.com/how-to-do-a-clean-install-of-windows-10-1720775893>
 
 Windows 10 终于来了，你的电脑会自动提示你升级。但是如果你想从头开始，你可以做一个全新的安装——你只需要按照正确的顺序执行几个步骤。
 

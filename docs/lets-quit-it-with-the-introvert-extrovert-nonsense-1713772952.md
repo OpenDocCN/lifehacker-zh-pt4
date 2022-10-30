@@ -1,6 +1,6 @@
 # 让我们停止这种内向的废话吧
 
-> 原文:[https://life hacker . com/let-quit-it-with-the-intrint-outsider-nullness-1713772952](https://lifehacker.com/lets-quit-it-with-the-introvert-extrovert-nonsense-1713772952)
+> 原文：<https://lifehacker.com/lets-quit-it-with-the-introvert-extrovert-nonsense-1713772952>
 
 在过去的几年里，我们听说了很多关于内向和外向的人之间的重要区别。当我们阅读个性描述时，我们都发出了集体的叹息，心想:“这就是我！”但是就像许多性格刻板印象一样，这些对于理解我们自己并不是很有用。
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:2 月 14 日至 21 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-2 月 14 日至 21 日-1527760517](https://lifehacker.com/this-weeks-most-popular-posts-february-14th-to-21st-1527760517)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-february-14th-to-21st-1527760517>
 
 本周我们 [在没有任何装备的情况下健身](https://lifehacker.com/this-table-of-exercises-shows-you-how-to-get-fit-withou-1525971528)[改造了我们的旧笔记本电脑](http://lifehacker.com/top-10-ways-to-repurpose-your-old-laptop-1522986846)[让网飞更加牛逼](http://lifehacker.com/8-tricks-and-downloads-to-make-netflix-even-more-awesom-1526017078)[变成了电子表格忍者](http://lifehacker.com/four-skills-that-will-turn-you-into-a-spreadsheet-ninj-1525058930) 。这里回顾一下。
 

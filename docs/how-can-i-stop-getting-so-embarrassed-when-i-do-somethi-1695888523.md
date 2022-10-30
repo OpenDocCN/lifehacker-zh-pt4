@@ -1,6 +1,6 @@
 # 我怎么才能在做傻事的时候不那么尴尬呢？
 
-> 原文:[https://life hacker . com/how-can-I-stop-getting-so-hanger-when-I-do-somethi-1695888523](https://lifehacker.com/how-can-i-stop-getting-so-embarrassed-when-i-do-somethi-1695888523)
+> 原文：<https://lifehacker.com/how-can-i-stop-getting-so-embarrassed-when-i-do-somethi-1695888523>
 
 亲爱的 Lifehacker，
 每次我做一些尴尬的事情时，我都发现自己被吓呆了。有时这是有保证的，但其他时候我觉得我只是在纠结一些无关紧要的事情。我怎样才能不为每一个小失误而抓狂呢？

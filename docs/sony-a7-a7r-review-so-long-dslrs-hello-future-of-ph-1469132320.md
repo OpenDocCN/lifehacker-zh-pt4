@@ -1,6 +1,6 @@
 # 索尼 A7，A7r 回顾:这么长的数码单反，你好摄影的未来
 
-> 原文:[https://gizmodo . com/Sony-a7-a7r-review-so-long-dslrs-hello-future-of-ph-1469132320](https://gizmodo.com/sony-a7-a7r-review-so-long-dslrs-hello-future-of-ph-1469132320)
+> 原文：<https://gizmodo.com/sony-a7-a7r-review-so-long-dslrs-hello-future-of-ph-1469132320>
 
 全画幅相机已经成为最高端数码单反相机的代名词——最大、最贵。不再是了。一种新型的相机在这里，它的脚很轻，但却拥有专业级设备之外的最佳图像质量，它始于索尼的 [新 A7 系列](https://gizmodo.com/sony-a7r-and-a7-first-impressions-full-frame-power-pa-1456083926) 。
 

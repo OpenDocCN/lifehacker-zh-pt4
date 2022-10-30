@@ -1,6 +1,6 @@
 # 我是如何成为能在房间里工作的人的
 
-> 原文:[https://life hacker . com/how-I-because-the-kind-of-an-work-a-room-1467569726](https://lifehacker.com/how-i-became-the-kind-of-person-who-can-work-a-room-1467569726)
+> 原文：<https://lifehacker.com/how-i-became-the-kind-of-person-who-can-work-a-room-1467569726>
 
 我做到了。我去了一个不认识任何人的鸡尾酒会，成功地聊了两个小时。(不是对自己。我实际上和其他人交谈过。)我从来不擅长那种你应该走进一个满是陌生人的房间，然后带着“人脉”走出去的社交活动。
 

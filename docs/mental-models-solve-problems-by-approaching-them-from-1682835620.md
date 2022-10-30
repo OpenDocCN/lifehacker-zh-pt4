@@ -1,6 +1,6 @@
 # 心智模型:从新的角度解决问题
 
-> 原文:[https://life hacker . com/mental-models-solve-problems-by-approach-them-from-1682835620](https://lifehacker.com/mental-models-solve-problems-by-approaching-them-from-1682835620)
+> 原文：<https://lifehacker.com/mental-models-solve-problems-by-approaching-them-from-1682835620>
 
 俗话说，如果你唯一的工具是锤子，那么所有的问题看起来都像钉子。当你处理更抽象的问题时，同样的逻辑也适用。“心智模型”是一种看待世界的方式，有时你需要通过学习你常规之外的东西来扩展你的视角，超越你通常的心智工具箱。
 

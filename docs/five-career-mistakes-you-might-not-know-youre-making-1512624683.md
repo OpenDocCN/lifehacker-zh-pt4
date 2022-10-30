@@ -1,6 +1,6 @@
 # 你可能不知道自己正在犯的五个职业错误
 
-> 原文:[https://life hacker . com/five-career-missons-you-may-not-know-you-making-1512624683](https://lifehacker.com/five-career-mistakes-you-might-not-know-youre-making-1512624683)
+> 原文：<https://lifehacker.com/five-career-mistakes-you-might-not-know-youre-making-1512624683>
 
 无论你选择什么职业，我们都有一个共同点:我们都在努力在职业生涯中做到最好。当然，我们不会故意说老板的闲话，不能在最后期限前完成任务，或者做任何危及我们工作或职业的事情。
 

@@ -1,6 +1,6 @@
 # 最好的 5.1 环绕音箱系统是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-5-1-surround-speaker-system-1497892938](https://lifehacker.com/whats-the-best-5-1-surround-speaker-system-1497892938)
+> 原文：<https://lifehacker.com/whats-the-best-5-1-surround-speaker-system-1497892938>
 
 一个好的 5.1 环绕音箱系统可以让任何空间的家庭影院栩栩如生，但哪些才是最好的呢？当然，你可以买你能负担得起的最贵的，声学设计的，但是不仅仅是钱在起作用。本周我们想知道你认为哪些值得考虑。
 

@@ -1,6 +1,6 @@
 # 当你不是老板时，如何建立一个更强大的团队
 
-> 原文:[https://life hacker . com/how-to-build-a-strong-team-when you-re-not-the-boss-1704713385](https://lifehacker.com/how-to-build-a-stronger-team-when-you-re-not-the-boss-1704713385)
+> 原文：<https://lifehacker.com/how-to-build-a-stronger-team-when-you-re-not-the-boss-1704713385>
 
 一个强大的、相互支持的团队会对你是否喜欢你的工作以及你的职业发展产生巨大的影响。如果你发现自己希望有更好的同事，以下是你可以做的——即使你没有权力。
 

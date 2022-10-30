@@ -1,6 +1,6 @@
 # 细木工 101:如何用销钉固定木板
 
-> 原文:[https://life hacker . com/joinery-101-attach-boards-with-downs-1634739215](https://lifehacker.com/joinery-101-attach-boards-with-dowels-1634739215)
+> 原文：<https://lifehacker.com/joinery-101-attach-boards-with-dowels-1634739215>
 
 在上一篇关于细木工 101 的文章中，我们看了一下用夹子和胶水连接木板。榫钉是一种简单的方法，通过使用小钉将物品固定在一起，使胶合接缝更加牢固。
 

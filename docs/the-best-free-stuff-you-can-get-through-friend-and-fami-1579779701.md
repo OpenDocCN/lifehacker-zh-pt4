@@ -1,6 +1,6 @@
 # 通过朋友和家人的推荐，你可以得到最好的免费资料
 
-> 原文:[https://life hacker . com/the-best-free-stuff-you-can-get-through friend and fami-1579779701](https://lifehacker.com/the-best-free-stuff-you-can-get-through-friend-and-fami-1579779701)
+> 原文：<https://lifehacker.com/the-best-free-stuff-you-can-get-through-friend-and-fami-1579779701>
 
 转诊计划是一个三赢的局面。你从与朋友分享服务中得到额外的好处，你的朋友也可能得到奖金，或者至少发现一个很酷的新公司，而公司得到更多的顾客。让我们分享爱。
 

@@ -1,6 +1,6 @@
 # 降低恒温器温度的五个理由(除了省钱)
 
-> 原文:[https://life hacker . com/five-reasons-you-should-lower-your-thermostat-backed-b-1525010287](https://lifehacker.com/five-reasons-you-should-lower-your-thermostat-backed-b-1525010287)
+> 原文：<https://lifehacker.com/five-reasons-you-should-lower-your-thermostat-backed-b-1525010287>
 
 降低恒温器的温度不仅仅可以减少你的能源账单(尽管我们认为这个好处太棒了，所以它仍然在清单上)。将温度降低两到五度也可以帮助你减肥，并提供更好的睡眠。
 

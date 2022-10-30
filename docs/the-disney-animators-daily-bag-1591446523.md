@@ -1,6 +1,6 @@
 # 迪士尼动画师的日常包
 
-> 原文:[https://life hacker . com/the-Disney-animators-daily-bag-1591446523](https://lifehacker.com/the-disney-animators-daily-bag-1591446523)
+> 原文：<https://lifehacker.com/the-disney-animators-daily-bag-1591446523>
 
 为迪士尼工作可不是闹着玩的。正如约翰·埃德加·帕克向我们展示的那样，当你在迪士尼卡通工作室的 CG 动画部门时，你需要为各种事情做好准备。
 

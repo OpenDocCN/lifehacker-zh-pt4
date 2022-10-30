@@ -1,6 +1,6 @@
 # 五个最好的 DVD 抓轨工具
 
-> 原文:[https://lifehacker.com/five-best-dvd-ripping-tools-380702](https://lifehacker.com/five-best-dvd-ripping-tools-380702)
+> 原文：<https://lifehacker.com/five-best-dvd-ripping-tools-380702>
 
 如果您想在旅途中随身携带您的电影，或者只是想清理那些物理光盘，但将您的电影和电视节目保留在您的 HTPC 上，您需要首先翻录它们。值得庆幸的是，有很多很棒的工具可以让这个过程变得简单，并让你可以在任何你选择的设备上播放文件，无论你何时选择观看它们。根据你的提名，这里有五个最好的。[跳]
 

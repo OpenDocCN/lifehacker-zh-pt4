@@ -1,6 +1,6 @@
 # 奶昔健康吗？
 
-> 原文:[https://lifehacker.com/are-smoothies-healthy-1696270191](https://lifehacker.com/are-smoothies-healthy-1696270191)
+> 原文：<https://lifehacker.com/are-smoothies-healthy-1696270191>
 
 亲爱的生活黑客，我喜欢冰沙，认为它们非常健康。毕竟，它们大多是水果，有时甚至含有一些绿叶蔬菜和蛋白质。但是我有朋友不会碰这种东西，他们说思慕雪含糖太多，基本上就是糖果。怎么回事？奶昔不健康吗？
 

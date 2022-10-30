@@ -1,6 +1,6 @@
 # 游戏室工作区
 
-> 原文:[https://lifehacker.com/the-playroom-workspace-1579618197](https://lifehacker.com/the-playroom-workspace-1579618197)
+> 原文：<https://lifehacker.com/the-playroom-workspace-1579618197>
 
 在家里带着孩子工作并不容易 ，但是拥有一个既能工作又能照看孩子的空间会有所帮助。今天的特色工作区从办公室无缝过渡到儿童区，到处都有丰富的创造力。
 

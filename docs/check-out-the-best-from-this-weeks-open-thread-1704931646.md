@@ -1,6 +1,6 @@
 # 查看本周公开的帖子中的最佳帖子
 
-> 原文:[https://life hacker . com/check-out-the-best-from the-this-weeks-open-thread-1704931646](https://lifehacker.com/check-out-the-best-from-this-weeks-open-thread-1704931646)
+> 原文：<https://lifehacker.com/check-out-the-best-from-this-weeks-open-thread-1704931646>
 
 *   [这是您车库的绝佳储物解决方案。](http://hackerspace.lifehacker.com/i-was-browsing-through-the-family-handyman-website-when-1704714614)T3】
 *   [你用剩下的罐子做什么？](http://hackerspace.lifehacker.com/what-do-you-use-your-leftover-glass-jars-for-i-ve-got-1704756401)T3】

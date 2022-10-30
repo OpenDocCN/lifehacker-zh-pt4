@@ -1,6 +1,6 @@
 # 你什么时候有了第一部手机？
 
-> 原文:[https://life hacker . com/when-do-you-get-you-first-phone-1460370431](https://lifehacker.com/when-did-you-get-your-first-cell-phone-1460370431)
+> 原文：<https://lifehacker.com/when-did-you-get-your-first-cell-phone-1460370431>
 
 当手机首次出现时，很难在野外看到手机。这年头，很少看到有人不带手机的。你第一次是什么时候？
 

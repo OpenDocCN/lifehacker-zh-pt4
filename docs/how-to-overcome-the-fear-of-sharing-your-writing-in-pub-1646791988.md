@@ -1,6 +1,6 @@
 # 如何克服在公共场合分享自己作品的恐惧
 
-> 原文:[https://life hacker . com/how-to-over-the-fear-of-sharing-your-writing-in-pub-1646791988](https://lifehacker.com/how-to-overcome-the-fear-of-sharing-your-writing-in-pub-1646791988)
+> 原文：<https://lifehacker.com/how-to-overcome-the-fear-of-sharing-your-writing-in-pub-1646791988>
 
 你可能会想，在公开博客和写书八年后，我会完全不害怕将我的作品公之于众。当然，你可能错了。点击“发布”仍然让我紧张。
 

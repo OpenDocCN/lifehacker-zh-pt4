@@ -1,6 +1,6 @@
 # 设置并了解您的新 Mac
 
-> 原文:[https://life hacker . com/set-up-and-get-know-your-new-MAC-5717450](https://lifehacker.com/set-up-and-get-to-know-your-new-mac-5717450)
+> 原文：<https://lifehacker.com/set-up-and-get-to-know-your-new-mac-5717450>
 
 你已经拿到了必备的苹果产品开箱视频，并在脸书上吹嘘你的全新 Mac 电脑，但现在是时候进入正题了。无论你是否是 Mac 新手，以下是如何设置和开始使用的方法。
 

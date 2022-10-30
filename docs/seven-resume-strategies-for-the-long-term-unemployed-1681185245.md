@@ -1,6 +1,6 @@
 # 长期失业者的七种简历策略
 
-> 原文:[https://life hacker . com/seven-resume-strategies-for-the-long-term 失业者-1681185245](https://lifehacker.com/seven-resume-strategies-for-the-long-term-unemployed-1681185245)
+> 原文：<https://lifehacker.com/seven-resume-strategies-for-the-long-term-unemployed-1681185245>
 
 简历上有很大的空白会让人感到尴尬——你知道读简历的人会注意到这一点，而且可能会认为这是一种负面影响。你如何超越他们的判断来证明你的观点？当你的简历有很大的空白时，你可以做些什么。
 

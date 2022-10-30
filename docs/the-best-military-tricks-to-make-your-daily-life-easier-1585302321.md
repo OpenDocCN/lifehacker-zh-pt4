@@ -1,6 +1,6 @@
 # 让你的日常生活更轻松的最佳军事技巧
 
-> 原文:[https://life hacker . com/the-best-military-tricks-to-make-your-daily-life-living-easy-1585302321](https://lifehacker.com/the-best-military-tricks-to-make-your-daily-life-easier-1585302321)
+> 原文：<https://lifehacker.com/the-best-military-tricks-to-make-your-daily-life-easier-1585302321>
 
 士兵们经常想出捷径来过军队所要求的有纪律的生活。好消息是，许多这些技巧也可以用来让平民生活变得更容易。
 

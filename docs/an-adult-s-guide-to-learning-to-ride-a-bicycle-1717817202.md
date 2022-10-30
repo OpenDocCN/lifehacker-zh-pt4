@@ -1,6 +1,6 @@
 # 成人学习骑自行车指南
 
-> 原文:[https://deadspin . com/an-adult-s-guide-to-learning-to-ride-a-bicycle-1717817202](https://deadspin.com/an-adult-s-guide-to-learning-to-ride-a-bicycle-1717817202)
+> 原文：<https://deadspin.com/an-adult-s-guide-to-learning-to-ride-a-bicycle-1717817202>
 
 骑自行车的 [安娜卡列尼娜](https://en.wikipedia.org/wiki/Anna_Karenina_principle) 原则是这样的:每个学会骑自行车的人都以大致相同的无聊方式完成；任何人在没有学习的情况下成长都需要一系列独特的障碍、失败、疏忽和拖延。如果你属于后一类，那么恭喜你！你不会做大多数孩子已经掌握的事情，这是一个很好的话题。但是你最终驯服了野生的，装备精良的种马的故事将会是一个更好的故事。
 

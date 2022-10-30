@@ -1,6 +1,6 @@
 # 高科技日常必需品包
 
-> 原文:[https://life hacker . com/the-tech-daily-essentials-bag-1726146998](https://lifehacker.com/the-tech-daily-essentials-bag-1726146998)
+> 原文：<https://lifehacker.com/the-tech-daily-essentials-bag-1726146998>
 
 我们为各种类型的人推出了各种各样的包，但有时，你只需要一点点科技和简单。读者 Louie Tran 就是这样。
 

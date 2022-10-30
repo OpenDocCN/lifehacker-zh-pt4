@@ -1,6 +1,6 @@
 # 用忍者积木在 10 分钟内构建一个廉价的家庭自动化系统
 
-> 原文:[https://life hacker . com/make-your-own-buy-home-automation-in-1468650432](https://lifehacker.com/make-your-own-cheap-home-automation-in-10-minutes-with-1468650432)
+> 原文：<https://lifehacker.com/make-your-own-cheap-home-automation-in-10-minutes-with-1468650432>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-BR7yjXuP_eg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-BR7yjXuP_eg&start=0) 
 

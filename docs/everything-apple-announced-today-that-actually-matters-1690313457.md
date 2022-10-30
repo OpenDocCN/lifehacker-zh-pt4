@@ -1,6 +1,6 @@
 # 苹果今天宣布的所有真正重要的事情
 
-> 原文:[https://life hacker . com/everything-apple-announced-today-that-actually-matters-1690313457](https://lifehacker.com/everything-apple-announced-today-that-actually-matters-1690313457)
+> 原文：<https://lifehacker.com/everything-apple-announced-today-that-actually-matters-1690313457>
 
 苹果今天举行了他们的大型新闻发布会，披露了关于 Apple Watch 的各种新细节，发布了新的 MacBook，宣布了无电缆 HBO 接入，并谈到了 ResearchKit。如果你不想花一上午看他们的新闻发布会，我们会帮你做的。这是他们宣布的真正重要的东西。
 

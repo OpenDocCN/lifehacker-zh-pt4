@@ -1,6 +1,6 @@
 # 如何决定是否需要租车保险
 
-> 原文:[https://life hacker . com/how-to-decision-you-need-rent-car-insurance-1658073589](https://lifehacker.com/how-to-decide-whether-you-need-rental-car-insurance-1658073589)
+> 原文：<https://lifehacker.com/how-to-decide-whether-you-need-rental-car-insurance-1658073589>
 
 租车时，梳理保险覆盖选项的细则可能会令人望而生畏，而且，让我们面对现实吧，并不那么刺激。这不像在华而不实的敞篷车、合理的紧凑型车或七座大型 SUV 之间做出选择那么令人兴奋。
 

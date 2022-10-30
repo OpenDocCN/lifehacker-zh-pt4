@@ -1,6 +1,6 @@
 # 如何为您的电脑选择最佳麦克风
 
-> 原文:[https://life hacker . com/how-to-choose-the-best-for-your-PC-1550386418](https://lifehacker.com/how-to-choose-the-best-microphone-for-your-pc-1550386418)
+> 原文：<https://lifehacker.com/how-to-choose-the-best-microphone-for-your-pc-1550386418>
 
 无论您是玩多人游戏、在 Hangouts 或 Skype 上与朋友或家人聊天，还是在家工作，您都需要一个好的麦克风。你的电脑可能已经有一个了，但是它到底有没有用还有待商榷。以下是根据您的需求挑选最佳话筒的方法。
 

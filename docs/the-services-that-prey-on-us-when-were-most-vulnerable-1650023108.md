@@ -1,6 +1,6 @@
 # 那些在我们最脆弱的时候袭击我们的服务
 
-> 原文:[https://life hacker . com/the-services-the-prey-on-us-when-most-vulnerable-1650023108](https://lifehacker.com/the-services-that-prey-on-us-when-were-most-vulnerable-1650023108)
+> 原文：<https://lifehacker.com/the-services-that-prey-on-us-when-were-most-vulnerable-1650023108>
 
 不是所有的公司都想得到我们，但也不是所有的公司都把我们的最佳利益放在心上。有些行业特别乐于利用我们的不幸来获利。下面是反击的方法。
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:4 月 18 日至 25 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-April-18-to-25-1567612703](https://lifehacker.com/this-weeks-most-popular-posts-april-18th-to-25th-1567612703)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-april-18th-to-25th-1567612703>
 
 这一周我们 [改进了简历](http://lifehacker.com/improve-your-resume-with-this-simple-formula-recommende-1566107526)[干掉了我们的站桌](http://lifehacker.com/why-i-killed-my-standing-desk-and-what-i-do-instead-1565554537)[充分利用了我们的电视](http://lifehacker.com/top-10-ways-to-make-the-most-of-your-hdtv-1564693862)[看了最好的文字编辑](http://lifehacker.com/five-best-text-editors-1564907215) 。这里回顾一下。
 

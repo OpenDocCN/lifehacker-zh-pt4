@@ -1,6 +1,6 @@
 # 罗技 MX 大师:我们最喜爱的鼠标之一的合适继任者
 
-> 原文:[https://life hacker . com/the-Logitech-MX-master-a-fitting-successor-to-one-of-o-1713362467](https://lifehacker.com/the-logitech-mx-master-a-fitting-successor-to-one-of-o-1713362467)
+> 原文：<https://lifehacker.com/the-logitech-mx-master-a-fitting-successor-to-one-of-o-1713362467>
 
 罗技的 MX Revolution 和 Performance MX 鼠标是过去十年中最受欢迎、最受喜爱的两种鼠标，包括生活黑客 的大多数人所称的 [。](http://lifehacker.com/five-best-desktop-mice-5931795) [罗技 MX Master](http://www.logitech.com/en-us/product/mx-master) 无线鼠标符合人体工程学，具有多种功能来帮助您完成工作，它是令人敬畏的 MX 系列的最新继任者。事实上，这是迄今为止最好的一个。
 

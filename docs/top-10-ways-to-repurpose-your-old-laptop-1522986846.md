@@ -1,6 +1,6 @@
 # 重新利用旧笔记本电脑的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-purpose-your-old-laptop-1522986846](https://lifehacker.com/top-10-ways-to-repurpose-your-old-laptop-1522986846)
+> 原文：<https://lifehacker.com/top-10-ways-to-repurpose-your-old-laptop-1522986846>
 
 有很多方法可以重新利用一台旧电脑，无论你只是想让它再次工作还是把它完全变成别的东西，就像 [一台家庭服务器](http://lifehacker.com/turn-an-old-computer-into-a-do-anything-home-server-wit-510023147) 。但是笔记本电脑很特别——由于它们体积小，功能全，一点点 DIY 工作就能把笔记本电脑变成任何东西。这里有一些选择。
 

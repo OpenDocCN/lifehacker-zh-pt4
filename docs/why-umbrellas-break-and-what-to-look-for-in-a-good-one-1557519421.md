@@ -1,6 +1,6 @@
 # 雨伞为什么会坏掉(以及如何寻找一把好雨伞)
 
-> 原文:[https://life hacker . com/why-umbrells-break-and-what-look-in-a-good-one-1557519421](https://lifehacker.com/why-umbrellas-break-and-what-to-look-for-in-a-good-one-1557519421)
+> 原文：<https://lifehacker.com/why-umbrellas-break-and-what-to-look-for-in-a-good-one-1557519421>
 
 如果你曾经拥有一把雨伞，你可能也不得不在某个时候买一把雨伞的替代品。因为雨伞经常失灵。Digg 揭示了为什么——以及如何发现比平均水平差一点的雨伞。
 

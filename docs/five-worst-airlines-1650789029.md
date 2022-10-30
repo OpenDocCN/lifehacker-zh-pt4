@@ -1,6 +1,6 @@
 # 五家最差的航空公司
 
-> 原文:[https://lifehacker.com/five-worst-airlines-1650789029](https://lifehacker.com/five-worst-airlines-1650789029)
+> 原文：<https://lifehacker.com/five-worst-airlines-1650789029>
 
 为了向 [邪恶周](https://lifehacker.com/welcome-to-lifehackers-fifth-annual-evil-week-1647621043) 致敬，我们稍微改变了一下蜂巢。通常我们会寻找五家最好的航空公司，但本周我们会寻找五家最差的——特别是天空中最差的航空公司。那些应该停飞的，或者收费很高的，客服很糟糕的，飞机很不舒服的，或者路线很糟糕的，你会花更多的钱完全避开它们——当然是基于你的提名。
 

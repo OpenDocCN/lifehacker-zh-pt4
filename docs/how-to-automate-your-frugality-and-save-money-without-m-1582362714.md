@@ -1,6 +1,6 @@
 # 如何让你的节俭自动化，不需要太多努力就能省钱
 
-> 原文:[https://life hacker . com/how-to-automated-your securful-and-save money-without-m-1582362714](https://lifehacker.com/how-to-automate-your-frugality-and-save-money-without-m-1582362714)
+> 原文：<https://lifehacker.com/how-to-automate-your-frugality-and-save-money-without-m-1582362714>
 
 对我们中的一些人来说，节俭很有趣。对其他人来说，这似乎是对时间和精力的巨大浪费。但是找到省钱的方法并不一定要耗费时间。你可能已经自动化了你的账单支付和/或储蓄账户，你也可以自动化你的折扣。这里有一个综合的节俭生活小贴士，可以让你不费吹灰之力就能省钱。
 

@@ -1,6 +1,6 @@
 # 为什么最困难的任务最重要
 
-> 原文:[https://life hacker . com/why-the-hard-tasks-matter-1563137079](https://lifehacker.com/why-the-hardest-tasks-matter-the-most-1563137079)
+> 原文：<https://lifehacker.com/why-the-hardest-tasks-matter-the-most-1563137079>
 
 生活黑客都是让事情变得更简单，但重要的是要记住，不是所有事情都是容易的。生活中没有多少“快速致富”的计划——无论你谈论的是金钱、生产力、人际关系还是其他。有时候，最困难的任务是最重要的。
 

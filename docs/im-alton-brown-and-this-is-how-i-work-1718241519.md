@@ -1,6 +1,6 @@
 # 我是阿尔顿·布朗，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-alton-brown-and-this-is-how-I-work-1718241519](https://lifehacker.com/im-alton-brown-and-this-is-how-i-work-1718241519)
+> 原文：<https://lifehacker.com/im-alton-brown-and-this-is-how-i-work-1718241519>
 
 阿尔顿·布朗是一名厨师、电视主持人、讲故事的人和作家，也是烹饪基础知识的机智讲解者。他是 Lifehacker 烹饪抱负的化身，不出所料，我们会定期报道他的作品。
 

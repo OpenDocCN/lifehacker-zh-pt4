@@ -1,6 +1,6 @@
 # 什么是最好的新闻组供应商？
 
-> 原文:[https://life hacker . com/whats-the-best-usenet-provider-1609847326](https://lifehacker.com/whats-the-best-usenet-provider-1609847326)
+> 原文：<https://lifehacker.com/whats-the-best-usenet-provider-1609847326>
 
 啊新闻组。即使过了这么多年，它仍然是一个巨大的数字媒体资源，提供了比 bittorrent 更高的速度和可靠性。首先，本周我们想知道你认为哪些新闻组供应商是最好的。
 

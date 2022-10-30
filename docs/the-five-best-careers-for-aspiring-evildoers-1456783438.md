@@ -1,6 +1,6 @@
 # 有抱负的作恶者的五个最佳职业
 
-> 原文:[https://life hacker . com/the-five-best-careers for-aspirated-evil-1456783438](https://lifehacker.com/the-five-best-careers-for-aspiring-evildoers-1456783438)
+> 原文：<https://lifehacker.com/the-five-best-careers-for-aspiring-evildoers-1456783438>
 
 如果你想长期做坏事，是时候开始考虑职业生涯了。虽然银行抢劫和绑架对自由职业者来说很棒，但你不能以那种生活方式组建家庭。考虑到这一点，让我们来看看那些想要真正安顿下来并掌握自己技能的作恶者的最佳职业。
 

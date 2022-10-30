@@ -1,6 +1,6 @@
 # 你如何学会最终真正放松
 
-> 原文:[https://life hacker . com/how-you-can-learn-to-finally-relax-1548045887](https://lifehacker.com/how-you-can-learn-to-finally-really-relax-1548045887)
+> 原文：<https://lifehacker.com/how-you-can-learn-to-finally-really-relax-1548045887>
 
 似乎放松是每个人都应该能够做的事情，但是我们这些经常紧张的人，工作狂，或者有某些健康问题的人没有一个简单的“关闭”开关。放松是我们必须学习和实践的东西，就像 [快乐](http://lifehacker.com/how-to-make-happiness-a-habit-718061332) 。和幸福一样，学会放松对你的健康和幸福极其重要。让我们来看看我们可以战胜长期紧张并最终慢下来的方法。
 

@@ -1,6 +1,6 @@
 # 多边形桌面
 
-> 原文:[https://lifehacker.com/the-polygonal-desktop-1715122660](https://lifehacker.com/the-polygonal-desktop-1715122660)
+> 原文：<https://lifehacker.com/the-polygonal-desktop-1715122660>
 
 读者 [普什卡](http://kinja.com/pushkardesai999) 向我们的 [桌面展柜](http://kinja.com/tag/desktop-showcase) 提交了这个好看的桌面，我们喜欢它的样子。作为第二个屏幕或工作时间时有用，以下是他如何设置它。
 

@@ -1,6 +1,6 @@
 # 如何在不舒服和不可避免的情况下获得更好的睡眠
 
-> 原文:[https://life hacker . com/how-to-get-better-sleep in-unless-and-avoidable-1689861129](https://lifehacker.com/how-to-get-better-sleep-in-uncomfortable-and-unavoidabl-1689861129)
+> 原文：<https://lifehacker.com/how-to-get-better-sleep-in-uncomfortable-and-unavoidabl-1689861129>
 
 众所周知，我们大多数人睡眠不足。虽然这是 [可能是我们自己的错](http://www.fastcompany.com/3042679/sleep-week/how-to-break-your-sleep-procrastination-habit) ，但我们中的许多人也不愿意或不能改变我们的时间表。因此，既然我们不能再增加一个小时的时间，找一点时间挤出一点额外的睡眠可能是我们最可行的选择。
 

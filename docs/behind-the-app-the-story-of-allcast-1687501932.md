@@ -1,6 +1,6 @@
 # 应用背后:AllCast 的故事
 
-> 原文:[https://life hacker . com/behind-the-app-the-story-of-the-all cast-1687501932](https://lifehacker.com/behind-the-app-the-story-of-allcast-1687501932)
+> 原文：<https://lifehacker.com/behind-the-app-the-story-of-allcast-1687501932>
 
 你上一次刻录 DVD 以便在电视上看视频是什么时候？或者在客厅的地毯上放一台笔记本电脑，电缆散落一地，这样你就可以在大屏幕上看视频了？多亏了像 [AllCast](http://www.allcast.io/) 这样的应用，这一切都变得过时了。
 

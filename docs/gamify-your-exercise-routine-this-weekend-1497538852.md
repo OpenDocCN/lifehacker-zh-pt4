@@ -1,6 +1,6 @@
 # 这个周末，让你的日常锻炼游戏化
 
-> 原文:[https://life hacker . com/gamify-your-exercise-routine-this-weekend-1497538852](https://lifehacker.com/gamify-your-exercise-routine-this-weekend-1497538852)
+> 原文：<https://lifehacker.com/gamify-your-exercise-routine-this-weekend-1497538852>
 
 也许你已经下定决心在新的一年里锻炼身体，但却没有养成良好的习惯，因为这一点都不好玩。虽然锻炼总是需要付出努力，但是你可以通过把你的经历变成一场游戏来增加一点乐趣。
 

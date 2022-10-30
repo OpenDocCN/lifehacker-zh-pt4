@@ -1,6 +1,6 @@
 # 职业聚焦:我作为一名狗保姆和驯狗师做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-dog-sitter-and-trainer-1721843402](https://lifehacker.com/career-spotlight-what-i-do-as-a-dog-sitter-and-trainer-1721843402)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-dog-sitter-and-trainer-1721843402>
 
 整天和一群狗混在一起听起来是一件很美好的事情，对吧？但是照顾一群真正的动物可能是一项艰巨的工作——尤其是当它们都没有受过良好训练的时候。
 

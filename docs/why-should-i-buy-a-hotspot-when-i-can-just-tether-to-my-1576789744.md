@@ -1,6 +1,6 @@
 # 当我可以连接到手机时，为什么还要购买热点呢？
 
-> 原文:[https://life hacker . com/why-should-I-buy-a-hotspot-when-I-can-just-tether-to-my-1576789744](https://lifehacker.com/why-should-i-buy-a-hotspot-when-i-can-just-tether-to-my-1576789744)
+> 原文：<https://lifehacker.com/why-should-i-buy-a-hotspot-when-i-can-just-tether-to-my-1576789744>
 
 亲爱的 Lifehacker，我见过人们在旅途中使用移动热点上网，并阅读 [你的前五名](https://lifehacker.com/five-best-mobile-hotspots-1523254435) ，但我不明白。当我可以连接到手机上使用时，我为什么还要购买热点呢？拥有另一个我错过的小工具有好处吗？
 

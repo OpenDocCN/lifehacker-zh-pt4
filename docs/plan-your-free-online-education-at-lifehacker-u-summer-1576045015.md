@@ -1,6 +1,6 @@
 # 在 life hacker U:2014 年夏季学期计划您的免费在线教育
 
-> 原文:[https://life hacker . com/plan-your-free-online-education-at-life hacker-u-summer-1576045015](https://lifehacker.com/plan-your-free-online-education-at-lifehacker-u-summer-1576045015)
+> 原文：<https://lifehacker.com/plan-your-free-online-education-at-lifehacker-u-summer-1576045015>
 
 一旦你离开学校，你的教育并不一定要停止——离开教室的自由只是意味着你对你学什么和什么时候学有更多的控制权。今年夏天，我们为 Lifehacker U 整理了一些最好的免费在线课程，这是我们定期更新的指南，旨在通过免费的在线大学课程改善你的生活。让我们开始吧。
 

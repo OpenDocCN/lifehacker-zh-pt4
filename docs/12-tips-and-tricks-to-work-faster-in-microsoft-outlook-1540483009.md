@@ -1,6 +1,6 @@
 # 在 Microsoft Outlook 中提高工作效率的 12 个以上提示和技巧
 
-> 原文:[https://life hacker . com/12-在 microsoft-outlook 中提高工作效率的技巧-1540483009](https://lifehacker.com/12-tips-and-tricks-to-work-faster-in-microsoft-outlook-1540483009)
+> 原文：<https://lifehacker.com/12-tips-and-tricks-to-work-faster-in-microsoft-outlook-1540483009>
 
 不管你喜不喜欢，微软 Outlook 仍然是许多办公室事实上的电子邮件客户端。我们已经有一段时间没有查看以前的 Outlook 了，所以这里有一些我们最喜欢的技巧，值得重温，以便在这个集电子邮件、日历、任务和笔记于一体的程序中提高您的工作效率。
 

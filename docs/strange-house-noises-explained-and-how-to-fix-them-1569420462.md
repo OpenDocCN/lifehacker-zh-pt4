@@ -1,6 +1,6 @@
 # 解释了奇怪的室内噪音(以及如何解决)
 
-> 原文:[https://life hacker . com/strange-house-noises-explained-and-how-to-fix-them-1569420462](https://lifehacker.com/strange-house-noises-explained-and-how-to-fix-them-1569420462)
+> 原文：<https://lifehacker.com/strange-house-noises-explained-and-how-to-fix-them-1569420462>
 
 你的房子有晚上会撞的东西吗？也许在吱吱作响的门、墙上令人窒息的嘎嘎声和吱吱作响的楼梯之间，你确信这个地方闹鬼。幸运的是，你可以做一些事情来让那些吱吱声 和嘎嘎声 [消失。](http://lifehacker.com/how-can-i-stop-my-noisy-house-from-squeaking-creaking-1441916708)
 

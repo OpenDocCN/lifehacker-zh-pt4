@@ -1,6 +1,6 @@
 # 如何选择最好的租房保险
 
-> 原文:[https://life hacker . com/how-to-choose-the-best-renters-insurance-1516007207](https://lifehacker.com/how-to-choose-the-best-renters-insurance-1516007207)
+> 原文：<https://lifehacker.com/how-to-choose-the-best-renters-insurance-1516007207>
 
 如果你是租房者，租房保险是必须的。它花费不多，而且确保你的财产在不幸发生时得到保障，比如火灾或抢劫。简单美元的安德鲁汉森打破了如何选择最好的政策，以及哪个供应商脱颖而出。
 

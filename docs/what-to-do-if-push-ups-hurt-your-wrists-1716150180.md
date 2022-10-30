@@ -1,6 +1,6 @@
 # 俯卧撑伤了手腕怎么办
 
-> 原文:[https://life hacker . com/what-do-if-do-what-do-if-push-just-your-carfts-1716150180](https://lifehacker.com/what-to-do-if-push-ups-hurt-your-wrists-1716150180)
+> 原文：<https://lifehacker.com/what-to-do-if-push-ups-hurt-your-wrists-1716150180>
 
 如果你的手腕不能舒适地支撑你的体重，通过做木板和俯卧撑很难变得更强壮。这里有一些策略来解决这些紧绷的手腕，最终提高你的力量。
 

@@ -1,6 +1,6 @@
 # 填缝时使用油漆工胶带获得完全干净的边缘
 
-> 原文:[https://life hacker . com/use-painter-tape-to-get-perfective-clean-edges-when-cau-1690830160](https://lifehacker.com/use-painters-tape-to-get-perfectly-clean-edges-when-cau-1690830160)
+> 原文：<https://lifehacker.com/use-painters-tape-to-get-perfectly-clean-edges-when-cau-1690830160>
 
 如果你没有填缝练习，试图在填缝时得到直的，干净的线条可能是一种沮丧的练习。不过，有了佩因特的带子，每次都可能是小菜一碟。
 

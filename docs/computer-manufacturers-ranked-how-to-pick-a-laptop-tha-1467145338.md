@@ -1,6 +1,6 @@
 # 电脑制造商排名:如何挑选不会出故障的笔记本电脑
 
-> 原文:[https://life hacker . com/computer-manufacturers-ranked-how-to-pick-a-laptop-tha-1467145338](https://lifehacker.com/computer-manufacturers-ranked-how-to-pick-a-laptop-tha-1467145338)
+> 原文：<https://lifehacker.com/computer-manufacturers-ranked-how-to-pick-a-laptop-tha-1467145338>
 
 有这么多选择，挑选合适的笔记本电脑可能会非常困难。你怎么知道你最终会得到一个可靠的模型？还是至少能穿三年而不会觉得过时的衣服？虽然你不能预测未来，但你可以在购物前利用过去的信息来判断你的最佳选择。
 

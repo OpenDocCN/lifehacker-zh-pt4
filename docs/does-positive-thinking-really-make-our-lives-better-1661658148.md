@@ -1,6 +1,6 @@
 # “积极思考”真的能让我们的生活变得更好吗？
 
-> 原文:[https://gizmodo . com/does-positive-thinking-really-make-our-lives-better-1661658148](https://gizmodo.com/does-positive-thinking-really-make-our-lives-better-1661658148)
+> 原文：<https://gizmodo.com/does-positive-thinking-really-make-our-lives-better-1661658148>
 
 你已经听过自助大师们说积极的想法能给我们带来幸福、财富和成功。但是故事还有另一面。这就是为什么积极的想法经常适得其反——也是为什么我们很多人开始讨厌它。
 

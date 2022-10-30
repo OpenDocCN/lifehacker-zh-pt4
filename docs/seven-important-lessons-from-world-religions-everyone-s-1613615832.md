@@ -1,6 +1,6 @@
 # 每个人都应该知道的世界宗教的七个重要教训
 
-> 原文:[https://life hacker . com/seven-important-lessons-from-world-religions-every one-s-1613615832](https://lifehacker.com/seven-important-lessons-from-world-religions-everyone-s-1613615832)
+> 原文：<https://lifehacker.com/seven-important-lessons-from-world-religions-everyone-s-1613615832>
 
 不管你是无神论者，还是你信仰的虔诚信徒，还是不可知论者，或者介于两者之间——从世界各种宗教中都可以学到智慧。这里是一些最重要的，普遍适用的教义，每个人都会从学习中受益。
 

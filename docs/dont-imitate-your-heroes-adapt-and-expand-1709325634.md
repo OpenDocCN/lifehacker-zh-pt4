@@ -1,6 +1,6 @@
 # 不要模仿你心目中的英雄。适应和扩展
 
-> 原文:[https://life hacker . com/don-模仿你的英雄-适应-扩展-1709325634](https://lifehacker.com/dont-imitate-your-heroes-adapt-and-expand-1709325634)
+> 原文：<https://lifehacker.com/dont-imitate-your-heroes-adapt-and-expand-1709325634>
 
 当我们努力通过向那些比我们更聪明、更有经验的人学习来改善我们的生活、推进我们的事业时，重要的是要记住，并非所有的成功都值得效仿。你应该挑选对你有用的建议。了解一个亿万富翁企业家是如何走到今天这一步的很有意思，但这并不意味着你应该尝试跟随他们的道路。
 

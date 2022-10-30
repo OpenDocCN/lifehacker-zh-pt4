@@ -1,6 +1,6 @@
 # 为什么经销商忽视你，你能做些什么
 
-> 原文:[https://jalopnik . com/why-dealerships-ignore-you-and-what-you-can-do-about-it-1600715748](https://jalopnik.com/why-dealerships-ignore-you-and-what-you-can-do-about-it-1600715748)
+> 原文：<https://jalopnik.com/why-dealerships-ignore-you-and-what-you-can-do-about-it-1600715748>
 
 我现在 20 出头，终于买得起一辆像 WRX 或 Focus ST 这样性能超酷的车了，但每次我去经销商那里试驾时都被忽视了。我怎样才能让销售人员认真对待我，这样我才能试驾这些车，了解我真正想要的是什么？
 

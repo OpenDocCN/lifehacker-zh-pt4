@@ -1,6 +1,6 @@
 # 我是 Nathan Blecharczyk，Airbnb 的联合创始人，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-nathan-blecharczyk-Airbnb-and-this-I-1679086705 联合创始人](https://lifehacker.com/im-nathan-blecharczyk-co-founder-of-airbnb-and-this-i-1679086705)
+> 原文：<https://lifehacker.com/im-nathan-blecharczyk-co-founder-of-airbnb-and-this-i-1679086705>
 
 当你旅行时需要一个住宿的地方时，在当前在线市场的背景下，酒店似乎有点古怪，如 [Airbnb](http://airbnb.com) 。Airbnb 已经迅速成为短期公寓和房间租赁的事实标准，无论是出租还是度假时寻找栖身之所。
 

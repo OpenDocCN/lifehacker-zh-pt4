@@ -1,6 +1,6 @@
 # 如何充分利用长途飞行
 
-> 原文:[https://life hacker . com/how-to-survive-a long-haul-flight-finesse-1551468782](https://lifehacker.com/how-to-survive-a-long-haul-flight-with-finesse-1551468782)
+> 原文：<https://lifehacker.com/how-to-survive-a-long-haul-flight-with-finesse-1551468782>
 
 我认为可以肯定地说，很少有人喜欢长途飞行。但是以下是如何安全地在一个铝罐中生存几天而保持你的心智完整。
 

@@ -1,6 +1,6 @@
 # 小巧的小配件包
 
-> 原文:[https://life hacker . com/the-small ish-gadget-go-bag-1654048571](https://lifehacker.com/the-smallish-gadget-go-bag-1654048571)
+> 原文：<https://lifehacker.com/the-smallish-gadget-go-bag-1654048571>
 
 通常，你会想要一个能装下你的东西的最小的包。读者燃烧解决方案的袋子就是如此。它很小，正好符合他的需要，就是这样。
 

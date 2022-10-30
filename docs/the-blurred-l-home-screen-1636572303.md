@@ -1,6 +1,6 @@
 # 模糊的主屏幕
 
-> 原文:[https://lifehacker.com/the-blurred-l-home-screen-1636572303](https://lifehacker.com/the-blurred-l-home-screen-1636572303)
+> 原文：<https://lifehacker.com/the-blurred-l-home-screen-1636572303>
 
 Android:虽然最近这两种风格越来越接近，但 Android 和 iOS 却截然不同。这种设计弥合了这种差距，利用了 iOS 的磨砂、分层主题，结合 Android 的新材料方法，形成了独特的外观。
 

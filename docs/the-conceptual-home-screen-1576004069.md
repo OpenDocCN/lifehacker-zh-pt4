@@ -1,6 +1,6 @@
 # 概念主屏幕
 
-> 原文:[https://life hacker . com/the-conceptual-home-screen-1576004069](https://lifehacker.com/the-conceptual-home-screen-1576004069)
+> 原文：<https://lifehacker.com/the-conceptual-home-screen-1576004069>
 
 Android:这个来自我的彩色屏幕用户 [ogkillergreen](http://mycolorscreen.com/ogkillergreen/) 的主屏幕使用干净、易于阅读的小工具，让你一目了然地获得你需要的基本信息，同时看起来非常棒。
 

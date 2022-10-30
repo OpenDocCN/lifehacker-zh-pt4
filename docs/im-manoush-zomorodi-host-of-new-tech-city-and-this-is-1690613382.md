@@ -1,6 +1,6 @@
 # 我是 Manoush Zomorodi，新科技城的主持人，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Mano ush-zomorodi-host-of-new-tech-city-and-this-is-1690613382](https://lifehacker.com/im-manoush-zomorodi-host-of-new-tech-city-and-this-is-1690613382)
+> 原文：<https://lifehacker.com/im-manoush-zomorodi-host-of-new-tech-city-and-this-is-1690613382>
 
 Manoush Zomorodi 是 WNYC 的 [新科技城](http://www.wnyc.org/shows/newtechcity/) 的主持人兼执行主编，这是一个公共广播播客，研究技术如何影响我们的生活方式，无论是跟踪我们数据的 [无处不在的监控](http://www.wnyc.org/story/things-you-should-think-about-when-you-use-tech-any-kind/) 还是 [太空旅游的新前沿](http://www.wnyc.org/story/space-dreams-what-its-really/) 。
 

@@ -1,6 +1,6 @@
 # PS4 与 Xbox One:我们不得不做的比较
 
-> 原文:[https://kotaku . com/ps4-vs-Xbox-one-the-comparison-we-had-to-make-1472058236](https://kotaku.com/ps4-vs-xbox-one-the-comparison-we-had-to-make-1472058236)
+> 原文：<https://kotaku.com/ps4-vs-xbox-one-the-comparison-we-had-to-make-1472058236>
 
 两台新游戏机。都很强大。两人都很有野心。两人即将正面交锋...为你的时间、金钱和关注以及宇宙的命运而战！
 

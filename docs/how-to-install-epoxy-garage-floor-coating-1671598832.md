@@ -1,6 +1,6 @@
 # 如何安装环氧车库地坪涂料
 
-> 原文:[https://life hacker . com/how-to-install-epoxy-garage-floor-coating-1671598832](https://lifehacker.com/how-to-install-epoxy-garage-floor-coating-1671598832)
+> 原文：<https://lifehacker.com/how-to-install-epoxy-garage-floor-coating-1671598832>
 
 你的车库储存了数千美元的车辆、工具，谁知道还有什么。在几个小时内安装一个保护性的环氧树脂地板涂层，给它一些爱。
 

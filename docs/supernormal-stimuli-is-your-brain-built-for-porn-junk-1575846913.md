@@ -1,6 +1,6 @@
 # 超常刺激:你的大脑在色情、垃圾食品和互联网上
 
-> 原文:[https://life hacker . com/supernormal-stimulus-is-your ' s brain-build-for-a porn-junk-1575846913](https://lifehacker.com/supernormal-stimuli-is-your-brain-built-for-porn-junk-1575846913)
+> 原文：<https://lifehacker.com/supernormal-stimuli-is-your-brain-built-for-porn-junk-1575846913>
 
 鉴于技术的快速发展，人们不得不怀疑我们的大脑(和身体)是否能够跟上所有可用的新刺激。当垃圾食品和色情等“超级”刺激源无处不在时，会发生什么？
 

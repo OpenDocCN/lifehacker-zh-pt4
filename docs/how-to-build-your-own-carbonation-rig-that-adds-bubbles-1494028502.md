@@ -1,6 +1,6 @@
 # 如何建立自己的碳酸化装置，给任何东西添加气泡
 
-> 原文:[https://gizmodo . com/how-to-build-your-own-your-own-carbonation-rig-that-adds-bubbles-1494028502](https://gizmodo.com/how-to-build-your-own-carbonation-rig-that-adds-bubbles-1494028502)
+> 原文：<https://gizmodo.com/how-to-build-your-own-carbonation-rig-that-adds-bubbles-1494028502>
 
 听着，Sodastreams 因其便利性和无处不在而非常棒，但也有一些缺点。首先，你只能用它们来碳酸化水。最重要的是，替换二氧化碳筒的成本(你需要让自己“泡在泡泡里”)比它需要的要高。我们已经探索了其他让你碳酸鸡尾酒 的系统，但是它们非常昂贵而且非常不方便。我们知道一定有更好的方法。
 

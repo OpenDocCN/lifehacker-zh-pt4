@@ -1,6 +1,6 @@
 # 如何挑选你的下一部安卓手机:2013 版
 
-> 原文:[https://life hacker . com/how-to-pick-your-next-Android-phone-2013-edition-1475567684](https://lifehacker.com/how-to-pick-your-next-android-phone-2013-edition-1475567684)
+> 原文：<https://lifehacker.com/how-to-pick-your-next-android-phone-2013-edition-1475567684>
 
 简而言之，现在有太多的安卓手机。知道哪些值得你花时间的唯一方法就是每天关注科技新闻。对于那些有其他事情要做的人来说，以下是购买新设备时的重要事项。
 

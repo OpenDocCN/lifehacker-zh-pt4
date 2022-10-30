@@ -1,6 +1,6 @@
 # “模糊跟踪理论”如何影响你的财务
 
-> 原文:[https://life hacker . com/how-fuzzy-trace-theory-impacts-your-financies-1502564525](https://lifehacker.com/how-fuzzy-trace-theory-impacts-your-finances-1502564525)
+> 原文：<https://lifehacker.com/how-fuzzy-trace-theory-impacts-your-finances-1502564525>
 
 [模糊痕迹理论](http://en.wikipedia.org/wiki/Fuzzy-trace_theory) 只是一个相当简单的想法的一个听起来奇怪的名字。简单来说，这个想法就是人们形成两种不同类型的记忆。
 

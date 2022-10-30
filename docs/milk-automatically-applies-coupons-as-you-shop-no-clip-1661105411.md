@@ -1,6 +1,6 @@
 # Milk 会在你购物时自动应用优惠券，无需剪裁
 
-> 原文:[https://life hacker . com/milk-automatically-applied-coupons-as-you-shop-no-clip-1661105411](https://lifehacker.com/milk-automatically-applies-coupons-as-you-shop-no-clip-1661105411)
+> 原文：<https://lifehacker.com/milk-automatically-applies-coupons-as-you-shop-no-clip-1661105411>
 
 iOS/Android(很快):剪优惠券是在杂货上省钱的的好方法，只要你愿意花时间。Milk 会自动为您购买的所有商品找到并应用优惠券，因此您可以自动获得所有折扣——只需在手机上轻轻一点。
 

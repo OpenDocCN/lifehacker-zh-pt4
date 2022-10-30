@@ -1,6 +1,6 @@
 # 德怀特·艾森豪威尔的最佳生产率诀窍
 
-> 原文:[https://life hacker . com/Dwight-eisen howers-best-productivity-tricks-1579214953](https://lifehacker.com/dwight-eisenhowers-best-productivity-tricks-1579214953)
+> 原文：<https://lifehacker.com/dwight-eisenhowers-best-productivity-tricks-1579214953>
 
 总统 [德怀特·戴维·艾森豪威尔](http://en.wikipedia.org/wiki/Dwight_D._Eisenhower) 是第 34 任总统，二战期间五星上将。他以压倒性优势赢得了第一次总统选举，建设了州际高速公路系统，并创建了美国国家航空航天局。也就是说，他相当多产。让我们来看看他的一些最好的技巧。
 

@@ -1,6 +1,6 @@
 # 知道该怎么做才能烤出最好的巧克力曲奇
 
-> 原文:[https://life hacker . com/bake-the-best-chocolate-chip-cookies-by-known-to-1593805654](https://lifehacker.com/bake-the-best-chocolate-chip-cookies-by-knowing-what-to-1593805654)
+> 原文：<https://lifehacker.com/bake-the-best-chocolate-chip-cookies-by-knowing-what-to-1593805654>
 
 有些人喜欢他们的巧克力曲奇又软又有嚼劲。其他人喜欢脆一点的。不管你喜欢什么样的饼干，只要简单调整一下配料，就能帮你烤出*你的*完美巧克力曲奇。
 

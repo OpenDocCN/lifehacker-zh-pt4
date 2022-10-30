@@ -1,6 +1,6 @@
 # 更快的登录、挂起和 Exchange 可用性
 
-> 原文:[https://life hacker . com/quickers-logins-hanger-bumps-and-exchange-avail ability-1516975064](https://lifehacker.com/quicker-logins-hanger-bumps-and-exchange-availability-1516975064)
+> 原文：<https://lifehacker.com/quicker-logins-hanger-bumps-and-exchange-availability-1516975064>
 
 读者提供了他们的最佳提示，帮助他们更快地进入登录页面，防止衣架碰到衣服，并使可用性信息在 Exchange 环境中更容易访问。
 

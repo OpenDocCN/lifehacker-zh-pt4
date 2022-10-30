@@ -1,6 +1,6 @@
 # 谷歌地图增加了更好的导航、离线地图等等
 
-> 原文:[https://life hacker . com/Google-maps-adds-better-navigation-offline-maps-and-t-1572429181](https://lifehacker.com/google-maps-adds-better-navigation-offline-maps-and-t-1572429181)
+> 原文：<https://lifehacker.com/google-maps-adds-better-navigation-offline-maps-and-t-1572429181>
 
 Android/iOS:谷歌今天更新了其地图应用程序，增加了大量新功能，包括改进的导航、保存位置、更好的地点搜索，甚至优步集成。
 

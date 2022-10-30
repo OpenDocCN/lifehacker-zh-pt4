@@ -1,6 +1,6 @@
 # 玛丽·居里的最佳生产率诀窍
 
-> 原文:[https://life hacker . com/Marie-curies-best-productivity-tricks-1459042587](https://lifehacker.com/marie-curies-best-productivity-tricks-1459042587)
+> 原文：<https://lifehacker.com/marie-curies-best-productivity-tricks-1459042587>
 
 玛丽·居里是第一位获得诺贝尔奖的女性，也是唯一一位在两个不同领域获得诺贝尔奖的女性。她创造了放射性这个术语，发现了镭(最终导致她死亡)，并成功地完成了一些事情，尽管科学界并不总是把她当回事。她是这样做的。
 

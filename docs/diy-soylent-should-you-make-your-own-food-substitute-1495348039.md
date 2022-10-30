@@ -1,6 +1,6 @@
 # DIY Soylent:你应该自己制作食物替代品吗？
 
-> 原文:[https://life hacker . com/DIY-soylent-should-you-make-you-you-own-food-substitute-1495348039](https://lifehacker.com/diy-soylent-should-you-make-your-own-food-substitute-1495348039)
+> 原文：<https://lifehacker.com/diy-soylent-should-you-make-your-own-food-substitute-1495348039>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ZFto-gXZMEo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ZFto-gXZMEo&start=0) 
 

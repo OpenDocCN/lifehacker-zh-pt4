@@ -1,6 +1,6 @@
 # 在大型零售商处购物的最佳日子
 
-> 原文:[https://life hacker . com/the-best-days-to-shop-at-major-retailers-1592572303](https://lifehacker.com/the-best-days-to-shop-at-major-retailers-1592572303)
+> 原文：<https://lifehacker.com/the-best-days-to-shop-at-major-retailers-1592572303>
 
 与其说是购物，不如说是给我们带来了便利的 [零售商价格代码备忘单](https://lifehacker.com/crack-the-price-tag-codes-for-major-retailers-with-this-1588678783) 以及告知我们 [零售商价格匹配政策](http://lifehacker.com/know-these-major-retailers-online-price-match-policies-1501472181) 的网站，又回来了，带来了更多省钱的技巧。他们聚集了像 CVS 和 Gap 这样的一周商店，倾向于将他们的商品打折。
 

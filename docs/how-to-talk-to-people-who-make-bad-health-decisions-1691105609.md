@@ -1,6 +1,6 @@
 # 如何与做出糟糕健康决定的人交谈
 
-> 原文:[https://life hacker . com/how-to-talk-to-the-people-make-bad-health-decisions-1691105609](https://lifehacker.com/how-to-talk-to-people-who-make-bad-health-decisions-1691105609)
+> 原文：<https://lifehacker.com/how-to-talk-to-people-who-make-bad-health-decisions-1691105609>
 
 当你的朋友——或者更糟糕的是，一个互联网上的陌生人——做出不明智的健康决定时，你会感到沮丧。也许他们抽烟，或者吃得很糟糕，或者买奥兹医生推荐的所有东西。也许他们拒绝给他们的孩子接种疫苗。以下是如何与他们沟通的方法。
 

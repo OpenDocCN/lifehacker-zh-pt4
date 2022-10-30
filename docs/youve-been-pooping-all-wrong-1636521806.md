@@ -1,6 +1,6 @@
 # 你拉错屎了
 
-> 原文:[https://jezebel.com/youve-been-pooping-all-wrong-1636521806](https://jezebel.com/youve-been-pooping-all-wrong-1636521806)
+> 原文：<https://jezebel.com/youve-been-pooping-all-wrong-1636521806>
 
 你大便的时候应该蹲着。你听到了吗？蹲着。一边大便。就是这样做的。不是你现在做的这种弯腰驼背的事，那会花很长时间，不是自然的方式。其他人都明白了，你是最后一个还在怀旧的人，所以让我们把你带到正确的道路上。
 

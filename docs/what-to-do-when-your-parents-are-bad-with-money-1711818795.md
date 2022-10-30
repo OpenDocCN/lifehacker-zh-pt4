@@ -1,6 +1,6 @@
 # 当你的父母不善于理财时该怎么办
 
-> 原文:[https://life hacker . com/1711818795](https://lifehacker.com/what-to-do-when-your-parents-are-bad-with-money-1711818795)
+> 原文：<https://lifehacker.com/what-to-do-when-your-parents-are-bad-with-money-1711818795>
 
 你可能会认为你父母的钱不关你的事，但你可能会发现自己已经被他们的坏习惯所拖累。也许你要牺牲自己的利益来支付他们的退休金，或者放弃你的旅行目标来偿还他们的债务。无论在什么情况下，当父母的财务行为出现问题时，你都可以这么做。
 

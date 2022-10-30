@@ -1,6 +1,6 @@
 # 小提琴因素:如何学到足够的东西来修理任何东西
 
-> 原文:[https://life hacker . com/the-diddle-factor-how-to-learn-that-fix-what-1644172273](https://lifehacker.com/the-fiddle-factor-how-to-learn-enough-to-fix-anything-1644172273)
+> 原文：<https://lifehacker.com/the-fiddle-factor-how-to-learn-enough-to-fix-anything-1644172273>
 
 大多数人认为学习就是研究，但对我们大多数人来说，学习就是用棍子戳东西，看看会发生什么。如果你想学会更好地利用你的技术，那就要不断挖掘和移动东西，直到它起作用。任何人都可以做到这一点，极客和勒德分子一样。
 

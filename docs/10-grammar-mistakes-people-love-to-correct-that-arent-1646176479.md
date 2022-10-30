@@ -1,6 +1,6 @@
 # 人们喜欢纠正的 10 个语法错误(实际上并没有错)
 
-> 原文:[https://gizmodo . com/10-grammar-missons-people-love-to-correct-the-parent-1646176479](https://gizmodo.com/10-grammar-mistakes-people-love-to-correct-that-arent-1646176479)
+> 原文：<https://gizmodo.com/10-grammar-mistakes-people-love-to-correct-that-arent-1646176479>
 
 你是那种喜欢纠正别人语法的人吗？你确定你做得对吗？人们被教导的一些东西是英语语法规则，实际上根本不是规则——其中一些是彻头彻尾的错误。
 

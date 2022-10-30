@@ -1,6 +1,6 @@
 # 我是雅虎的研究副总裁尤埃勒·马瑞克，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-yoelle-maarek-VP-of-research-at-Yahoo-and-this-is-1677845280](https://lifehacker.com/im-yoelle-maarek-vp-of-research-at-yahoo-and-this-is-1677845280)
+> 原文：<https://lifehacker.com/im-yoelle-maarek-vp-of-research-at-yahoo-and-this-is-1677845280>
 
 在互联网初创公司的背景下，雅虎可能是一家老牌公司，但他们总是在研究新的技巧。 [雅虎实验室](http://labs.yahoo.com/) 是他们进行实验的孵化器，他们在那里从事的项目有 [雅虎天气](https://lifehacker.com/yahoo-weather-for-ios-may-be-the-most-beautiful-weather-476089302) 和他们的 [新闻摘要应用](https://mobile.yahoo.com/newsdigest/) 。而主管雅虎实验室的是 [Yoelle Maarek](http://labs.yahoo.com/author/yoelle/) 。
 

@@ -1,6 +1,6 @@
 # 5 种快速释放 Gmail 帐户空间的方法
 
-> 原文:[https://gizmodo . com/5-quick-ways-to-free-up-space-in-your-Gmail-account-1605253430](https://gizmodo.com/5-quick-ways-to-free-up-space-in-your-gmail-account-1605253430)
+> 原文：<https://gizmodo.com/5-quick-ways-to-free-up-space-in-your-gmail-account-1605253430>
 
 自 2004 年首次推出以来，谷歌已经将 Gmail 的存储空间增加了 15 倍，但高级用户可能仍然会发现自己遇到了限制(现在你还必须与 Drive 和 Google+ Photos 共享它)。这里有一些快速、简单的提示，可以帮你清空 Gmail 账户中的大量空间。
 

@@ -1,6 +1,6 @@
 # LastPass 安全吗？如果被黑了会怎么样？
 
-> 原文:[https://life hacker . com/is-lastpass-secure-what-happed-if-it-get-hacked-1555511389](https://lifehacker.com/is-lastpass-secure-what-happens-if-it-gets-hacked-1555511389)
+> 原文：<https://lifehacker.com/is-lastpass-secure-what-happens-if-it-gets-hacked-1555511389>
 
 亲爱的 Lifehacker，
 你推荐 LastPass 来避免服务被黑客攻击时的问题，但是如果 LastPass 被黑客攻击会发生什么呢？那不就是给了黑客访问我所有账户的权限吗？LastPass 使用安全吗？

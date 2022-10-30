@@ -1,6 +1,6 @@
 # 最好的礼物登记工具是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-gift-registry-tool-1638857656](https://lifehacker.com/whats-the-best-gift-registry-tool-1638857656)
+> 原文：<https://lifehacker.com/whats-the-best-gift-registry-tool-1638857656>
 
 如果你计划一个婚礼、送礼会或有客人和礼物的大型派对，你可能需要一个像样的工具来组织你的注册表，帮助人们选择礼物，并避免大量重复的烤面包机或搅拌机。本周我们想听听你认为哪些是最好的。
 

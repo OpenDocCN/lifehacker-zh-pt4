@@ -1,6 +1,6 @@
 # 最好的在线演示文稿制作工具是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-online-presentation-creation-tool-1681000060](https://lifehacker.com/whats-the-best-online-presentation-creation-tool-1681000060)
+> 原文：<https://lifehacker.com/whats-the-best-online-presentation-creation-tool-1681000060>
 
 当然，创建一个引人入胜的演示不仅仅是将幻灯片拼接在一起，但是一个好的演示工具肯定有助于保持观众的注意力。一些最好的在网上，也很容易使用，不需要你下载一个昂贵的应用程序来使用。本周，我们想知道你认为哪些是最好的。
 

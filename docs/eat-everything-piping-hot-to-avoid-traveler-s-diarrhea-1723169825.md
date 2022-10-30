@@ -1,6 +1,6 @@
 # 吃一切滚烫的东西，以避免旅行者腹泻
 
-> 原文:[https://life hacker . com/eat-everything-piping-hot-to-avoid-traveler-s-痢疾-1723169825](https://lifehacker.com/eat-everything-piping-hot-to-avoid-traveler-s-diarrhea-1723169825)
+> 原文：<https://lifehacker.com/eat-everything-piping-hot-to-avoid-traveler-s-diarrhea-1723169825>
 
 坚持饮用瓶装水和去皮蔬菜可能不足以防止你患上旅行者腹泻。保持安全的最好方法？确保你吃的食物，尤其是在餐馆里，是滚烫的。
 

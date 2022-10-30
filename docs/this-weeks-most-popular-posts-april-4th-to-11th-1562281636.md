@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:4 月 4 日至 11 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-April-4-4-to-11-1562281636](https://lifehacker.com/this-weeks-most-popular-posts-april-4th-to-11th-1562281636)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-april-4th-to-11th-1562281636>
 
 本周我们 [与令人心痛的安全漏洞](http://lifehacker.com/what-the-heartbleed-security-bug-means-for-you-1560801201)[战斗，学习了一个让照片看起来更好的技巧](http://lifehacker.com/if-it-bends-bend-it-to-look-better-in-photos-1558996391)[增强了我们最喜欢的应用和服务](http://lifehacker.com/top-10-apps-and-services-made-better-by-add-ons-1558382325)[回答了关于签署信用卡的古老问题](http://lifehacker.com/should-you-sign-the-back-of-your-credit-card-1558289863) 。这里回顾一下。
 

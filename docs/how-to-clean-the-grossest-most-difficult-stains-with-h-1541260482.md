@@ -1,6 +1,6 @@
 # 如何清洗家居用品上最恶心、最难清洗的污渍
 
-> 原文:[https://life hacker . com/how-to-clean-the-gross-most-different-with-h-1541260482](https://lifehacker.com/how-to-clean-the-grossest-most-difficult-stains-with-h-1541260482)
+> 原文：<https://lifehacker.com/how-to-clean-the-grossest-most-difficult-stains-with-h-1541260482>
 
 你的家真恶心。别担心，每个人的都是。在熟食、发霉的木头、生锈的金属和我们自己制造各种令人讨厌的副产品的身体之间，我们的家能保持干净真是个奇迹。洗碗或整理卧室很容易。对于更难、更脏的东西，你仍然可以用家里的基本物品来保持家里的清洁。
 

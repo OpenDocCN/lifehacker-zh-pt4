@@ -1,6 +1,6 @@
 # 如何找到你家浪费能源的吸血鬼
 
-> 原文:[https://life hacker . com/how-to-find-the-wasted-energy-vampires-in-your home-1548909531](https://lifehacker.com/how-to-find-the-wasteful-energy-vampires-in-your-home-1548909531)
+> 原文：<https://lifehacker.com/how-to-find-the-wasteful-energy-vampires-in-your-home-1548909531>
 
 当你不在家时，你家用了多少电？可能比必要的多，这是浪费金钱。当你不在家时，有选择地拔掉设备插头，你每年可以节省数百美元。在[*Stack Exchange*](http://sustainability.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=sustainability-110)*的接入用户提供了当你不在身边时发现耗油设备的提示。*
 

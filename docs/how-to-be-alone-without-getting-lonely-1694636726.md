@@ -1,6 +1,6 @@
 # 如何独处而不感到孤独
 
-> 原文:[https://life hacker . com/how-to-alone-not-get-lonely-1694636726](https://lifehacker.com/how-to-be-alone-without-getting-lonely-1694636726)
+> 原文：<https://lifehacker.com/how-to-be-alone-without-getting-lonely-1694636726>
 
 孤独的简单答案是和其他人在一起，但这并不总是一个选项——或者你想要的东西。这里有一些不太明显的方法可以帮助你保持独处的时间不会让你感到孤独。
 

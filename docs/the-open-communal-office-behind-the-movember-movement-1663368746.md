@@ -1,6 +1,6 @@
 # Movember 运动背后的开放式公共办公室
 
-> 原文:[https://life hacker . com/the-open-community-office-behind-the-movement-1663368746](https://lifehacker.com/the-open-communal-office-behind-the-movember-movement-1663368746)
+> 原文：<https://lifehacker.com/the-open-communal-office-behind-the-movember-movement-1663368746>
 
 开放式办公室 [并不是每个人都喜欢的](https://lifehacker.com/how-to-stay-productive-in-an-open-working-environment-1443536319) ，但是 Movember 的开放式办公室符合该组织的价值观和宗旨。
 

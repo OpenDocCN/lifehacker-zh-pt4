@@ -1,6 +1,6 @@
 # 战胜坏心情的十大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-beat a bad-mood-1548932762](https://lifehacker.com/top-10-ways-to-beat-a-bad-mood-1548932762)
+> 原文：<https://lifehacker.com/top-10-ways-to-beat-a-bad-mood-1548932762>
 
 感觉暴躁？它发生在我们最好的人身上。 [压力是一回事](https://lifehacker.com/what-stress-actually-does-to-you-and-what-you-can-do-ab-5836879) ，但有些日子，你的大脑只是决定它心情不好，感觉不可能战胜它。不要屈服。这里有 10 个简单的方法来消除这种坏情绪。
 

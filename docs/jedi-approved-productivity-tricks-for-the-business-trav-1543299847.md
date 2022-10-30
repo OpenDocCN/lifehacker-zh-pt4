@@ -1,6 +1,6 @@
 # 绝地认可的商务旅行者生产力技巧
 
-> 原文:[https://life hacker . com/Jedi-approved-productivity-tricks-for-the-business-trav-1543299847](https://lifehacker.com/jedi-approved-productivity-tricks-for-the-business-trav-1543299847)
+> 原文：<https://lifehacker.com/jedi-approved-productivity-tricks-for-the-business-trav-1543299847>
 
 无论你是一个拖延症患者还是强迫症黑带，每个需要出差的人都会感受到在旅途中达到绝地状态的压力。无论我们的任务是会见并打动一位重要人物，还是争取一位新客户，我们都需要竭尽全力。
 

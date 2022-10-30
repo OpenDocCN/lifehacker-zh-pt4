@@ -1,6 +1,6 @@
 # 这幅图详细描述了著名创意人士的日常生活
 
-> 原文:[https://life hacker . com/this-graphic-details-the-daily-routines-of-name-creat-1602464523](https://lifehacker.com/this-graphic-details-the-daily-routines-of-famous-creat-1602464523)
+> 原文：<https://lifehacker.com/this-graphic-details-the-daily-routines-of-famous-creat-1602464523>
 
 如果你想要一点灵感，或者你很好奇你崇拜的有创造力的人的日常生活是什么样的，这个指南可以告诉你。从贝多芬和莫扎特到安吉洛和村上春树，名单上有超过 24 位著名的艺术家、作家和音乐家。
 

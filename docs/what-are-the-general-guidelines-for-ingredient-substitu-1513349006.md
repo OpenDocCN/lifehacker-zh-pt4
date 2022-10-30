@@ -1,6 +1,6 @@
 # 配料替代的一般准则是什么？
 
-> 原文:[https://life hacker . com/what-is-the-general-guidelines-for-ingredient-substiu-1513349006](https://lifehacker.com/what-are-the-general-guidelines-for-ingredient-substitu-1513349006)
+> 原文：<https://lifehacker.com/what-are-the-general-guidelines-for-ingredient-substitu-1513349006>
 
 你们中的许多人都有足够的经验来做不按食谱烹饪的即席烹饪。但是不要把食谱中的任何一种成分换成其他成分。每一种可食用元素都发挥着作用。SAJ14SAJ，一个在 [*栈交换*](http://cooking.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=cooking-103) *的专家厨师，列出了一些有用的替换指南。*
 

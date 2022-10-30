@@ -1,6 +1,6 @@
 # 如何应对搬回父母家的挫败感
 
-> 原文:[https://life hacker . com/how-to-deal-with-1719610305](https://lifehacker.com/how-to-deal-with-the-frustration-of-moving-back-in-with-1719610305)
+> 原文：<https://lifehacker.com/how-to-deal-with-the-frustration-of-moving-back-in-with-1719610305>
 
 我们大多数人都不喜欢搬回去和父母一起住。有一种失去独立的感觉，一种失败的感觉，当然，还有耻辱。如果你已经搬回来和家人一起住了，这里有一些方法可以让过渡尽可能顺利。
 

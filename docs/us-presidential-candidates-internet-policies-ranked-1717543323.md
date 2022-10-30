@@ -1,6 +1,6 @@
 # 美国总统候选人的互联网政策，排名
 
-> 原文:[https://gizmodo . com/us-总统-候选人-互联网-政策-排名-1717543323](https://gizmodo.com/us-presidential-candidates-internet-policies-ranked-1717543323)
+> 原文：<https://gizmodo.com/us-presidential-candidates-internet-policies-ranked-1717543323>
 
 随着 20 多名美国总统候选人的加入，每个人都试图在对美国人最重要的问题上选择获胜的立场。互联网的未来显然很大。以下是迄今为止提出的建议——好的、坏的和完全疯狂的。
 

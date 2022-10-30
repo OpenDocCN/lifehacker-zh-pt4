@@ -1,6 +1,6 @@
 # 简约的 IT 日常包
 
-> 原文:[https://life hacker . com/the-minimalist-it-daily-bag-1578502817](https://lifehacker.com/the-minimalist-it-everyday-bag-1578502817)
+> 原文：<https://lifehacker.com/the-minimalist-it-everyday-bag-1578502817>
 
 仅仅因为你身处其中，并不意味着你必须一直带着一大堆小玩意。事实上，对于读者尼古拉斯·摩尔来说，垃圾越少越好。
 

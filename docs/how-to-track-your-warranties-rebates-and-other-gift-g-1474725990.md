@@ -1,6 +1,6 @@
 # 如何跟踪你的保修，回扣，和其他送礼文书工作
 
-> 原文:[https://life hacker . com/how-to-track-your-warranties-rebates-and-other-gift-g-1474725990](https://lifehacker.com/how-to-track-your-warranties-rebates-and-other-gift-g-1474725990)
+> 原文：<https://lifehacker.com/how-to-track-your-warranties-rebates-and-other-gift-g-1474725990>
 
 送礼物是一个伟大的传统，它让你向你关心的人表达爱意并分享快乐。它还陷入了保修，回扣，扩大覆盖面，和其他无聊的文书工作。我们是来帮你解决后者的。
 

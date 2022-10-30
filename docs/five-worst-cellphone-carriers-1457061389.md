@@ -1,6 +1,6 @@
 # 五大最差手机运营商
 
-> 原文:[https://life hacker . com/五大最差手机运营商-1457061389](https://lifehacker.com/five-worst-cellphone-carriers-1457061389)
+> 原文：<https://lifehacker.com/five-worst-cellphone-carriers-1457061389>
 
 为了纪念邪恶周，我们把五号蜂房调了一点。不是在一个类别中选出五个最好的，本周我们根据你的提名选择五个最差的，具体来说，五个最差的无线电话运营商。一些运营商很棒，但是这些公司因为松懈的客户服务、高昂的价格、糟糕的合同等等而招致你的愤怒。我们将逐一介绍，并尽可能提供一些获得更好服务的建议。
 

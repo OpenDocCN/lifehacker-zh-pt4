@@ -1,6 +1,6 @@
 # 你(可能)没用过的最好的 Chrome 应用
 
-> 原文:[https://life hacker . com/the-best-chrome-apps-you-possible-not-use-494408658](https://lifehacker.com/the-best-chrome-apps-youre-probably-not-using-494408658)
+> 原文：<https://lifehacker.com/the-best-chrome-apps-youre-probably-not-using-494408658>
 
 Chrome 应用商店最近有了很多改进，但谷歌 Chrome 内部的许多应用程序仍然不为人知。考虑到这一点，这里有一些你可能还没看过的我们最喜欢的。
 

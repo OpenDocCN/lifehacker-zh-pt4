@@ -1,6 +1,6 @@
 # 职业聚焦:我作为欺诈分析师的工作
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-fraud-analyst-1708233246](https://lifehacker.com/career-spotlight-what-i-do-as-a-fraud-analyst-1708233246)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-fraud-analyst-1708233246>
 
 任何时候都有数百万笔交易在网上发生，因此必须有人时刻警惕欺诈行为。欺诈分析师努力剔除那些利用被盗信息或欺诈行为的人，并发现犯罪趋势，以防止他们在未来得逞。
 

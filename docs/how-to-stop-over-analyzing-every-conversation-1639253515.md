@@ -1,6 +1,6 @@
 # 如何停止过度分析每一次谈话
 
-> 原文:[https://life hacker . com/how-to-stop-over-analyzing-every-conversation-1639253515](https://lifehacker.com/how-to-stop-over-analyzing-every-conversation-1639253515)
+> 原文：<https://lifehacker.com/how-to-stop-over-analyzing-every-conversation-1639253515>
 
 在每次谈话中，我都会分析对方的一切。我看着他们的眼睛，观察肢体语言，倾听不同的关键词。我从每一次社交活动的言外之意中进行解读，从不相信任何表面现象。这让生活变得更加困难。
 

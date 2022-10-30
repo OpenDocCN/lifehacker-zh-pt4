@@ -1,6 +1,6 @@
 # 你应该在 12 月进行的财务活动
 
-> 原文:[https://life hacker . com/the-financial-moves-you-should-make-in-1475503660](https://lifehacker.com/the-financial-moves-you-should-make-in-december-1475503660)
+> 原文：<https://lifehacker.com/the-financial-moves-you-should-make-in-december-1475503660>
 
 再见 2014！很难相信它会很快结束。现在是时候总结一下你今年的财务状况，并开始为 2015 年做计划了。
 

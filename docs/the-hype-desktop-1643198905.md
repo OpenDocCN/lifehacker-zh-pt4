@@ -1,6 +1,6 @@
 # 炒作桌面
 
-> 原文:[https://lifehacker.com/the-hype-desktop-1643198905](https://lifehacker.com/the-hype-desktop-1643198905)
+> 原文：<https://lifehacker.com/the-hype-desktop-1643198905>
 
 读者 [耶兹拉](http://yezra.kinja.com/) 向我们的 [桌面展示](http://kinja.com/desktop-showcase) 提交了这款桌面，指出他是简单、干净桌面的忠实粉丝，并最终建造了一款他们认为合适的桌面。你的不需要看起来完全一样，但是如果你喜欢要点，这里是你需要自己做的。
 

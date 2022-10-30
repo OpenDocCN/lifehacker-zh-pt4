@@ -1,6 +1,6 @@
 # 最好的天气网站是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-weather-web-site-1686649965](https://lifehacker.com/whats-the-best-weather-web-site-1686649965)
+> 原文：<https://lifehacker.com/whats-the-best-weather-web-site-1686649965>
 
 随着外面的天气在这些地方变得可怕，在其他地方变得令人愉快，一个可靠的天气网站比以往任何时候都更有用。本周，我们想知道当你需要准确、可靠的天气预报来为当天的活动、明天的通勤或周末计划做准备时，你会求助于哪些网站。
 

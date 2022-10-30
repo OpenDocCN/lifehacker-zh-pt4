@@ -1,6 +1,6 @@
 # 远程工作者办公室礼仪指南
 
-> 原文:[https://life hacker . com/the-remote-worker-s-guide-to-office-礼仪-1707166009](https://lifehacker.com/the-remote-worker-s-guide-to-office-etiquette-1707166009)
+> 原文：<https://lifehacker.com/the-remote-worker-s-guide-to-office-etiquette-1707166009>
 
 在家工作，不管是偶尔还是每天，都不会让你对其他人带来的社交怪异免疫。事实上，远离你的同事会让交流变得更加陌生。以下是你需要知道的，以避免聊天室里尴尬的沉默，电话会议上无聊的笑话，或者只是感觉与其他同事隔绝。
 

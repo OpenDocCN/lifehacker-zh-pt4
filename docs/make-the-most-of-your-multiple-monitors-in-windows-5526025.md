@@ -1,6 +1,6 @@
 # 充分利用 Windows 中的多显示器
 
-> 原文:[https://life hacker . com/make-the-most-of-your-multi-monitors-in-windows-5526025](https://lifehacker.com/make-the-most-of-your-multiple-monitors-in-windows-5526025)
+> 原文：<https://lifehacker.com/make-the-most-of-your-multiple-monitors-in-windows-5526025>
 
 这些年来，额外显示器的价格稳步下降，质量有所提高，Windows 比以往任何时候都更加支持多显示器。以下是如何在 Windows 7 和 8 中充分利用多显示器设置的方法。
 

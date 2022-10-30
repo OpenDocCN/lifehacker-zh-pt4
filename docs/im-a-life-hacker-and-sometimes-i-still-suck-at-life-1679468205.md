@@ -1,6 +1,6 @@
 # 我是一个生活黑客，有时我仍然生活得很糟糕
 
-> 原文:[https://life hacker . com/im-a-life-hacker-and-something-I-still-suck-at-life-1679468205](https://lifehacker.com/im-a-life-hacker-and-sometimes-i-still-suck-at-life-1679468205)
+> 原文：<https://lifehacker.com/im-a-life-hacker-and-sometimes-i-still-suck-at-life-1679468205>
 
 我要坦白一件事:我在 Lifehacker 工作。我以写如何更快、更有效、更便宜地做事为生。然而我还是失败了。我会分心。我浪费钱。我并没有遵循我所写的每一条建议。不过没关系。
 

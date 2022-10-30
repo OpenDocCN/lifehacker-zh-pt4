@@ -1,6 +1,6 @@
 # 为什么你不想买一辆翻新的救援车
 
-> 原文:[https://jalopnik . com/why-you-dont-want-to-buy-a-rebuilded-salvage-vehicle-1653320003](https://jalopnik.com/why-you-dont-want-to-buy-a-rebuilt-salvage-vehicle-1653320003)
+> 原文：<https://jalopnik.com/why-you-dont-want-to-buy-a-rebuilt-salvage-vehicle-1653320003>
 
 有没有想过买一辆重建的打捞车？以前失事，但现在合法驾驶，以前的救助车辆可能大大低于另一个类似的车辆没有指定。我要提醒你:重建抢救车是汽车世界的傻瓜黄金。
 

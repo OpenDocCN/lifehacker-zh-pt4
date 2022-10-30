@@ -1,6 +1,6 @@
 # 冒险:如何克服对失败的恐惧
 
-> 原文:[https://life hacker . com/taking-the-through-how-to-get-over-your-fear-of-failure-1723699531](https://lifehacker.com/taking-the-plunge-how-to-get-over-your-fear-of-failure-1723699531)
+> 原文：<https://lifehacker.com/taking-the-plunge-how-to-get-over-your-fear-of-failure-1723699531>
 
 我们每个人都有一个有抱负的冒险家、企业家或小说家。然而，当谈到追逐我们的目标和梦想时，我们往往太害怕，不敢迈出这一步。恐惧阻碍了我们。它摧毁了梦想。它扼杀了生产力，老实说，它剥夺了生活的乐趣。
 

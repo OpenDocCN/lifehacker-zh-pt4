@@ -1,6 +1,6 @@
 # 我是亚当“原子”盐人，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Adam-atomic-salts man-and-this-is-how-I-work-1468190840](https://lifehacker.com/im-adam-atomic-saltsman-and-this-is-how-i-work-1468190840)
+> 原文：<https://lifehacker.com/im-adam-atomic-saltsman-and-this-is-how-i-work-1468190840>
 
 亚当“原子”萨尔特曼 对任何试图进入游戏设计的人都有明智的建议:“永远做你自己的第一个批评家。这听起来很消极，但根本不是悲观主义；而是通过别人的眼睛清楚地看到你的作品，并致力于让你的游戏成为它应该成为的样子。”按照这个建议，亚当创造了像和 [百位](http://playhundreds.com/) 以及 [其他](http://www.adamatomic.com/) 等极其成功的游戏。(我对你点击这些链接后如何度过一天的剩余时间不承担任何责任。)我采访了原子先生，了解他最喜欢的小工具、当前阅读清单、最佳省时工具等等。
 

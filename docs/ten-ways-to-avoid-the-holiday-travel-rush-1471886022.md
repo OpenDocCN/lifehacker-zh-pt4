@@ -1,6 +1,6 @@
 # 避免假日旅游热潮的十种方法
 
-> 原文:[https://jalopnik . com/十种避免假日旅游的方法-1471886022](https://jalopnik.com/ten-ways-to-avoid-the-holiday-travel-rush-1471886022)
+> 原文：<https://jalopnik.com/ten-ways-to-avoid-the-holiday-travel-rush-1471886022>
 
 感恩节最棒的是家庭盛宴。烤火鸡，波旁酒，馅饼，波旁酒。通常不好玩的是旅行部分，所以这里有十个小贴士让你的旅程变得更容易，这样你就可以和家人在一起了。还有波本威士忌。
 

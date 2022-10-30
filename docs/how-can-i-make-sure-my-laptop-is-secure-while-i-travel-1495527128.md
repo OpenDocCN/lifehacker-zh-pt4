@@ -1,6 +1,6 @@
 # 我如何确保我的笔记本电脑在旅行时是安全的？
 
-> 原文:[https://life hacker . com/how-I-can-make-that-my-laptop-is-secure-while I-travel-1495527128](https://lifehacker.com/how-can-i-make-sure-my-laptop-is-secure-while-i-travel-1495527128)
+> 原文：<https://lifehacker.com/how-can-i-make-sure-my-laptop-is-secure-while-i-travel-1495527128>
 
 亲爱的 Lifehacker，
 我马上要去旅行了，我需要带上我的笔记本电脑。我如何确保它尽可能安全？我不会总是有自己的办公桌，有时我不得不在公共场所工作。当我不在家使用笔记本电脑时，如何保护笔记本电脑及其上的数据？

@@ -1,6 +1,6 @@
 # 如何阅读和理解你的信用报告
 
-> 原文:[https://life hacker . com/how-to-read-and-understand-your-credit-report-1552491817](https://lifehacker.com/how-to-read-and-understand-your-credit-report-1552491817)
+> 原文：<https://lifehacker.com/how-to-read-and-understand-your-credit-report-1552491817>
 
 定期审查你的信用很重要。但是你的信用报告包含了很多信息，浏览起来会很混乱。以下是如何解码和理解你的报告。
 

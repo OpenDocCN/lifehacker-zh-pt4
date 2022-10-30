@@ -1,6 +1,6 @@
 # 问问 Nerdlove 博士:我会一直是个超重的处女吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-will-I-always-be-an-weight-virgi-1647275166](https://kotaku.com/ask-dr-nerdlove-will-i-always-be-an-overweight-virgi-1647275166)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-will-i-always-be-an-overweight-virgi-1647275166>
 
 你好，互联网！欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个知道当你的爱情生活陷入死亡蓝屏时如何解决问题的约会建议专栏。
 

@@ -1,6 +1,6 @@
 # 我如何从每月的食物账单中削减 205 美元
 
-> 原文:[https://life hacker . com/how-I-cut-205-from-my-monthly-food-bill-1496445570](https://lifehacker.com/how-i-cut-205-from-my-monthly-food-bill-1496445570)
+> 原文：<https://lifehacker.com/how-i-cut-205-from-my-monthly-food-bill-1496445570>
 
 你每个月在食物上花费多少？不知道？没关系。很长一段时间我都不知道自己在食物上花了多少钱，直到大学毕业才让我了解了现实。(读:在大城市破。)
 

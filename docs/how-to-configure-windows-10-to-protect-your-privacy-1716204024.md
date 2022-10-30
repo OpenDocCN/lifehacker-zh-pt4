@@ -1,6 +1,6 @@
 # 如何配置 Windows 10 保护自己的隐私
 
-> 原文:[https://life hacker . com/how-to-configure-windows-10-to-protect-your-privacy-1716204024](https://lifehacker.com/how-to-configure-windows-10-to-protect-your-privacy-1716204024)
+> 原文：<https://lifehacker.com/how-to-configure-windows-10-to-protect-your-privacy-1716204024>
 
 当你第一次得到一台新的 Windows 电脑(或设置一台旧电脑)时，你可能会专注于下载你最喜欢的应用程序和传输你的文件。这也是一个很好的时间来配置您的机器，以保护您的隐私。
 

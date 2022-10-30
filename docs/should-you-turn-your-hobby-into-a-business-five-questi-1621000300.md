@@ -1,6 +1,6 @@
 # 你应该把你的爱好变成一门生意吗？要问的五个问题
 
-> 原文:[https://life hacker . com/should-you-turn-you-hobby to-a-business-five-questi-1621000300](https://lifehacker.com/should-you-turn-your-hobby-into-a-business-five-questi-1621000300)
+> 原文：<https://lifehacker.com/should-you-turn-your-hobby-into-a-business-five-questi-1621000300>
 
 当然，你现在喜欢你最喜欢的业余活动，但是当它成为你唯一的收入来源时，你还会喜欢吗？把你的爱好变成一项事业是一个重大的决定，在冒险之前，你需要问自己几个问题。
 

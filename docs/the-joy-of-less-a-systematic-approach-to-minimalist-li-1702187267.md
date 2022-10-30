@@ -1,6 +1,6 @@
 # 少的快乐:极简生活的系统方法
 
-> 原文:[https://life hacker . com/the-joy-of-less-a-system-approach-to-minimal-Li-1702187267](https://lifehacker.com/the-joy-of-less-a-systematic-approach-to-minimalist-li-1702187267)
+> 原文：<https://lifehacker.com/the-joy-of-less-a-systematic-approach-to-minimalist-li-1702187267>
 
 这个世界充满了物质，但真正的生活发生在我们所有物质之间的空间。弗朗辛·杰伊的《更少的快乐》，一本极简生活指南将帮助你 [整理你的家](https://lifehacker.com/how-to-kick-your-clutter-habit-and-live-in-a-clean-hous-5957609) ，在你不需要的物质上少花钱，专注于你生活中重要的事情。
 

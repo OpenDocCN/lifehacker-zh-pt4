@@ -1,6 +1,6 @@
 # 七个现成的 Raspberry Pi 项目，点击几下就可以安装
 
-> 原文:[https://life hacker . com/seven-ready-made-raspberry-pi-projects-you-can-install-1691368805](https://lifehacker.com/seven-ready-made-raspberry-pi-projects-you-can-install-1691368805)
+> 原文：<https://lifehacker.com/seven-ready-made-raspberry-pi-projects-you-can-install-1691368805>
 
 树莓派是 DIYers 的梦想，但如果你不想摆弄命令行和从头开始建立一个项目，这里有七个项目，你只需点击几下就可以启动并运行。
 

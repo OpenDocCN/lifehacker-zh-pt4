@@ -1,6 +1,6 @@
 # 用这些来自大都会博物馆的壁纸欣赏一些艺术作品
 
-> 原文:[https://life hacker . com/enjoy-some-fine-art with these-the-met-1613535498](https://lifehacker.com/enjoy-some-fine-art-with-these-wallpapers-from-the-met-1613535498)
+> 原文：<https://lifehacker.com/enjoy-some-fine-art-with-these-wallpapers-from-the-met-1613535498>
 
 本周，大都会艺术博物馆 [从他们的收藏](http://bigthink.com/1000-words/need-a-new-screensaver-the-met-puts-400000-high-res-images-online) 中拿出 40 万张高分辨率图片供下载。所以，为了让你体验一下，我们决定为你的桌面展示一些我们最喜欢的壁纸。
 

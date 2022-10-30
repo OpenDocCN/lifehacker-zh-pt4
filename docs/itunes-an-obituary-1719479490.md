@@ -1,6 +1,6 @@
 # iTunes，讣告
 
-> 原文:[https://gizmodo.com/itunes-an-obituary-1719479490](https://gizmodo.com/itunes-an-obituary-1719479490)
+> 原文：<https://gizmodo.com/itunes-an-obituary-1719479490>
 
 把这当成 iTunes 的讣告吧。死亡发生在苹果音乐诞生几周之后，苹果音乐的继承人，也就是通常忠诚的公众不太喜欢的。iTunes 只有 14 岁。
 

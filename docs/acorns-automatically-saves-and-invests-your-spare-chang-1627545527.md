@@ -1,6 +1,6 @@
 # Acorns 自动保存和投资你的零钱
 
-> 原文:[https://life hacker . com/acorns-automatically-saves-and-investment-your-spare-Chang-1627545527](https://lifehacker.com/acorns-automatically-saves-and-invests-your-spare-chang-1627545527)
+> 原文：<https://lifehacker.com/acorns-automatically-saves-and-invests-your-spare-chang-1627545527>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-LIAGdloc_OI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-LIAGdloc_OI&start=0) 
 

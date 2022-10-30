@@ -1,6 +1,6 @@
 # 当昂贵的电缆确实物有所值时
 
-> 原文:[https://life hacker . com/when-highly-cables-when-actually-value-the-money-1552193843](https://lifehacker.com/when-expensive-cables-are-actually-worth-the-money-1552193843)
+> 原文：<https://lifehacker.com/when-expensive-cables-are-actually-worth-the-money-1552193843>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Bfv9L8fVvr4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Bfv9L8fVvr4&start=0) 
 

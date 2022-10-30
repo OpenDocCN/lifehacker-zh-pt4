@@ -1,6 +1,6 @@
 # Azul 主屏幕
 
-> 原文:[https://lifehacker.com/the-azul-home-screen-1725442680](https://lifehacker.com/the-azul-home-screen-1725442680)
+> 原文：<https://lifehacker.com/the-azul-home-screen-1725442680>
 
 今天的主屏幕设计使用了适度的蓝绿色模板和拼图一样的网格，给你的主屏幕一个充满活力和有条理的外观。
 

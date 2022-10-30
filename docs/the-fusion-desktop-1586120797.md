@@ -1,6 +1,6 @@
 # 融合桌面
 
-> 原文:[https://lifehacker.com/the-fusion-desktop-1586120797](https://lifehacker.com/the-fusion-desktop-1586120797)
+> 原文：<https://lifehacker.com/the-fusion-desktop-1586120797>
 
 Flickr 用户[Alexandru Tropenpflanze](https://www.flickr.com/photos/mcwolke/)的桌面是一个很好的例子，你可以在 Windows 中用 Rainmeter 做什么，而且设置起来并不困难。只需要快捷方式、一些适当放置的小部件和一些有用的信息。这是你需要让你的显示器看起来像这样的东西。
 

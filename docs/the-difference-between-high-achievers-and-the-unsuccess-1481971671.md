@@ -1,6 +1,6 @@
 # 成功者和失败者的区别在于勇气
 
-> 原文:[https://life hacker . com/the-difference of-high-achieve-and-the-success-1481971671](https://lifehacker.com/the-difference-between-high-achievers-and-the-unsuccess-1481971671)
+> 原文：<https://lifehacker.com/the-difference-between-high-achievers-and-the-unsuccess-1481971671>
 
 或许比天赋或运气更重要的是，“毅力”是让成功人士与众不同的一种品质。我们有办法在自己身上培养这种能力。
 

@@ -1,6 +1,6 @@
 # 当你没有任何工作经验时，如何谈判你的薪水
 
-> 原文:[https://life hacker . com/how-to-negotiate-your-salary-when you-no-hawking-1680823703](https://lifehacker.com/how-to-negotiate-your-salary-when-you-dont-have-any-wor-1680823703)
+> 原文：<https://lifehacker.com/how-to-negotiate-your-salary-when-you-dont-have-any-wor-1680823703>
 
 谈判你的第一份薪水 [在你的职业生涯中会有相当多的回报](http://lifehacker.com/not-negotiating-your-salary-could-cost-you-500-000-in-5968375) 。但是，当你刚刚起步时，要求更多的钱可能会令人生畏。以下是当你没有太多正式工作经验时，如何协商你的薪酬。
 

@@ -1,6 +1,6 @@
 # 科技工作的面试是什么样的
 
-> 原文:[https://life hacker . com/what-its-like-to-interview-for-tech-jobs-1583412243](https://lifehacker.com/what-its-like-to-interview-for-tech-jobs-1583412243)
+> 原文：<https://lifehacker.com/what-its-like-to-interview-for-tech-jobs-1583412243>
 
 在过去的一年里，我有很多机会去面试我所尊敬的公司的职位，但也有一些我没有。我想分享我的经验来帮助其他想走上这条工作道路的人，以及一些通用的面试技巧。
 

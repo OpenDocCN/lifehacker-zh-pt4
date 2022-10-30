@@ -1,6 +1,6 @@
 # 火热的日落桌面
 
-> 原文:[https://lifehacker.com/the-fiery-sunset-desktop-1637856217](https://lifehacker.com/the-fiery-sunset-desktop-1637856217)
+> 原文：<https://lifehacker.com/the-fiery-sunset-desktop-1637856217>
 
 Flickr 用户 [xhuxhaxhu](https://www.flickr.com/photos/38377466@N03/) 以前也曾在这里展示过桌面，但这一款以其亮橙色和暗黑色、开放的空间以及几个有用的屏幕小工具让她保持信息畅通而让我们印象深刻。她是这样设置的。
 

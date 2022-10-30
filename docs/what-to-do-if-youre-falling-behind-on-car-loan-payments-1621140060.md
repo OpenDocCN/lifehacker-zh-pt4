@@ -1,6 +1,6 @@
 # 如果你拖欠汽车贷款，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-laughing-on-car-loan-payments-1621140060](https://lifehacker.com/what-to-do-if-youre-falling-behind-on-car-loan-payments-1621140060)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-falling-behind-on-car-loan-payments-1621140060>
 
 对许多人来说，拥有汽车是一种必要的负担，如果你在财务上捉襟见肘，很难跟上你的汽车付款。当你难以支付时，以下是你的选择。
 

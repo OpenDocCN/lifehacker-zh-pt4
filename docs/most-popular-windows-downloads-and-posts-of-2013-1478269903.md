@@ -1,6 +1,6 @@
 # 2013 年最受欢迎的 Windows 下载和帖子
 
-> 原文:[https://life hacker . com/most-popular-windows-downloads-and-post-of-2013-1478269903](https://lifehacker.com/most-popular-windows-downloads-and-posts-of-2013-1478269903)
+> 原文：<https://lifehacker.com/most-popular-windows-downloads-and-posts-of-2013-1478269903>
 
 无论你喜欢还是讨厌 Windows 8，2013 年仍然是 Windows 提示、下载和指南的大好年份。以下是我们今年最受欢迎的 Windows 帖子。
 

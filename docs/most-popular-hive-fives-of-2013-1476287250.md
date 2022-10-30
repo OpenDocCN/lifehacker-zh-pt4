@@ -1,6 +1,6 @@
 # 2013 年最受欢迎的 Hive Fives
 
-> 原文:[https://life hacker . com/most-popular-hive-fives-of-2013-1476287250](https://lifehacker.com/most-popular-hive-fives-of-2013-1476287250)
+> 原文：<https://lifehacker.com/most-popular-hive-fives-of-2013-1476287250>
 
 2013 年对于我们的 Hive Five 功能来说是一个很好的年份，我们要求您提供某个类别中最好的工具，突出显示前五名，然后要求您投票决定最好或最受欢迎的工具。我们今年覆盖了很多领域，并重点介绍了一些很棒的小工具、应用程序和工具。以下是 2013 年最受欢迎的 Hive Fives。
 

@@ -1,6 +1,6 @@
 # 如何购买租赁车辆
 
-> 原文:[https://jalopnik . com/how-to-shop for-a-leased-vehicle-1631496561](https://jalopnik.com/how-to-shop-for-a-leased-vehicle-1631496561)
+> 原文：<https://jalopnik.com/how-to-shop-for-a-leased-vehicle-1631496561>
 
 对于那些认为租车是有史以来最糟糕的财务决策，并想说“如果你买不起，你就不应该买它！”，现在停止阅读，跳上你的高马，飞奔到评论。现在，对于你们其余的人来说，这里是你们真正需要知道的关于租车的事情。
 

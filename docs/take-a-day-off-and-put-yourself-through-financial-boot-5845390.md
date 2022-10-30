@@ -1,6 +1,6 @@
 # 放一天假，让自己经历一次金融训练营
 
-> 原文:[https://life hacker . com/take-a day-off-put-through-financial-boot-5845390](https://lifehacker.com/take-a-day-off-and-put-yourself-through-financial-boot-5845390)
+> 原文：<https://lifehacker.com/take-a-day-off-and-put-yourself-through-financial-boot-5845390>
 
 你有一份前雇主的 401(k)退休金，你已经几个星期没看了，一张你几个月来一直想做点什么的高息信用卡，你的支票账户里有现金却什么也没做。你一直想改善你的财务状况，但是一直没有时间。现在就做:如果有必要的话，请一天假，早起，让你的财务通过新兵训练营。以下是方法。
 

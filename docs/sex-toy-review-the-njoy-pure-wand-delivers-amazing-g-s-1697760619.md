@@ -1,6 +1,6 @@
 # 性玩具评论:Njoy 纯魔杖带来惊人的 g 点高潮
 
-> 原文:[https://life hacker . com/sex-toy-review-the-njoy-pure-wand-delives-amazing-g-s-1697760619](https://lifehacker.com/sex-toy-review-the-njoy-pure-wand-delivers-amazing-g-s-1697760619)
+> 原文：<https://lifehacker.com/sex-toy-review-the-njoy-pure-wand-delivers-amazing-g-s-1697760619>
 
 g 点让很多人感到困惑。存在吗？你是怎么做到的？ [Njoy 纯魔杖](http://www.babeland.com/Njoy-Pure-Wand/d/2732) 是一个漂亮、严肃的玩具，它将帮助你轻松找到并刺激你的 g 点，并带来一些令人瞠目结舌的高潮。
 

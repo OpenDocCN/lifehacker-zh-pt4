@@ -1,6 +1,6 @@
 # 改善你杂乱照片收藏的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-improve-your-dirty-photo-collection-1707830539](https://lifehacker.com/top-10-ways-to-improve-your-messy-photo-collection-1707830539)
+> 原文：<https://lifehacker.com/top-10-ways-to-improve-your-messy-photo-collection-1707830539>
 
 我们的照片收藏像杂草一样不断增长，整理所有的照片是一项艰巨的任务。然而，有了正确的工具和方法，整理我们所有的照片就不那么麻烦了。
 

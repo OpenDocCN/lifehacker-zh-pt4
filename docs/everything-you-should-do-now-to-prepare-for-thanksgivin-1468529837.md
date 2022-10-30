@@ -1,6 +1,6 @@
 # 你现在应该为感恩节做的一切准备
 
-> 原文:[https://life hacker . com/everything-you-should-do now-to-prepare for thanksgivin-1468529837](https://lifehacker.com/everything-you-should-do-now-to-prepare-for-thanksgivin-1468529837)
+> 原文：<https://lifehacker.com/everything-you-should-do-now-to-prepare-for-thanksgivin-1468529837>
 
 感恩节总是一个忙碌的时刻，但它如此忙碌和难以管理的事实往往来自于我们只是提前几天或几个小时才开始考虑它。这个大日子可能不是一周后，但如果你打算庆祝，有几件事你应该考虑现在做，以确保一切顺利进行。
 

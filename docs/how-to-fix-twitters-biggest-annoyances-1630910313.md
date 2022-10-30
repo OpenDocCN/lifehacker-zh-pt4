@@ -1,6 +1,6 @@
 # 如何解决 Twitter 最大的烦恼
 
-> 原文:[https://life hacker . com/how-to-fix-twitters-maximum-annotations-1630910313](https://lifehacker.com/how-to-fix-twitters-biggest-annoyances-1630910313)
+> 原文：<https://lifehacker.com/how-to-fix-twitters-biggest-annoyances-1630910313>
 
 Twitter 可能比不上脸书强大的社交网络，但我们仍然觉得它非常有用。它仍然有相当一部分系统固有的烦恼。以下是如何避免被烦恼压抑的方法。
 

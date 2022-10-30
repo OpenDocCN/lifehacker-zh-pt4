@@ -1,6 +1,6 @@
 # 我应该把钱投入雇主的 401(k)计划还是自己投资？
 
-> 原文:[https://life hacker . com/should-I-put-money-into-my-employees-401-k-or-invest-o-1665628446](https://lifehacker.com/should-i-put-money-into-my-employers-401-k-or-invest-o-1665628446)
+> 原文：<https://lifehacker.com/should-i-put-money-into-my-employers-401-k-or-invest-o-1665628446>
 
 亲爱的生活黑客，我想为将来存一点东西，但我听到很多人说，也许我公司的 401(k)不是存放我的钱的地方。我应该自己投资，还是坚持雇主提供的东西？我应该两样都做吗？如何判断我的 401(k)是好是坏？
 

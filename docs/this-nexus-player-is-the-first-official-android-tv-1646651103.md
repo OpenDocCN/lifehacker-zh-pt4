@@ -1,6 +1,6 @@
 # 这款 Nexus 播放器是首款官方安卓电视
 
-> 原文:[https://gizmodo . com/this-nexus-player-is-the-first-official-Android-TV-1646651103](https://gizmodo.com/this-nexus-player-is-the-first-official-android-tv-1646651103)
+> 原文：<https://gizmodo.com/this-nexus-player-is-the-first-official-android-tv-1646651103>
 
 Chromecast 谁？真正的 [安卓电视](https://gizmodo.com/androidtv-googles-bajillionth-attempt-to-take-over-you-1595951410) 来了。这是 Nexus Player，一个 4 英寸、半磅重的冰球机顶盒，旨在观看你所有的电影和玩你的 Android 游戏。10 月 17 日售价 99 美元。
 

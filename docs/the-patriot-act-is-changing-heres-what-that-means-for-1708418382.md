@@ -1,6 +1,6 @@
 # 爱国者法案正在改变。这对于你的隐私意味着什么
 
-> 原文:[https://life hacker . com/the-patriot-act-is-changing-heres-that-means-for-1708418382](https://lifehacker.com/the-patriot-act-is-changing-heres-what-that-means-for-1708418382)
+> 原文：<https://lifehacker.com/the-patriot-act-is-changing-heres-what-that-means-for-1708418382>
 
 本周，臭名昭著的《爱国者法案》(Patriot Act)的某些关键条款自动失效，该法案赋予了美国国家安全局(NSA)窥探的权力。不过，现在还不要太兴奋:他们可能会带着一些变化回来。以下是我们所知道的，以及这对你的隐私意味着什么。
 

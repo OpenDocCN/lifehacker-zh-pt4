@@ -1,6 +1,6 @@
 # iPhone 的最佳电子邮件客户端
 
-> 原文:[https://life hacker . com/the-best-email-client-for-iphone-5810895](https://lifehacker.com/the-best-email-client-for-iphone-5810895)
+> 原文：<https://lifehacker.com/the-best-email-client-for-iphone-5810895>
 
 在 iPhone 上，你有太多的电子邮件客户端可供选择，每一个客户端做的事情都与其他客户端稍有不同。令人震惊的是，我们对这些选项的最佳选择竟然是微软的 Outlook。是的，我们也很惊讶。
 

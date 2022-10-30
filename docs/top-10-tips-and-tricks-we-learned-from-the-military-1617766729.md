@@ -1,6 +1,6 @@
 # 我们从军队学到的 10 大技巧和窍门
 
-> 原文:[https://life hacker . com/top-10-tips-and-tricks-we-learn-from the-military-1617766729](https://lifehacker.com/top-10-tips-and-tricks-we-learned-from-the-military-1617766729)
+> 原文：<https://lifehacker.com/top-10-tips-and-tricks-we-learned-from-the-military-1617766729>
 
 你在军队中学习独特、有用的技能——不仅适用于特种作战，也经常适用于日常生活。以下是我们这些年来学到的十个最有趣的。
 

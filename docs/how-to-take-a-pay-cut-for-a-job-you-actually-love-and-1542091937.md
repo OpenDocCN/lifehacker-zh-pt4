@@ -1,6 +1,6 @@
 # 如何接受一份你真正热爱的工作的降薪(并生存下去)
 
-> 原文:[https://life hacker . com/how-to-take-a-pay-cut-for-a-job-you-actually-love-and-1542091937](https://lifehacker.com/how-to-take-a-pay-cut-for-a-job-you-actually-love-and-1542091937)
+> 原文：<https://lifehacker.com/how-to-take-a-pay-cut-for-a-job-you-actually-love-and-1542091937>
 
 不久前，我跳槽去了一份办公室工作，这份工作很棒，但不是我的激情所在。我冒着巨大的风险去追寻我的梦想，在这个过程中我学到了很多东西。如果你正在考虑追随你的梦想或者做你喜欢的事情，这里有一些建议在你做之前要记住，还有我的一些错误可以借鉴。
 

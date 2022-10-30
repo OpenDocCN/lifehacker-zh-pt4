@@ -1,6 +1,6 @@
 # 海浪主页屏幕
 
-> 原文:[https://life hacker . com/the-ocean-waves-home-screen-1693919765](https://lifehacker.com/the-ocean-waves-home-screen-1693919765)
+> 原文：<https://lifehacker.com/the-ocean-waves-home-screen-1693919765>
 
 这个国家的大部分地区可能仍然寒冷，但是如果你渴望海洋乐趣的夏天，这个主屏幕会让你有心情。
 

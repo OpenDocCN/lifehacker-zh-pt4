@@ -1,6 +1,6 @@
 # 当你决定要一只狗的时候，从哪里开始呢
 
-> 原文:[https://life hacker . com/where-to-start-when you could-want-1665643067](https://lifehacker.com/where-to-start-when-youve-decided-you-want-a-dog-1665643067)
+> 原文：<https://lifehacker.com/where-to-start-when-youve-decided-you-want-a-dog-1665643067>
 
 养狗是一种无价的体验，但也需要付出很多努力。开始是最难的部分，尤其是如果你以前从未养过狗。当你决定要一只狗时，你需要做以下几件事。
 

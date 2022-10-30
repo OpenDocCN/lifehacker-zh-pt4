@@ -1,6 +1,6 @@
 # Twipster 将 Twitter 混乱的界面剥离到本质
 
-> 原文:[https://life hacker . com/twip ster-strips-twitters-fuzzy-interface-down-to-th-507832803](https://lifehacker.com/twipster-strips-twitters-cluttered-interface-down-to-th-507832803)
+> 原文：<https://lifehacker.com/twipster-strips-twitters-cluttered-interface-down-to-th-507832803>
 
 Safari/Chrome:如果 Twitter 的网络界面对你来说有点过于繁忙，Twipster 会将其转换为一个最小的、响应性强的推文列表，没有任何混乱。
 

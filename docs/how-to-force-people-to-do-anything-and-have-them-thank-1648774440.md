@@ -1,6 +1,6 @@
 # 如何强迫人们做任何事情(并让他们为此感谢你)
 
-> 原文:[https://gizmodo . com/how-to-force-people-do-any-and-have-these-1648774440](https://gizmodo.com/how-to-force-people-to-do-anything-and-have-them-thank-1648774440)
+> 原文：<https://gizmodo.com/how-to-force-people-to-do-anything-and-have-them-thank-1648774440>
 
 你生命中有人不想做某事吗？你一点也不关心他们的愿望吗？以下是如何强迫他们完成一项他们并不关心的任务，甚至在你做这件事的时候觉得自己高人一等。
 

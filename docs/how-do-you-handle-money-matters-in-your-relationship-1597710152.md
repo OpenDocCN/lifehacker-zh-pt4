@@ -1,6 +1,6 @@
 # 你如何处理你们关系中的金钱问题？
 
-> 原文:[https://life hacker . com/how-do-you-handle-money-matters-1597710152](https://lifehacker.com/how-do-you-handle-money-matters-in-your-relationship-1597710152)
+> 原文：<https://lifehacker.com/how-do-you-handle-money-matters-in-your-relationship-1597710152>
 
 在你们的关系中融入金钱可能会很棘手。但在某些时候，大多数长期夫妻都会面临如何处理共同支出的问题。我们想知道——你是如何在你们的关系中融合财务的？
 

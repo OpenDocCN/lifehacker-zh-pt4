@@ -1,6 +1,6 @@
 # 开发人员和托管您自己的应用程序的最佳 Web 主机
 
-> 原文:[https://life hacker . com/the-best-web-hosts-for-developers-and-hosting-your-own-1522534769](https://lifehacker.com/the-best-web-hosts-for-developers-and-hosting-your-own-1522534769)
+> 原文：<https://lifehacker.com/the-best-web-hosts-for-developers-and-hosting-your-own-1522534769>
 
 如果你对托管自己的 webapps 感兴趣，或者你想要一个可以在其中玩、安装软件、甚至学习编码的开发环境，你将需要一个适合你的主机。最适合你的可能和最适合网站或博客的不一样。让我们为开发者或任何托管他们自己的应用程序的人建立一个最佳主机列表。
 

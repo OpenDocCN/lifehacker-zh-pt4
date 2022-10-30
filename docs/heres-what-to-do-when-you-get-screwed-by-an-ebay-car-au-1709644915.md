@@ -1,6 +1,6 @@
 # 当你被易贝的汽车拍卖会骗了时，你可以这么做
 
-> 原文:[https://jalopnik . com/heres-what-do-what-when-do-when-you-get-screw-by-an-ebay-car-au-1709644915](https://jalopnik.com/heres-what-to-do-when-you-get-screwed-by-an-ebay-car-au-1709644915)
+> 原文：<https://jalopnik.com/heres-what-to-do-when-you-get-screwed-by-an-ebay-car-au-1709644915>
 
 我的一个客户通过易贝从另一个州的卖家那里买了一辆昂贵的二手 SUV。交易结束时，卖方交付了一辆不同于易贝列表中的车辆。好在易贝有车辆保护计划，对不对？还是毫无价值？
 

@@ -1,6 +1,6 @@
 # 如何一键优化您的电脑游戏的图形设置
 
-> 原文:[https://life hacker . com/how-to-optimize-your-PC-games-graphics-settings-in-one-1522383411](https://lifehacker.com/how-to-optimize-your-pc-games-graphics-settings-in-one-1522383411)
+> 原文：<https://lifehacker.com/how-to-optimize-your-pc-games-graphics-settings-in-one-1522383411>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-HnOD-WIXyq4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-HnOD-WIXyq4&start=0) 
 

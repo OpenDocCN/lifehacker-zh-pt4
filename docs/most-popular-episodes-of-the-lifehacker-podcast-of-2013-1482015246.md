@@ -1,6 +1,6 @@
 # 2013 年 Lifehacker 播客最受欢迎的剧集
 
-> 原文:[https://life hacker . com/most-popular-episodes-of-the-life hacker-podcast-of-of-2013-1482015246](https://lifehacker.com/most-popular-episodes-of-the-lifehacker-podcast-of-2013-1482015246)
+> 原文：<https://lifehacker.com/most-popular-episodes-of-the-lifehacker-podcast-of-2013-1482015246>
 
 Lifehacker 上每周都会发生很多事情，在世界其他地方也是如此。我们创建了播客来轻松分享我们的热门故事、最受欢迎的技巧和下载，并回答您的问题。2013 年是我们的第二年，由于你们的持续倾听和反馈，我们成长了不少。以下是全年最受欢迎的剧集。
 

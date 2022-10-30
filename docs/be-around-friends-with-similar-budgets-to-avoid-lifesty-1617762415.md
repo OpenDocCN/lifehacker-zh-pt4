@@ -1,6 +1,6 @@
 # 和预算差不多的朋友在一起，避免生活方式膨胀
 
-> 原文:[https://life hacker . com/be-around-friends-with-similar-budget-to-avoid lifesty-1617762415](https://lifehacker.com/be-around-friends-with-similar-budgets-to-avoid-lifesty-1617762415)
+> 原文：<https://lifehacker.com/be-around-friends-with-similar-budgets-to-avoid-lifesty-1617762415>
 
 获得晋升是值得庆祝的事情，但是改变你的生活方式以适应你的新收入可能是不好的。为了避免这种情况，花点时间和那些预算差不多的朋友在一起。
 

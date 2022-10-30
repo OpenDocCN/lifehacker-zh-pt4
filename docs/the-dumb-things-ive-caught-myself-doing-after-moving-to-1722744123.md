@@ -1,6 +1,6 @@
 # 搬到一个新的城市后，我发现自己做的蠢事
 
-> 原文:[https://life hacker . com/the-dumb-things-ive-catch-I-do-after-move-to 1722744123](https://lifehacker.com/the-dumb-things-ive-caught-myself-doing-after-moving-to-1722744123)
+> 原文：<https://lifehacker.com/the-dumb-things-ive-caught-myself-doing-after-moving-to-1722744123>
 
 搬到一个新的城市会让你的整个生活陷入混乱，你想要做的只是取代你曾经熟悉的生活。在我最近一次搬家后，我发现自己陷入了一些陷阱，让我无法真正安顿下来。
 

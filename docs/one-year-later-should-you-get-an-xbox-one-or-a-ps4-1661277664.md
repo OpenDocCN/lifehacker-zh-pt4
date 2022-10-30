@@ -1,6 +1,6 @@
 # 一年后，该买 Xbox One 还是 PS4？
 
-> 原文:[https://kotaku . com/one-year-late-should-you-get-a-Xbox-one-or-a-ps4-1661277664](https://kotaku.com/one-year-later-should-you-get-an-xbox-one-or-a-ps4-1661277664)
+> 原文：<https://kotaku.com/one-year-later-should-you-get-an-xbox-one-or-a-ps4-1661277664>
 
 人们总是问我们是否应该购买新一代游戏机？他们应该买一台 Xbox One 吗？一台 PS4？一年来，我们告诉人们不要为这两者费心。现在，我们认为你应该迈出这一步，尤其是如果你是一个只玩游戏机的玩家。但是买哪一个呢？
 

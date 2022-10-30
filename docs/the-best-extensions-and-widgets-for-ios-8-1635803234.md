@@ -1,6 +1,6 @@
 # iOS 8 的最佳扩展和插件
 
-> 原文:[https://life hacker . com/the-best-extensions-and-widgets-for-IOs-8-1635803234](https://lifehacker.com/the-best-extensions-and-widgets-for-ios-8-1635803234)
+> 原文：<https://lifehacker.com/the-best-extensions-and-widgets-for-ios-8-1635803234>
 
 iOS 8 已经发布，苹果增加了一大堆东西，一些最好的东西是分享表、Safari 扩展、照片编辑扩展和小工具。最后，我们现在可以定制 iOS 了。以下是我们迄今为止看到的一些最好的。
 

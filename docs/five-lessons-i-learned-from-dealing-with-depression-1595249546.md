@@ -1,6 +1,6 @@
 # 我从处理抑郁症中学到的五个教训
 
-> 原文:[https://life hacker . com/five-lessons-I-learn-from-dealing-of-depression-1595249546](https://lifehacker.com/five-lessons-i-learned-from-dealing-with-depression-1595249546)
+> 原文：<https://lifehacker.com/five-lessons-i-learned-from-dealing-with-depression-1595249546>
 
 抑郁症是一个很难谈论的话题。这是一件更难忍受的事情。二十多年来，我一直患有抑郁症。过了一段时间，我学会了如何不放弃地度过难关。
 

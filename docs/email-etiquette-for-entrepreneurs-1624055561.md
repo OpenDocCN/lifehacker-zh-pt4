@@ -1,6 +1,6 @@
 # 企业家的电子邮件礼仪
 
-> 原文:[https://life hacker . com/email-礼仪-企业家-1624055561](https://lifehacker.com/email-etiquette-for-entrepreneurs-1624055561)
+> 原文：<https://lifehacker.com/email-etiquette-for-entrepreneurs-1624055561>
 
 [Get Ready To...](https://worksmarter.kinja.com)) : title[![](../Images/6df5a12c55ead4b12ad20872c9620c3d.png)](https://worksmarter.kinja.com)[Get Ready To...](https://worksmarter.kinja.com)Running a small business is hard work, but we're here to help. Welcome to Work Smarter, your one-stop-shop for tips and tricks to help small business owners save time and energy.
 

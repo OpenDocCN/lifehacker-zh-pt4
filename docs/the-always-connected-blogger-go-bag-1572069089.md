@@ -1,6 +1,6 @@
 # 永远保持联系的博主旅行包
 
-> 原文:[https://life hacker . com/the-always-connected-blogger-go-bag-1572069089](https://lifehacker.com/the-always-connected-blogger-go-bag-1572069089)
+> 原文：<https://lifehacker.com/the-always-connected-blogger-go-bag-1572069089>
 
 作为 Lifehacker 的主编(也有点控制狂)，即使我不在城里，我也尽量保持联系。今天我要展示我包里的东西，来帮助我坚持下去。
 

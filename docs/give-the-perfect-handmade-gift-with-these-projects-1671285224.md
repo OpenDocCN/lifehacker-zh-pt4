@@ -1,6 +1,6 @@
 # 用这些项目赠送完美的手工礼物
 
-> 原文:[https://life hacker . com/give-the-perfect-manufactured-gift-with these-projects-1671285224](https://lifehacker.com/give-the-perfect-handmade-gift-with-these-projects-1671285224)
+> 原文：<https://lifehacker.com/give-the-perfect-handmade-gift-with-these-projects-1671285224>
 
 你不必去零售店给某人买礼物。事实上，最好的礼物往往是你自己制作和定制的。这里有几个我们最喜欢的项目。
 

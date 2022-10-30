@@ -1,6 +1,6 @@
 # 最好的有声读物服务是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-audio book-service-1688017944](https://lifehacker.com/whats-the-best-audiobook-service-1688017944)
+> 原文：<https://lifehacker.com/whats-the-best-audiobook-service-1688017944>
 
 读一本好书是很棒的，但是在你开车、坐飞机或者只是在家放松的时候听一本录好的书也是让好书融入你生活的好方法。幸运的是，尽管有声读物市场有很多大玩家，但还是有很多选择。本周我们想知道你认为哪些是最好的。
 

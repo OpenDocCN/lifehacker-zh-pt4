@@ -1,6 +1,6 @@
 # 咖啡中的黄油和其他弊端:来自健身业内人士的故事
 
-> 原文:[https://life hacker . com/butter-in-your-coffee-and-other-cons-stories-from-a-fi-1724843201](https://lifehacker.com/butter-in-your-coffee-and-other-cons-stories-from-a-fi-1724843201)
+> 原文：<https://lifehacker.com/butter-in-your-coffee-and-other-cons-stories-from-a-fi-1724843201>
 
 在共同创立 Fitocracy 三年后，我们推出了一项新的在线教练服务，开始赚钱。我们需要一个吸引人的方法，但似乎没人感兴趣。
 

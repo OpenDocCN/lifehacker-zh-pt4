@@ -1,6 +1,6 @@
 # 没有会员，你可以在好市多做的最好的事情
 
-> 原文:[https://life hacker . com/the-best-things-you-can-do-at-Costco-without-a-members sh-1591680306](https://lifehacker.com/the-best-things-you-can-do-at-costco-without-a-membersh-1591680306)
+> 原文：<https://lifehacker.com/the-best-things-you-can-do-at-costco-without-a-membersh-1591680306>
 
 对于那些愿意支付会员费的人来说，好市多是一个大批量购买和获得许多服务的好地方。然而，如果你不想付现金,《明智的面包》建议你不用卡也可以享受很多东西。
 

@@ -1,6 +1,6 @@
 # 现在就做好准备，避免季节性情感障碍的影响
 
-> 原文:[https://life hacker . com/prepare-now-to-avoid-the-effects-of-seasonal-affective-5837879](https://lifehacker.com/prepare-now-to-avoid-the-effects-of-seasonal-affective-5837879)
+> 原文：<https://lifehacker.com/prepare-now-to-avoid-the-effects-of-seasonal-affective-5837879>
 
 冬天才刚刚开始，随之而来的是冬季忧郁，或者更糟，季节性情感障碍。现在是开始为那些黑暗阴沉的寒冷天气做准备的时候了。
 

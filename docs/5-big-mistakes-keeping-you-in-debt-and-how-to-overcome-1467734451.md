@@ -1,6 +1,6 @@
 # 让你负债累累的 5 大错误(以及如何克服它们)
 
-> 原文:[https://life hacker . com/5-大错误-让你负债并如何克服-1467734451](https://lifehacker.com/5-big-mistakes-keeping-you-in-debt-and-how-to-overcome-1467734451)
+> 原文：<https://lifehacker.com/5-big-mistakes-keeping-you-in-debt-and-how-to-overcome-1467734451>
 
 好吧，你有债务。的确令人沮丧，但这不是世界末日。数百万人现在都在同一条船上，他们中的许多人正在朝着无债务的方向稳步前进。你也能做到。不管你是如何陷入债务的，你都可以摆脱它。
 

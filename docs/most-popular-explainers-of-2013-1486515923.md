@@ -1,6 +1,6 @@
 # 2013 年最受欢迎的解释者
 
-> 原文:[https://life hacker . com/most-popular-explainers-of-2013-1486515923](https://lifehacker.com/most-popular-explainers-of-2013-1486515923)
+> 原文：<https://lifehacker.com/most-popular-explainers-of-2013-1486515923>
 
 在 Lifehacker，我们因 [我们的操作方法](https://lifehacker.com/most-popular-how-to-guides-of-2013-1474868022) 而闻名，但我们也喜欢不时地分解复杂的主题，只是解释事情是如何工作的——也许还会提供一些如何使用这些信息的信息。以下是我们 2013 年最好的解释者。
 

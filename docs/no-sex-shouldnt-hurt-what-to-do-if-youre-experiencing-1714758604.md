@@ -1,6 +1,6 @@
 # 不，性不应该是痛苦的:如果你正在经历性的痛苦，该怎么办
 
-> 原文:[https://life hacker . com/no-sex-should-hurt-what-do-if-you-expering-1714758604](https://lifehacker.com/no-sex-shouldnt-hurt-what-to-do-if-youre-experiencing-1714758604)
+> 原文：<https://lifehacker.com/no-sex-shouldnt-hurt-what-to-do-if-youre-experiencing-1714758604>
 
 四月*性医学杂志* 的一项研究发现，多达 30%的女性在最近一次性经历中经历过疼痛。可悲的是，很多女性都认为性爱是痛苦的，你所能做的就是咬紧牙关挺过去。没有什么比这更偏离事实了。如果性生活让你感到不舒服，这里有一些更好的建议。
 

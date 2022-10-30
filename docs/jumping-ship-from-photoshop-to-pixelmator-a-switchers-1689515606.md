@@ -1,6 +1,6 @@
 # 从 Photoshop 到 Pixelmator:转换者指南
 
-> 原文:[https://life hacker . com/jumping-ship-from-Photoshop-to-pixel mator-a-switchers-1689515606](https://lifehacker.com/jumping-ship-from-photoshop-to-pixelmator-a-switchers-1689515606)
+> 原文：<https://lifehacker.com/jumping-ship-from-photoshop-to-pixelmator-a-switchers-1689515606>
 
 [Pixelmator](http://www.pixelmator.com/) 现在是我们 [最喜欢的 Mac 图像编辑应用](https://lifehacker.com/the-best-image-editing-app-for-mac-os-x-5874394) ，因为它便宜得令人难以置信(29.99 美元)，而且几乎和昂贵得多的 Adobe Photoshop 一样强大。但是如果你是从 Photoshop 过来的，你会注意到事情有点不同。让我们来看看如何在 Pixelmator 中做一些最常见的 Photoshop 东西，这样你就可以马上开始使用它。
 

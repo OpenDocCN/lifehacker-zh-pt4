@@ -1,6 +1,6 @@
 # 什么是最好的信用卡奖励？
 
-> 原文:[https://life hacker . com/whats-the-best-rewards-credit-card-1617546244](https://lifehacker.com/whats-the-best-rewards-credit-card-1617546244)
+> 原文：<https://lifehacker.com/whats-the-best-rewards-credit-card-1617546244>
 
 不是所有的信用卡都一样。有些提供低利率，有些没有费用，但其他人提供旅游，现金返还和其他额外津贴的巨大回报。本周我们想知道你认为哪些是最好的。
 

@@ -1,6 +1,6 @@
 # 职业聚焦:我作为图书管理员做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-librarian-1676098016](https://lifehacker.com/career-spotlight-what-i-do-as-a-librarian-1676098016)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-librarian-1676098016>
 
 成为一名图书管理员需要的不仅仅是一辆破旧的书车和一副老花镜。相反，图书馆员经常在他们的领域接受大量的教育，这本身就充满了多样性。从学术界到公共图书馆和档案馆，成为一名图书馆员需要的不仅仅是书架和嘘嘘。
 

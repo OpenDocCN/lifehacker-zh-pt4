@@ -1,6 +1,6 @@
 # 仲夏夜的桌面
 
-> 原文:[https://life hacker . com/the-仲夏之夜-desktop-1704207155](https://lifehacker.com/the-midsummer-nights-desktop-1704207155)
+> 原文：<https://lifehacker.com/the-midsummer-nights-desktop-1704207155>
 
 现在是林荫大道上的夏天，这个漂亮的拱形 Linux 桌面带我们去海滩。我们的朋友 [dobbie03](http://kinja.com/dobbie03) 提交了它，下面是他的制作方法。
 

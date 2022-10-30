@@ -1,6 +1,6 @@
 # 使用这些 DIY 模块，从您最喜爱的耳机中获得更好的声音
 
-> 原文:[https://life hacker . com/get-better-sound-from-the-the-the-1516562484](https://lifehacker.com/get-better-sound-from-your-favorite-headphones-with-the-1516562484)
+> 原文：<https://lifehacker.com/get-better-sound-from-your-favorite-headphones-with-the-1516562484>
 
 [找到一副完美的耳机](https://lifehacker.com/how-to-choose-the-perfect-pair-of-headphones-5800772) 是一个挑战——尤其是因为有时候*没有*适合你的“完美”耳机。幸运的是，你可以用一点 DIY 魔法来调整任何耳机以适应你的口味。欢迎来到令人兴奋的耳机调制解调器世界。
 

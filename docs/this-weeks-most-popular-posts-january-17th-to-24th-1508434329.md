@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:1 月 17 日至 24 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-January-17-to-24-1508434329](https://lifehacker.com/this-weeks-most-popular-posts-january-17th-to-24th-1508434329)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-january-17th-to-24th-1508434329>
 
 本周我们 [发现了哪些硬盘品牌最可靠](https://lifehacker.com/the-most-and-least-reliable-hard-drive-brands-1505797966)[学会了如何更快入睡](http://lifehacker.com/how-can-i-fall-asleep-faster-1503720985)[欺骗我们的大脑做我们想做的事情](http://lifehacker.com/top-10-ways-to-trick-your-brain-into-doing-what-you-wan-1502990312)[用慢炖锅做了美味的饭菜](http://lifehacker.com/delicious-dishes-you-didnt-know-you-could-make-in-a-sl-1506535684) 。这里回顾一下。
 

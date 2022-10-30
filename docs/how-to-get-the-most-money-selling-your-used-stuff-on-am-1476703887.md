@@ -1,6 +1,6 @@
 # 如何在亚马逊上卖你的二手物品赚最多的钱
 
-> 原文:[https://life hacker . com/how-to-get-the-most money-on-am-1476703887](https://lifehacker.com/how-to-get-the-most-money-selling-your-used-stuff-on-am-1476703887)
+> 原文：<https://lifehacker.com/how-to-get-the-most-money-selling-your-used-stuff-on-am-1476703887>
 
 我们之前提到过，亚马逊是一个出售你用过的和不想要的物品的好地方，并在这个过程中赚取可观的利润。然而，亚马逊有不同的销售方式，一些有用的技巧可以帮助你在发布销售时获得更多的钱。以下是你需要知道的。
 

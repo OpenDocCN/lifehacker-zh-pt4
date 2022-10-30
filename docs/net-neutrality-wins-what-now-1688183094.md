@@ -1,6 +1,6 @@
 # 网络中立获胜:现在怎么办？
 
-> 原文:[https://gizmodo.com/net-neutrality-wins-what-now-1688183094](https://gizmodo.com/net-neutrality-wins-what-now-1688183094)
+> 原文：<https://gizmodo.com/net-neutrality-wins-what-now-1688183094>
 
 这是互联网历史性的一天。联邦通信委员会(FCC)刚刚通过了这个国家历史上最强的网络中立规则。这是个好消息！但是 [让我重复一遍](http://gizmodo.com/did-the-internet-win-yet-no-but-heres-what-we-got-1683759866) :网络中立之战仍未结束。从某种意义上说，真正的战斗现在开始了。
 

@@ -1,6 +1,6 @@
 # 用这些机器人壁纸机械化你的桌面
 
-> 原文:[https://life hacker . com/mechanize-your-desktop-with these-robot-wallpapers-1599331138](https://lifehacker.com/mechanize-your-desktop-with-these-robot-wallpapers-1599331138)
+> 原文：<https://lifehacker.com/mechanize-your-desktop-with-these-robot-wallpapers-1599331138>
 
 我们以前分享过一次机器人壁纸或 [两次](http://lifehacker.com/robots-are-taking-over-your-desktop-in-these-wallpapers-5928849) ，但这些壁纸要严重得多——在某些情况下，还很阴险。这是另一组受机器人启发的壁纸。
 

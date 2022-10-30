@@ -1,6 +1,6 @@
 # 拆分支票的指南
 
-> 原文:[https://Jezebel . com/a-guide-to-splitting-the-check-1616759294](https://jezebel.com/a-guide-to-splitting-the-check-1616759294)
+> 原文：<https://jezebel.com/a-guide-to-splitting-the-check-1616759294>
 
 开支票，最神秘的餐馆活动。多少张卡才算多？用现金还是信用卡来分摊比较好？支票分割是如何形成的？！女服务员如何得到硬币零钱？！
 

@@ -1,6 +1,6 @@
 # 我的智能手机给我带来了痛苦的神经疾病
 
-> 原文:[https://gizmodo . com/my-smart phone-give-me-a-painted-neurological-condition-1711422212](https://gizmodo.com/my-smartphone-gave-me-a-painful-neurological-condition-1711422212)
+> 原文：<https://gizmodo.com/my-smartphone-gave-me-a-painful-neurological-condition-1711422212>
 
 几个月前，我开始头痛，而且很奇怪。如果严重的宿醉头痛感觉要裂开，我会把这些头痛描述为灼热，就像有人用红色的热钢棒打我的头，将疼痛的电流穿过我的头骨。
 

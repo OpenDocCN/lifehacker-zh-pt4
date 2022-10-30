@@ -1,6 +1,6 @@
 # 精益工程师的背包
 
-> 原文:[https://lifehacker.com/the-lean-engineers-go-bag-1560465316](https://lifehacker.com/the-lean-engineers-go-bag-1560465316)
+> 原文：<https://lifehacker.com/the-lean-engineers-go-bag-1560465316>
 
 作为一名忙碌的 [精益工程师](http://en.wikipedia.org/wiki/Lean_manufacturing)[机械师马特](https://www.flickr.com/photos/43882912@N03/) 为了去工厂参观，需要在一个包里装很多东西。他把工作周需要的所有东西都装进了一个背包里——这比你想象的要多。
 

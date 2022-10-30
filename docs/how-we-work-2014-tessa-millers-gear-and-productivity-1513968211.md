@@ -1,6 +1,6 @@
 # 我们如何工作，2014:泰莎·米勒的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-2014-tessa-millers-gear-and-productivity-1513968211](https://lifehacker.com/how-we-work-2014-tessa-millers-gear-and-productivity-1513968211)
+> 原文：<https://lifehacker.com/how-we-work-2014-tessa-millers-gear-and-productivity-1513968211>
 
 在我们的*我如何工作*系列中，我采访了许多杰出的人。然而，今天我要面试...我自己。这里有一些我最喜欢的完成工作的技巧和诀窍。
 

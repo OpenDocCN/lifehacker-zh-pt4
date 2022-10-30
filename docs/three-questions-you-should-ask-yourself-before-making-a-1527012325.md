@@ -1,6 +1,6 @@
 # 在购买之前，你应该问自己三个问题
 
-> 原文:[https://life hacker . com/three-questions-you-before-make-a-1527012325](https://lifehacker.com/three-questions-you-should-ask-yourself-before-making-a-1527012325)
+> 原文：<https://lifehacker.com/three-questions-you-should-ask-yourself-before-making-a-1527012325>
 
 如果你能理解谚语中的“轮子上的仓鼠”,在你寻求更大的房子或更好的衣服时，科学可以解释为什么。“快乐跑步机”是心理学家所说的我们对更大、更好的快乐的天生渴望——比如更大的房子或更炫的车——每当我们获得加薪或奖金时。
 

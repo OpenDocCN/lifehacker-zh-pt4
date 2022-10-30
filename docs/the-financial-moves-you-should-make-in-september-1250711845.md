@@ -1,6 +1,6 @@
 # 九月你应该做的财务动作
 
-> 原文:[https://life hacker . com/the-financial-moves-you-should-make-in-9-1250711845](https://lifehacker.com/the-financial-moves-you-should-make-in-september-1250711845)
+> 原文：<https://lifehacker.com/the-financial-moves-you-should-make-in-september-1250711845>
 
 随着夏日的阳光慢慢消退，人们很容易对即将到来的穿毛衣和蜷缩在室内的日子感到沮丧。但是，我们没有哀叹海滩季节的结束，而是拥抱初秋带来的新开始——尤其是对你的财务状况而言。
 

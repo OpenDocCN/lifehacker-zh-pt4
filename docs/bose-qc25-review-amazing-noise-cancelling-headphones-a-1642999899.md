@@ -1,6 +1,6 @@
 # Bose QC25 评论:惊人的降噪耳机再次出现
 
-> 原文:[https://gizmodo . com/bose-qc25-点评-惊艳-降噪-耳机-a-1642999899](https://gizmodo.com/bose-qc25-review-amazing-noise-cancelling-headphones-a-1642999899)
+> 原文：<https://gizmodo.com/bose-qc25-review-amazing-noise-cancelling-headphones-a-1642999899>
 
 环顾世界上任何一个机场候机室，你都会立即看到一套 Bose 降噪耳机。它们是标志性的，因为它们很好。新的 QuietComfort 25 是五年来的首次更新，一切都变得稍微好了一点。
 

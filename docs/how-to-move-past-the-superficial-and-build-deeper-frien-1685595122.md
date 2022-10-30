@@ -1,6 +1,6 @@
 # 如何超越肤浅的友谊，建立更深的友谊
 
-> 原文:[https://life hacker . com/how-to-move-past-the-surface-and-build-deep-frien-1685595122](https://lifehacker.com/how-to-move-past-the-superficial-and-build-deeper-frien-1685595122)
+> 原文：<https://lifehacker.com/how-to-move-past-the-superficial-and-build-deeper-frien-1685595122>
 
 在你的生活中有支持你、诚实的人 [会让你(和他们)的总体幸福](https://lifehacker.com/you-may-have-greater-success-losing-weight-with-a-frien-1572646371) 大不相同。但是培养超越表面的友谊可能是一个挑战——它们需要大量的时间和精力，而且一开始可能会感到尴尬。如果你想和你的朋友建立更深层次的联系，以下是开始的方法。
 

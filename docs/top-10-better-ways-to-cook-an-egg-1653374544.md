@@ -1,6 +1,6 @@
 # 十大烹饪鸡蛋的好方法
 
-> 原文:[https://life hacker . com/top-10-better-ways-to-cook a egg-1653374544](https://lifehacker.com/top-10-better-ways-to-cook-an-egg-1653374544)
+> 原文：<https://lifehacker.com/top-10-better-ways-to-cook-an-egg-1653374544>
 
 鸡蛋是用途最广、最有营养的食物之一。除了传统的烹饪和享用鸡蛋的方法，这里有一些更有趣的“鸡蛋窍门”，你几乎每天都可以使用。
 

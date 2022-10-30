@@ -1,6 +1,6 @@
 # 建立更有意义的联系的八个技巧
 
-> 原文:[https://life hacker . com/eight-power-networking-tips-to-make-more-隽永-con-1612095537](https://lifehacker.com/eight-power-networking-tips-to-make-more-meaningful-con-1612095537)
+> 原文：<https://lifehacker.com/eight-power-networking-tips-to-make-more-meaningful-con-1612095537>
 
 你已经听过无数次了:职业发展不仅取决于你知道什么，还取决于你认识谁——这就是为什么成为一个有效的人际关系网如此重要。这里有八条来自权力网络的建议，它们超越了闲聊，扩大了你的职业圈子。
 

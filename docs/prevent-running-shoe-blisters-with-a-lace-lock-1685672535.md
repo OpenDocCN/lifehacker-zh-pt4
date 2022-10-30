@@ -1,6 +1,6 @@
 # 用“鞋带锁”防止跑鞋起泡
 
-> 原文:[https://life hacker . com/prevent-running-shoe-blinks-with-a-lace-lock-1685672535](https://lifehacker.com/prevent-running-shoe-blisters-with-a-lace-lock-1685672535)
+> 原文：<https://lifehacker.com/prevent-running-shoe-blisters-with-a-lace-lock-1685672535>
 
 如果跑步让你的脚后跟起了水泡，或者当小路变得崎岖不平时，你的脚后跟会在鞋子里打滑，有一个简单的解决方法。你知道你跑鞋脚踝上那个奇怪的鞋带孔吗？你可以用它来系一个花边锁。
 

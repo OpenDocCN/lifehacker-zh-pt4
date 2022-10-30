@@ -1,6 +1,6 @@
 # 材料设计桌面
 
-> 原文:[https://life hacker . com/the-material-design-desktop-1716499756](https://lifehacker.com/the-material-design-desktop-1716499756)
+> 原文：<https://lifehacker.com/the-material-design-desktop-1716499756>
 
 我们最近展示了一款由我们的朋友 [桑吉夫](https://www.flickr.com/photos/sanjeevneo/) 设计的台式机，但他的最新产品太棒了，不能不突出展示。他定制了他的 Mac，看起来非常像你在 Android Lollipop 或 Android M 中得到的那种设计。
 

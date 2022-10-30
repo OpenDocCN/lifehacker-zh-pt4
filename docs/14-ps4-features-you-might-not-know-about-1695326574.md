@@ -1,6 +1,6 @@
 # 您可能不知道的 14 项 PS4 功能
 
-> 原文:[https://kotaku . com/14-ps4-features-you-may-not-know-on-1695326574](https://kotaku.com/14-ps4-features-you-might-not-know-about-1695326574)
+> 原文：<https://kotaku.com/14-ps4-features-you-might-not-know-about-1695326574>
 
 即使你从发售那天起就一直在使用 PS4，你也很有可能不了解这款游戏机的所有功能。原来，一些巧妙的技巧是隐藏的！幸运的是，我们在这里告诉你关于他们的事情。
 

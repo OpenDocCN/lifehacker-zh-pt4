@@ -1,6 +1,6 @@
 # 如何精心制作一份真正有效的信息食谱
 
-> 原文:[https://life hacker . com/how-to-craft-a-information-diet-the-actual-works-1669958197](https://lifehacker.com/how-to-craft-an-information-diet-that-actually-works-1669958197)
+> 原文：<https://lifehacker.com/how-to-craft-an-information-diet-that-actually-works-1669958197>
 
 我们中的一些人看了很多电视。我们可能会阅读比我们需要的更多的文章(讽刺的是我在这里没有丢失)。我们上推特来打发无聊。通过更仔细地消费信息，并把它当作我们大脑的食物(事实就是如此)，我们可以以一种实际可行的方式做到这一点，而不会把它从我们的生活中完全切断。
 

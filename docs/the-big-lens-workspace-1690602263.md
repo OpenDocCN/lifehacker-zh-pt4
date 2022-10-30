@@ -1,6 +1,6 @@
 # 大镜头工作空间
 
-> 原文:[https://lifehacker.com/the-big-lens-workspace-1690602263](https://lifehacker.com/the-big-lens-workspace-1690602263)
+> 原文：<https://lifehacker.com/the-big-lens-workspace-1690602263>
 
 如果你喜欢摄影，你可能会喜欢这个工作空间，它把整面墙变成了一个镜头。
 

@@ -1,6 +1,6 @@
 # 最好的智能手机相机:iPhone 6 版
 
-> 原文:[https://gizmodo . com/the-best-smart phone-camera-iphone-6-edition-1637751507](https://gizmodo.com/the-best-smartphone-camera-iphone-6-edition-1637751507)
+> 原文：<https://gizmodo.com/the-best-smartphone-camera-iphone-6-edition-1637751507>
 
 自从我们上次让最好的智能手机相机相互竞争以来，一些新的竞争者已经加入进来，特别是 [iPhone 6](http://gizmodo.com/iphone-6-a-little-bit-bigger-a-whole-lot-better-1632406881) 和 [iPhone 6 Plus](http://gizmodo.com/iphone-6-plus-everything-you-need-to-know-about-apple-1632410303) 。这使得现在是决定哪一款智能手机最抢手的最佳时机。
 

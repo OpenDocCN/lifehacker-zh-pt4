@@ -1,6 +1,6 @@
 # 赠送优质网络服务
 
-> 原文:[https://life hacker . com/give-the-gift-of-premium-web-services-1665856200](https://lifehacker.com/give-the-gift-of-premium-web-services-1665856200)
+> 原文：<https://lifehacker.com/give-the-gift-of-premium-web-services-1665856200>
 
 当你列出一份礼物清单时，网络服务可能不在你的清单之首。但是订阅对于那些不愿意自己掏钱的人来说是一个很好的礼物。这里有一些你能给的最好的订阅。
 

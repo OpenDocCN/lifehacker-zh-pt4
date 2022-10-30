@@ -1,6 +1,6 @@
 # 像你升级之前那样生活，以避免生活方式膨胀
 
-> 原文:[https://life hacker . com/live-like-you-upgrade-before-you-do-avoid-livest-1590079259](https://lifehacker.com/live-like-youre-upgrading-before-you-do-to-avoid-livest-1590079259)
+> 原文：<https://lifehacker.com/live-like-youre-upgrading-before-you-do-to-avoid-livest-1590079259>
 
 无论你是买房子，买新车，还是搬到一个更贵的地方，都很容易假设你能承受增加的开支。先拿差价存三个月证明给自己看。
 

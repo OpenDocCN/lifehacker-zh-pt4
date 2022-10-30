@@ -1,6 +1,6 @@
 # 不在亚马逊购物如何获得 Amazon.com 定价
 
-> 原文:[https://life hacker . com/how-to-get-Amazon-com-pricing-not-shopping-at-amazo-1691169685](https://lifehacker.com/how-to-get-amazon-com-pricing-without-shopping-at-amazo-1691169685)
+> 原文：<https://lifehacker.com/how-to-get-amazon-com-pricing-without-shopping-at-amazo-1691169685>
 
 即使是最忠诚的亚马逊购物者也有过等待两天的最佳送货时间不可行的时候。也许你的 Wi-Fi 路由器坏了，你现在需要更换，或者你需要一个紧急项目的特定工具。无论是哪种情况，任何时候都有实体零售商乐意与亚马逊进行价格竞争。
 

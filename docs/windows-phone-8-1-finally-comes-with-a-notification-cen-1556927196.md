@@ -1,6 +1,6 @@
 # Windows Phone 8.1 的 Cortana 是 Google Now 加 Siri
 
-> 原文:[https://gizmodo . com/windows-phone-8-1-finally-come-with-a-notification-cen-1556927196](https://gizmodo.com/windows-phone-8-1-finally-comes-with-a-notification-cen-1556927196)
+> 原文：<https://gizmodo.com/windows-phone-8-1-finally-comes-with-a-notification-cen-1556927196>
 
 今天在 Build 开发者大会上，微软展示了其最新版本的手机操作系统 Windows Phone 8.1。而现在，Windows Phone 现在有了自己的私人助理:Cortana。
 

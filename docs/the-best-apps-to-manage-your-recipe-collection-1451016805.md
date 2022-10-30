@@ -1,6 +1,6 @@
 # 管理食谱收藏的最佳应用
 
-> 原文:[https://life hacker . com/the-best-apps-to-manage-your-recipe-collection-1451016805](https://lifehacker.com/the-best-apps-to-manage-your-recipe-collection-1451016805)
+> 原文：<https://lifehacker.com/the-best-apps-to-manage-your-recipe-collection-1451016805>
 
 无论你是喜欢烹饪还是仅仅喜欢吃，你都有可能收集了一些你想尝试的菜肴和食谱。也许你有一堆亲人传下来的。在这两种情况下，你可能需要一种更好的方法来长期组织它们，而不是在一个文件夹里放一堆索引卡。这里有一些最适合你的应用程序，取决于你收集的食谱种类。
 

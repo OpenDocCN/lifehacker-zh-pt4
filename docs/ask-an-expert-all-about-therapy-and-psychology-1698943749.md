@@ -1,6 +1,6 @@
 # 请教专家:关于治疗和心理学
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-therapy-and-psychology-1698943749](https://lifehacker.com/ask-an-expert-all-about-therapy-and-psychology-1698943749)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-therapy-and-psychology-1698943749>
 
 向埃默里大学牛津学院心理学教授肯·卡特博士问好。他是一名临床心理学家，了解治疗的所有内容，以及对心理学常见的、过时的误解(昏厥沙发都在哪里？).
 

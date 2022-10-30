@@ -1,6 +1,6 @@
 # 如何无情地优先处理你的任务清单以完成更多工作
 
-> 原文:[https://life hacker . com/how-to-hardly-prioritize-your-task-list-to-get-more-1647737501](https://lifehacker.com/how-to-ruthlessly-prioritize-your-task-list-to-get-more-1647737501)
+> 原文：<https://lifehacker.com/how-to-ruthlessly-prioritize-your-task-list-to-get-more-1647737501>
 
 你有没有注意到列一个待办事项清单是多么容易，但是实际上完成它有多难？当谈到真正完成任务清单时，优先顺序有很大的不同 。诀窍是尽你所能无情。
 

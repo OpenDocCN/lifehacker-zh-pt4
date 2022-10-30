@@ -1,6 +1,6 @@
 # 你可以(和不可以)从酒店房间拿走什么？
 
-> 原文:[https://life hacker . com/what-can-and-cant-you-take-from-hotel-rooms-1660218396](https://lifehacker.com/what-can-and-cant-you-take-from-hotel-rooms-1660218396)
+> 原文：<https://lifehacker.com/what-can-and-cant-you-take-from-hotel-rooms-1660218396>
 
 当你打包行李，离开酒店时，你可能会想多拿几块肥皂、一个记事本，甚至一条毛巾。那是偷窃还是酒店希望你偷一些东西？一位酒店经理回应道，并告诉我们哪些东西可以带走。
 

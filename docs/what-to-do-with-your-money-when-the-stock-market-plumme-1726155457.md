@@ -1,6 +1,6 @@
 # 当股市暴跌时，你的钱该怎么办(提示:不要惊慌)
 
-> 原文:[https://life hacker . com/what-do-with your money-when-the-stock-market-plumme-1726155457](https://lifehacker.com/what-to-do-with-your-money-when-the-stock-market-plumme-1726155457)
+> 原文：<https://lifehacker.com/what-to-do-with-your-money-when-the-stock-market-plumme-1726155457>
 
 各位，欢迎来到黑色星期一。今晨道指下跌超过 5%[标普下跌 3.4%](http://www.bloomberg.com/news/articles/2015-08-24/u-s-stocks-fall-as-exchanges-open-s-p-500-index-loses-3-4-)为我们所见最大跌幅。自然，每个人都吓坏了。这是可以理解的，但不要做任何激烈的事情。
 

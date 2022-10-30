@@ -1,6 +1,6 @@
 # 五月你应该做的财务行动
 
-> 原文:[https://life hacker . com/the-financial-moves-you-should-make-in-may-495940023](https://lifehacker.com/the-financial-moves-you-should-make-in-may-495940023)
+> 原文：<https://lifehacker.com/the-financial-moves-you-should-make-in-may-495940023>
 
 随着冬天的寒意从后视镜中消失，我们终于兴奋地走向户外，享受阳光明媚的天空和崭新的花朵。但是就像你春天的花朵在一年中的这个时候需要一点培育一样，你的财务状况也是如此。这就是为什么我们为你准备了五件本月要做的事情。
 

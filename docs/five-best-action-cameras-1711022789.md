@@ -1,6 +1,6 @@
 # 五款最佳动作摄像机
 
-> 原文:[https://lifehacker.com/five-best-action-cameras-1711022789](https://lifehacker.com/five-best-action-cameras-1711022789)
+> 原文：<https://lifehacker.com/five-best-action-cameras-1711022789>
 
 无论你是在寻找一个可以在骑车或爬山时绑在身上的坚固相机，还是一个可以挂在车上捕捉道路上的疯狂或保护自己免受欺诈的相机，一个好的行动相机都是必不可少的。长电池寿命、耐用性、易用性、易存取存储——本周我们来看看五款拥有这一切的相机。
 

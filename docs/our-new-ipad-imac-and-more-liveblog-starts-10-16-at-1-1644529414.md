@@ -1,6 +1,6 @@
 # 我们的新 iPad、iMac 和更多 Liveblog 从现在开始
 
-> 原文:[https://gizmodo . com/our-new-ipad-IMAC-and-more-live blog-starts-10-16-at-1-1644529414](https://gizmodo.com/our-new-ipad-imac-and-more-liveblog-starts-10-16-at-1-1644529414)
+> 原文：<https://gizmodo.com/our-new-ipad-imac-and-more-liveblog-starts-10-16-at-1-1644529414>
 
 你好。在短短几个小时内， [苹果预计将宣布](http://gizmodo.com/apples-ipad-event-is-october-16th-its-been-way-too-lo-1643848953) 全新 iPad 上市，可能是 retina iMac，甚至可能是 [早该更新的苹果电视](http://gizmodo.com/the-apple-products-most-overdue-for-an-update-1643896648) 。我们将在现场为您现场直播。
 

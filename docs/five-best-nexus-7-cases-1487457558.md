@@ -1,6 +1,6 @@
 # 五个最佳 Nexus 7 案例
 
-> 原文:[https://lifehacker.com/five-best-nexus-7-cases-1487457558](https://lifehacker.com/five-best-nexus-7-cases-1487457558)
+> 原文：<https://lifehacker.com/five-best-nexus-7-cases-1487457558>
 
 Nexus 7 可以说是领先的 Android 平板电脑，这是有充分理由的。它纤薄、小巧、功能强大、价格实惠。如果你想保证它的安全，你需要一个像样的盒子或保护套——一个可以保护它免受跌落、碰撞或包里其他东西影响的盒子或保护套。本周，我们将根据您的提名，来看看五个最佳 Nexus 7 案例。
 

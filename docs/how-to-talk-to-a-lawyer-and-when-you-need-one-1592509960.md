@@ -1,6 +1,6 @@
 # 如何与律师交谈(以及何时需要律师)
 
-> 原文:[https://life hacker . com/how-to-talk to-a-a-lawyer and-when you-need-one-1592509960](https://lifehacker.com/how-to-talk-to-a-lawyer-and-when-you-need-one-1592509960)
+> 原文：<https://lifehacker.com/how-to-talk-to-a-lawyer-and-when-you-need-one-1592509960>
 
 不管你如何看待律师，当你需要的时候，他们是你最好的朋友。一个好的律师会和你一起工作，帮助你了解情况，并引导你达到最好的结果。为此，他们需要一个可以合作的客户。以下是如何做到这一点。
 

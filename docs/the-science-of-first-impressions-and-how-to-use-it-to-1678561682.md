@@ -1,6 +1,6 @@
 # 第一印象的科学(以及如何利用它为你服务)
 
-> 原文:[https://life hacker . com/the-science of-first-impressions-and-how-to-use it-1678561682](https://lifehacker.com/the-science-of-first-impressions-and-how-to-use-it-to-1678561682)
+> 原文：<https://lifehacker.com/the-science-of-first-impressions-and-how-to-use-it-to-1678561682>
 
 如果说我在过去五年的记者工作中学到了什么，那就是成功可以归结为你第一次见到某人后的两秒钟。第一印象可以成就或毁掉你的职业生涯。
 

@@ -1,6 +1,6 @@
 # 视网膜 iPad Mini 评论:眼睛酸痛的景象
 
-> 原文:[https://gizmodo . com/retina-ipad-mini-review-a-sight-for-sore-eyes-1465237647](https://gizmodo.com/retina-ipad-mini-review-a-sight-for-sore-eyes-1465237647)
+> 原文：<https://gizmodo.com/retina-ipad-mini-review-a-sight-for-sore-eyes-1465237647>
 
 去年的 iPad mini 在各方面都非常接近完美，除了你需要的那一点。它的显示器是粥，旁边是它的大兄弟 iPad 和它的小平板电脑竞争对手的明亮的视网膜聚宝盆。今年？我们尽情享受。
 

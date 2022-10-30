@@ -1,6 +1,6 @@
 # 我们希望在学校里学到的十大技能，但通常没有
 
-> 原文:[https://life hacker . com/top-10-skills-we-wish-but-usual-1622414148](https://lifehacker.com/top-10-skills-we-wish-were-taught-in-school-but-usuall-1622414148)
+> 原文：<https://lifehacker.com/top-10-skills-we-wish-were-taught-in-school-but-usuall-1622414148>
 
 尽管我们在学校学到了很多东西，但我们成年后需要的一些最基本的技能并没有被普遍、正式地教授。这里有一些我们希望在学校就已经学到的科目和技能(现在你仍然可以学到)。永远都不晚！).
 

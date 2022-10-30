@@ -1,6 +1,6 @@
 # 最好的公寓搜索工具是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-apartment-search-tool-1570023919](https://lifehacker.com/whats-the-best-apartment-search-tool-1570023919)
+> 原文：<https://lifehacker.com/whats-the-best-apartment-search-tool-1570023919>
 
 无论你是在寻找一个更好的住处，还是只是好奇你所在地区的租金价格如何，我们都有自己喜欢的公寓搜索和租赁列表服务。当然，有些人比其他人更好，但本周我们想知道你认为哪些人比其他人更优秀。
 

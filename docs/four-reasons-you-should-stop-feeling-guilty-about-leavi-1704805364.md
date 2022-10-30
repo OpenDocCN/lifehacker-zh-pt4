@@ -1,6 +1,6 @@
 # 你应该停止对离职感到内疚的四个理由
 
-> 原文:[https://life hacker . com/four-reasons-you-should-stop-feeling-on-leavi-1704805364](https://lifehacker.com/four-reasons-you-should-stop-feeling-guilty-about-leavi-1704805364)
+> 原文：<https://lifehacker.com/four-reasons-you-should-stop-feeling-guilty-about-leavi-1704805364>
 
 好吧，看看你:经过几个月悄悄探索新的、更好的职业机会，你得到了一份让你一想到就头晕的工作。你甚至鼓起勇气告诉了你现在的雇主。就在你应该得意忘形的时候，负罪感滚滚而来。
 

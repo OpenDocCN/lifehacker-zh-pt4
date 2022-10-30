@@ -1,6 +1,6 @@
 # 当某人决定戒烟时，如何支持他
 
-> 原文:[https://life hacker . com/how-to-support-someone-when-they-decision-quit-smoking-1705930730](https://lifehacker.com/how-to-support-someone-when-they-decide-to-quit-smoking-1705930730)
+> 原文：<https://lifehacker.com/how-to-support-someone-when-they-decide-to-quit-smoking-1705930730>
 
 今年早些时候，我的未婚夫决定戒烟。当然，我想帮忙，但作为一个从未真正上瘾的人，我不知道如何让他好过些。和最终戒掉烟瘾的人一起生活了几个月后，我学到了以下几点。
 

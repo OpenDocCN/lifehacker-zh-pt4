@@ -1,6 +1,6 @@
 # 文艺复兴桌面
 
-> 原文:[https://lifehacker.com/the-renaissance-desktop-1582917082](https://lifehacker.com/the-renaissance-desktop-1582917082)
+> 原文：<https://lifehacker.com/the-renaissance-desktop-1582917082>
 
 Flickr 用户 [AFGDesign](https://www.flickr.com/photos/86468800@N02/) 有一个很棒的工作空间*和*一个很棒的桌面。以下是他如何设置这一切，以及你需要在家里复制它。
 

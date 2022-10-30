@@ -1,6 +1,6 @@
 # 楼梯工作台工作区
 
-> 原文:[https://lifehacker.com/the-stairdesk-workspace-1714907912](https://lifehacker.com/the-stairdesk-workspace-1714907912)
+> 原文：<https://lifehacker.com/the-stairdesk-workspace-1714907912>
 
 我们已经看到工作空间 [放置在](http://lifehacker.com/the-dual-display-workspace-under-the-stairs-1641420440)[之下](http://lifehacker.com/the-workspace-built-into-the-stairs-482538058) [楼梯](http://lifehacker.com/the-office-under-the-stairs-5191380) 和顶部的 [工作空间](http://lifehacker.com/the-workspace-at-the-top-of-the-stairs-5935419) [楼梯](http://lifehacker.com/the-stairway-workspace-609136721) ，但是这个工作空间将组合做得更进一步，在楼梯内和楼梯周围放了一张桌子。
 

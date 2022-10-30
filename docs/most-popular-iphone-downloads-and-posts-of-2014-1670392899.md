@@ -1,6 +1,6 @@
 # 2014 年最受欢迎的 iPhone 下载和帖子
 
-> 原文:[https://life hacker . com/most-popular-iphone-downloads-and-post-of-2014-1670392899](https://lifehacker.com/most-popular-iphone-downloads-and-posts-of-2014-1670392899)
+> 原文：<https://lifehacker.com/most-popular-iphone-downloads-and-posts-of-2014-1670392899>
 
 iPhone 今年见证了各种重大新闻，从 iOS 8 的发布，到越狱应用和调整。让我们来回顾一下今年的最佳帖子。
 

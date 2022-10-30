@@ -1,6 +1,6 @@
 # 最值得订阅的电子邮件简讯
 
-> 原文:[https://life hacker . com/the-best-email-newslettes-that-is-actual-worth-subs-1593356677](https://lifehacker.com/the-best-email-newsletters-that-are-actually-worth-subs-1593356677)
+> 原文：<https://lifehacker.com/the-best-email-newsletters-that-are-actually-worth-subs-1593356677>
 
 我们大多数人都不愿意订阅电子邮件简讯，因为它们耗费时间，浪费空间。然而，有些简讯就像我们收件箱里的一盏明灯。让我们列出那些值得订阅的时事通讯。
 

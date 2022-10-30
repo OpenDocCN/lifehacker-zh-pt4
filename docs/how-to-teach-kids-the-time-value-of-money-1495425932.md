@@ -1,6 +1,6 @@
 # 如何教会孩子金钱的“时间价值”
 
-> 原文:[https://life hacker . com/how-to-teach-kids-the-time-value-of-money-1495425932](https://lifehacker.com/how-to-teach-kids-the-time-value-of-money-1495425932)
+> 原文：<https://lifehacker.com/how-to-teach-kids-the-time-value-of-money-1495425932>
 
 即时满足通常会赢得孩子们的青睐，但不幸的是，很多成年人都是如此。但是在孩子们小的时候教授他们金钱的时间价值给了他们工具来应对我们都经历过的“现在就买”的原始冲动
 

@@ -1,6 +1,6 @@
 # 关于知识产权法，每个人都会犯的 10 个错误
 
-> 原文:[https://gizmodo . com/10-things-every one-get-error-about-intelligent-proper-1679011301](https://gizmodo.com/10-things-everyone-gets-wrong-about-intellectual-proper-1679011301)
+> 原文：<https://gizmodo.com/10-things-everyone-gets-wrong-about-intellectual-proper-1679011301>
 
 你对版权和商标法了解多少？当你在网上旅行或制作艺术品时，你知道你是什么和不被允许做什么吗，或者你的大脑中有知识产权的神话吗？我们采用一些我们反复看到的说法，并将它们与法律进行比较。
 

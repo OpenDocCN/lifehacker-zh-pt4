@@ -1,6 +1,6 @@
 # 同居时如何理财
 
-> 原文:[https://life hacker . com/how-to-manage-financies-when-you-re-shacking-up-1546952031](https://lifehacker.com/how-to-manage-finances-when-you-re-shacking-up-1546952031)
+> 原文：<https://lifehacker.com/how-to-manage-finances-when-you-re-shacking-up-1546952031>
 
 所以你和你的伴侣决定同居。有趣的时光，但要为不可避免的金钱问题做好准备。同居可能会很复杂，因为你们在一起分享生活，但不一定是你们的财务状况。这里有一些当你同居时管理金钱的建议。
 

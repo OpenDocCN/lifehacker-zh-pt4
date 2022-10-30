@@ -1,6 +1,6 @@
 # 清洁任何东西的最好的产品
 
-> 原文:[https://life hacker . com/the-best-products-that-clean-everything-and-everything-1606243906](https://lifehacker.com/the-best-products-that-clean-anything-and-everything-1606243906)
+> 原文：<https://lifehacker.com/the-best-products-that-clean-anything-and-everything-1606243906>
 
 清洁是我们所有人都必须处理的家务，无论你觉得这是一场噩梦还是一种放松，拥有正确的工具来完成这项工作都会有很大的不同。幸运的是，有一些清洁产品可以清洁你要求的任何东西。让我们把它们列一个清单。
 

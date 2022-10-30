@@ -1,6 +1,6 @@
 # 根据米其林星级厨师雷蒙德·布兰克的说法，如何将烧烤做到完美
 
-> 原文:[https://gizmodo . com/how-to-grill-to-perfect-from-Michelin-star-c-1684181235](https://gizmodo.com/how-to-grill-to-perfection-according-to-michelin-star-c-1684181235)
+> 原文：<https://gizmodo.com/how-to-grill-to-perfection-according-to-michelin-star-c-1684181235>
 
 我们的老朋友，了不起的主厨雷蒙德·布兰克，在他的另一套令人垂涎的食谱中分享了烧烤鱼、肉、蔬菜、海鲜，甚至水果的最佳技巧。
 

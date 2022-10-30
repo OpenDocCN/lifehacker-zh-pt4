@@ -1,6 +1,6 @@
 # 我们如何工作 2015:赫伯特·路易斯的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-2015-Herbert-lui-s-gear-and-productivity-t-1685672437](https://lifehacker.com/how-we-work-2015-herbert-lui-s-gear-and-productivity-t-1685672437)
+> 原文：<https://lifehacker.com/how-we-work-2015-herbert-lui-s-gear-and-productivity-t-1685672437>
 
 每周，我们都会问一些有趣的人他们是如何工作的。本周，轮到我们了。我是赫伯特，下面是我最喜欢的一些技术、见解和应用。
 

@@ -1,6 +1,6 @@
 # 灵感的科学(以及如何让它为你工作)
 
-> 原文:[https://life hacker . com/the-science of-inspiration-and-how-to-make it-work-for-1467413542](https://lifehacker.com/the-science-of-inspiration-and-how-to-make-it-work-for-1467413542)
+> 原文：<https://lifehacker.com/the-science-of-inspiration-and-how-to-make-it-work-for-1467413542>
 
 灵感是善变的，也是困难的。我们都为那些明亮的“啊哈！”无论我们是在创意领域还是逻辑领域工作。虽然这不是一个你可以完全控制的过程，但当你理解它们是如何工作的时候，有一些方法可以让你的大脑有更多的顿悟。
 

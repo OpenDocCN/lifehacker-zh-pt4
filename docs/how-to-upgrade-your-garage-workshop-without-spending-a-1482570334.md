@@ -1,6 +1,6 @@
 # 如何升级你的车库车间，而不花一大笔钱
 
-> 原文:[https://life hacker . com/how-to-upgrade-your-garage-workshop-without-spending-a-1482570334](https://lifehacker.com/how-to-upgrade-your-garage-workshop-without-spending-a-1482570334)
+> 原文：<https://lifehacker.com/how-to-upgrade-your-garage-workshop-without-spending-a-1482570334>
 
 如果你有一个车库工作室，有很多方法可以在不倾家荡产的情况下改善它。家庭杂工的团队在这里分享其中的五个。
 

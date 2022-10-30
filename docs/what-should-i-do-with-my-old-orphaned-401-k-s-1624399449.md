@@ -1,6 +1,6 @@
 # 我该如何处理我的旧的、失去父母的 401(k)养老金？
 
-> 原文:[https://life hacker . com/what-should-I-do-with-my-old-orphan-401-k-s-1624399449](https://lifehacker.com/what-should-i-do-with-my-old-orphaned-401-k-s-1624399449)
+> 原文：<https://lifehacker.com/what-should-i-do-with-my-old-orphaned-401-k-s-1624399449>
 
 亲爱的 Lifehacker，
 我做过几份工作，它们都提供了 401(k)退休计划。问题是，当我离开一家公司时，401(k)仍在那里，我不知道如何处理它。现在，我有三四个前公司的人闲坐着。我该拿他们怎么办？

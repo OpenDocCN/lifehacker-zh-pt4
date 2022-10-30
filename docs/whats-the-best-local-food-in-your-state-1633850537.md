@@ -1,6 +1,6 @@
 # 你所在的州最好的本地食物是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-local-food-in-your state-1633850537](https://lifehacker.com/whats-the-best-local-food-in-your-state-1633850537)
+> 原文：<https://lifehacker.com/whats-the-best-local-food-in-your-state-1633850537>
 
 美国美食的种类比美国各州都多，这就很说明问题了。不过，我们吃的食物种类往往因地区而异。那么你的邻居在做什么呢？
 

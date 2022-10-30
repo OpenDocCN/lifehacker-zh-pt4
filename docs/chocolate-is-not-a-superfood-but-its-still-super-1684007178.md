@@ -1,6 +1,6 @@
 # 巧克力不是超级食物(但它仍然是超级的)
 
-> 原文:[https://life hacker . com/chocolate-is not-a-super food-but-its-still-super-1684007178](https://lifehacker.com/chocolate-is-not-a-superfood-but-its-still-super-1684007178)
+> 原文：<https://lifehacker.com/chocolate-is-not-a-superfood-but-its-still-super-1684007178>
 
 我们以前听过这种说法，现在是二月，它们又回来了:巧克力富含抗氧化剂。它对健康的诸多益处已被证实。对你真的有好处，对吗？不完全是。让我们仔细看看。
 

@@ -1,6 +1,6 @@
 # 生命体征介绍:一个关于健康和健身的 Lifehacker 博客
 
-> 原文:[https://life hacker . com/introducing-vitals-a-life hacker-blog-all-about-health-1677508237](https://lifehacker.com/introducing-vitals-a-lifehacker-blog-all-about-health-1677508237)
+> 原文：<https://lifehacker.com/introducing-vitals-a-lifehacker-blog-all-about-health-1677508237>
 
 生活中很少有事情比你的健康更重要，所以它值得一点生活黑客。今天，我们在 Lifehacker 上推出了一个名为 Vitals 的新栏目，内容都是关于健康和健身的。
 

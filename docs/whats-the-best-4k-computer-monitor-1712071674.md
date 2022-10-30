@@ -1,6 +1,6 @@
 # 4K 最好的电脑显示器是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-4k-computer-monitor-1712071674](https://lifehacker.com/whats-the-best-4k-computer-monitor-1712071674)
+> 原文：<https://lifehacker.com/whats-the-best-4k-computer-monitor-1712071674>
 
 你不需要一台高性能的个人电脑来充分利用高分辨率的 4K 显示器，但它肯定会有所帮助。如果你选择了一个 4K 展示，无论是为了 [一些非常漂亮的游戏](https://lifehacker.com/how-to-build-your-own-do-anything-4k-capable-desktop-1585882555) 还是 [仅仅是为了房地产](https://lifehacker.com/a-bigger-screen-for-less-money-use-a-4k-tv-instead-of-1526051072) ，我们想知道你选择了哪一个，以及为什么。
 

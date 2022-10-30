@@ -1,6 +1,6 @@
 # 为了更好的职业生涯，你应该经常与之交流的 5 个人
 
-> 原文:[https://life hacker . com/5-people-you-should-regular-talk-shop-for-a-bett-1597872946](https://lifehacker.com/5-people-you-should-regularly-talk-shop-with-for-a-bett-1597872946)
+> 原文：<https://lifehacker.com/5-people-you-should-regularly-talk-shop-with-for-a-bett-1597872946>
 
 正确的建议可以极大地改变你的职业生涯。但是要获得这种洞察力，你需要和正确的人交谈。建立一个由不同角色的人组成的网络，你的职业生涯将从不同的角度受益。这里有几个你应该经常联系的人。
 

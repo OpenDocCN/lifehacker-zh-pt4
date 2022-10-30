@@ -1,6 +1,6 @@
 # 使用筷子的十大妙招(不包括外卖)
 
-> 原文:[https://life hacker . com/top-10-clever-ways-to-use-the-done-contract-1724255597](https://lifehacker.com/top-10-clever-ways-to-use-chopsticks-that-dont-involve-1724255597)
+> 原文：<https://lifehacker.com/top-10-clever-ways-to-use-chopsticks-that-dont-involve-1724255597>
 
 筷子是吃亚洲菜肴时的首选工具，但它们不仅仅可以夹起面条。看看这十个在身边放一双筷子的理由。
 

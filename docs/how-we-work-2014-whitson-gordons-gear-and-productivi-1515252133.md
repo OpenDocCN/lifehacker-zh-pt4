@@ -1,6 +1,6 @@
 # 《我们如何工作》, 2014 年:惠特森·戈登的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-2014-whitson-gordons-gear-and-productivi-1515252133](https://lifehacker.com/how-we-work-2014-whitson-gordons-gear-and-productivi-1515252133)
+> 原文：<https://lifehacker.com/how-we-work-2014-whitson-gordons-gear-and-productivi-1515252133>
 
 我们每天都在 Lifehacker 分享我们最喜欢的技巧、窍门和装备，但本周，我们该展示一下我们实际使用的那些了。今天轮到我了。这是我做事的方法。
 

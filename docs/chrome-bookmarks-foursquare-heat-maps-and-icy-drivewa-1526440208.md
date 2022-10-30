@@ -1,6 +1,6 @@
 # Chrome 书签、Foursquare 热图和结冰的车道
 
-> 原文:[https://life hacker . com/chrome-bookmarks-four square-heat-maps-and-ice-drive wa-1526440208](https://lifehacker.com/chrome-bookmarks-foursquare-heat-maps-and-icy-drivewa-1526440208)
+> 原文：<https://lifehacker.com/chrome-bookmarks-foursquare-heat-maps-and-icy-drivewa-1526440208>
 
 读者们提供了他们最好的建议，来丰富你的 Chrome 书签，创建你的 Foursquare 签到的热图，以及击败结冰的车道。
 

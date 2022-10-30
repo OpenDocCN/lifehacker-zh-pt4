@@ -1,6 +1,6 @@
 # 跨越健身鸿沟:如何从初学者到中级
 
-> 原文:[https://life hacker . com/crossing-the-fitness-chasm-how-to-transition-from-begi-1708248171](https://lifehacker.com/crossing-the-fitness-chasm-how-to-transition-from-begi-1708248171)
+> 原文：<https://lifehacker.com/crossing-the-fitness-chasm-how-to-transition-from-begi-1708248171>
 
 在健身方面，就像任何技能一样，你不会永远是初学者。我见过许多人在不知道的情况下从健身初学者领域毕业，这导致了问题。让我们看看如何识别你不再是初学者，以及下一步该怎么做。
 

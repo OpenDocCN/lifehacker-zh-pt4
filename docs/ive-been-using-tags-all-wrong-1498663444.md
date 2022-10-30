@@ -1,6 +1,6 @@
 # 我一直在错误地使用标签
 
-> 原文:[https://life hacker . com/ive-be-use-tags-all-wrong-1498663444](https://lifehacker.com/ive-been-using-tags-all-wrong-1498663444)
+> 原文：<https://lifehacker.com/ive-been-using-tags-all-wrong-1498663444>
 
 现在，几乎每个笔记、日记、待办事项和写作应用都有一个标签系统。有了它，你应该能够轻松地组织一切，这样你就可以立即找到它，但标签是一个有点模糊的想法，很难真正使用好。我做错了好几年，但我终于想出了一个我喜欢的系统。
 

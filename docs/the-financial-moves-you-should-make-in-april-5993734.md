@@ -1,6 +1,6 @@
 # 你应该在四月采取的财务行动
 
-> 原文:[https://life hacker . com/the-financial-moves-you-should-make-in-April-5993734](https://lifehacker.com/the-financial-moves-you-should-make-in-april-5993734)
+> 原文：<https://lifehacker.com/the-financial-moves-you-should-make-in-april-5993734>
 
 快乐 [理财扫盲月](http://twocents.lifehacker.com/your-guide-to-free-resources-for-improving-your-money-s-1557390942) ！我们经历了你每个月都应该做的 [财务行动](http://lifehacker.com/tag/financial-calendar) ，但是 4 月——税收月和财务知识月——是开始的好时机。以下是你在接下来几周应该做的事情。
 

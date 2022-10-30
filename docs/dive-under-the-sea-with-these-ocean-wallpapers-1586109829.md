@@ -1,6 +1,6 @@
 # 用这些海洋壁纸潜入海底
 
-> 原文:[https://life hacker . com/dive-under-the-sea-wallpapers-1586109829](https://lifehacker.com/dive-under-the-sea-with-these-ocean-wallpapers-1586109829)
+> 原文：<https://lifehacker.com/dive-under-the-sea-with-these-ocean-wallpapers-1586109829>
 
 海洋和海洋生物是我们世界上无穷无尽的迷人部分。有了这些桌面壁纸，你不必成为深海潜水员，也能在舒适的办公桌前欣赏它们。
 

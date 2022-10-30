@@ -1,6 +1,6 @@
 # 记住 7c，以便更有效地沟通
 
-> 原文:[https://life hacker . com/remember-the-7-cs-to-communication-more-effectively-1579782379](https://lifehacker.com/remember-the-7-cs-to-communicate-more-effectively-1579782379)
+> 原文：<https://lifehacker.com/remember-the-7-cs-to-communicate-more-effectively-1579782379>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-v4OmXaihEp0&start=15](https://lifehacker.com/embed/inset/iframe?id=youtube-video-v4OmXaihEp0&start=15) 
 

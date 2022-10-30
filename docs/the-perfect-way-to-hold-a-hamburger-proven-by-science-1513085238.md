@@ -1,6 +1,6 @@
 # 科学证明，拿汉堡的最佳方式
 
-> 原文:[https://kotaku . com/the-perfect-way-to-hold a-hamburger-proven-by-science-1513085238](https://kotaku.com/the-perfect-way-to-hold-a-hamburger-proven-by-science-1513085238)
+> 原文：<https://kotaku.com/the-perfect-way-to-hold-a-hamburger-proven-by-science-1513085238>
 
 我们都有过这样的经历:你双手拿着一个大汉堡，你把它拿到嘴边咬了一口，整个汉堡掉了一地。但是你猜怎么着，有一种“理想”的方法来拿汉堡。这就是了。
 

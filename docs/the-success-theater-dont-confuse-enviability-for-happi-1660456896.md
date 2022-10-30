@@ -1,6 +1,6 @@
 # 成功剧场:不要把羡慕和幸福混淆
 
-> 原文:[https://life hacker . com/the-success-theater-don-fuzzle-enviability-for-happi-1660456896](https://lifehacker.com/the-success-theater-dont-confuse-enviability-for-happi-1660456896)
+> 原文：<https://lifehacker.com/the-success-theater-dont-confuse-enviability-for-happi-1660456896>
 
 社交媒体改变了我们的行为方式。让我们联系更加紧密也让我们更容易相互比较。这就是为什么区分令人羡慕和快乐变得越来越重要。
 

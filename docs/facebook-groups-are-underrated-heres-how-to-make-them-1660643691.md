@@ -1,6 +1,6 @@
 # 脸书团体被低估了，以下是如何让他们变得令人敬畏
 
-> 原文:[https://life hacker . com/Facebook-groups-is-undefested-heres-how-to-make-them-1660643691](https://lifehacker.com/facebook-groups-are-underrated-heres-how-to-make-them-1660643691)
+> 原文：<https://lifehacker.com/facebook-groups-are-underrated-heres-how-to-make-them-1660643691>
 
 脸书 [昨天推出了一款新的手机群组应用](http://lifehacker.com/facebook-launches-dedicated-groups-app-to-make-groups-e-1660199423) ，让许多人感到困惑。虽然很多人可能已经完全忘记了群，但它们实际上是脸书与朋友保持联系的最佳工具之一。另外，它们比新闻更私人化。
 

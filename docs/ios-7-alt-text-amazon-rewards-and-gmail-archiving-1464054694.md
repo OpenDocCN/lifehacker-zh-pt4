@@ -1,6 +1,6 @@
 # iOS 7 替代文本、亚马逊奖励和 Gmail 存档
 
-> 原文:[https://life hacker . com/IOs-7-alt-text-Amazon-rewards-and-Gmail-archiving-1464054694](https://lifehacker.com/ios-7-alt-text-amazon-rewards-and-gmail-archiving-1464054694)
+> 原文：<https://lifehacker.com/ios-7-alt-text-amazon-rewards-and-gmail-archiving-1464054694>
 
 读者们提供了在 iOS 7 中查看图片替代文本、充分利用亚马逊奖励卡以及在 Mavericks 的苹果邮件应用程序中存档 Gmail 的最佳技巧。
 

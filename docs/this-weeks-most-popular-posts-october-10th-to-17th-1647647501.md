@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:10 月 10 日至 17 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-10 月 10 日至 17 日-1647647501](https://lifehacker.com/this-weeks-most-popular-posts-october-10th-to-17th-1647647501)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-october-10th-to-17th-1647647501>
 
 本周我们 [发现最好的 iPhone 6 案例](https://lifehacker.com/five-best-iphone-6-and-6-plus-cases-1645271521)[了解 2014 年麻烦车](http://lifehacker.com/the-cars-people-complained-about-most-in-2014-1640976968)[目标买什么](http://lifehacker.com/what-to-buy-and-not-buy-at-target-according-to-consu-1644965078)[全部关于安卓棒棒糖](http://lifehacker.com/updating-all-the-new-stuff-in-androids-l-release-prev-1595928268) 。这里回顾一下。
 

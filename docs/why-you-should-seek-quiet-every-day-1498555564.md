@@ -1,6 +1,6 @@
 # 为什么你应该每天寻求安静
 
-> 原文:[https://life hacker . com/why-you-should-seek-quiet-every-day-1498555564](https://lifehacker.com/why-you-should-seek-quiet-every-day-1498555564)
+> 原文：<https://lifehacker.com/why-you-should-seek-quiet-every-day-1498555564>
 
 每天下午 3 点左右，我的大脑就会疲劳。我尝试了许多方法来应对这一挑战:咖啡(尤其是当麦当劳免费赠送小份的时候)、往脸上泼冷水、上网冲浪、吃零食。然而我发现了一个最有效的技巧:*去散步*。
 

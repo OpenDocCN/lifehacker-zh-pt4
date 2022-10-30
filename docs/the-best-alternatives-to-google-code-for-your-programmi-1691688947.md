@@ -1,6 +1,6 @@
 # 对于您的编程项目来说，Google 代码的最佳替代品
 
-> 原文:[https://life hacker . com/the-best-alternatives-to-Google-code-for-your-programmi-1691688947](https://lifehacker.com/the-best-alternatives-to-google-code-for-your-programmi-1691688947)
+> 原文：<https://lifehacker.com/the-best-alternatives-to-google-code-for-your-programmi-1691688947>
 
 谷歌正在 [关闭谷歌代码](http://google-opensource.blogspot.com/2015/03/farewell-to-google-code.html) ，他们为开源项目和编码倡议提供托管服务。如果您还没有将您的项目迁移到另一个服务，现在是一个好时机。这里有几个可以让你快速启动并运行的替代方法。
 

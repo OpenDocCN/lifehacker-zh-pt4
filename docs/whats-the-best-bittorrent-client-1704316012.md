@@ -1,6 +1,6 @@
 # 最好的 BitTorrent 客户端是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-BitTorrent-client-1704316012](https://lifehacker.com/whats-the-best-bittorrent-client-1704316012)
+> 原文：<https://lifehacker.com/whats-the-best-bittorrent-client-1704316012>
 
 BitTorrent 仍然是下载大文件、Linux 发行版、游戏补丁等的首选方法，而不需要排队等待缓慢的 HTTP 下载。真正的问题是你用哪个应用程序来获取这些文件。本周，我们想听听你的最爱。
 

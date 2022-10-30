@@ -1,6 +1,6 @@
 # 在线向他人汇款的五种最佳方式
 
-> 原文:[https://life hacker . com/five-best-ways-send-money-to-other-people-online-1707846074](https://lifehacker.com/five-best-ways-to-send-money-to-other-people-online-1707846074)
+> 原文：<https://lifehacker.com/five-best-ways-to-send-money-to-other-people-online-1707846074>
 
 无论你是在午餐时分摊账单、支付你的账单份额，还是通过 Craigslist 购物，在网上汇款比以往任何时候都更容易。有大量的服务可以通过电话号码或电子邮件地址轻松转账。本周我们将根据你们的提名选出五位最佳选手。
 

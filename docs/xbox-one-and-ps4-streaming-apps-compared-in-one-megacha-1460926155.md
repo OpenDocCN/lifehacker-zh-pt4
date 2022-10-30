@@ -1,6 +1,6 @@
 # Xbox One 与 PS4 流媒体应用的完美融合
 
-> 原文:[https://gizmodo . com/Xbox-one-and-ps4-streaming-apps-comparated-in-one-megacha-1460926155](https://gizmodo.com/xbox-one-and-ps4-streaming-apps-compared-in-one-megacha-1460926155)
+> 原文：<https://gizmodo.com/xbox-one-and-ps4-streaming-apps-compared-in-one-megacha-1460926155>
 
 PlayStation 4 和 Xbox One 都不仅仅想成为你的游戏主机——它们想成为你家庭娱乐系统的核心。本周，我们首次看到了将在这两款游戏机上推出的应用。这是他们的标准。
 

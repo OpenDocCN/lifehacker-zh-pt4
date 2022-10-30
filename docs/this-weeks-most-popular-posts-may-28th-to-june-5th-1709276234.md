@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:5 月 28 日至 6 月 5 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-may-28-to-June-5-1709276234](https://lifehacker.com/this-weeks-most-popular-posts-may-28th-to-june-5th-1709276234)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-may-28th-to-june-5th-1709276234>
 
 本周我们 [揭穿了一些流量神话](https://lifehacker.com/eight-popular-ticket-and-traffic-law-myths-debunked-1708158201)[对 Windows 10](http://lifehacker.com/windows-10-will-be-released-july-29th-reserve-your-cop-1708136305)[学会了最好(也是最差)的睡姿](http://lifehacker.com/the-graphic-shows-the-best-and-worst-sleeping-positions-1709054860)[放弃了昂贵的酒](http://lifehacker.com/this-video-explains-why-youre-probably-better-off-buyin-1707845166) 。这里回顾一下。
 

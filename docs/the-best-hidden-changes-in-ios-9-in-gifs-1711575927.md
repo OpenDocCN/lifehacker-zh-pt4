@@ -1,6 +1,6 @@
 # iOS 9 中最好的隐藏变化，在 gif 中
 
-> 原文:[https://gizmodo . com/the-best-hidden-changes-in-IOs-9-in-gifs-1711575927](https://gizmodo.com/the-best-hidden-changes-in-ios-9-in-gifs-1711575927)
+> 原文：<https://gizmodo.com/the-best-hidden-changes-in-ios-9-in-gifs-1711575927>
 
 苹果手机操作系统 的最新版本 [大张旗鼓地推出了引人注目的新功能。并行多任务处理！一个令人毛骨悚然的高效数字助理！但我使用 iOS 9 的时间越长，我就越注意到那些让一切都变得更好的微小变化。](https://gizmodo.com/ios-9-smarts-security-and-a-better-siri-1709837924)
 

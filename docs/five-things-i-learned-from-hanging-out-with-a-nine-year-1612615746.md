@@ -1,6 +1,6 @@
 # 我从和一个九岁孩子的交往中学到的五件事
 
-> 原文:[https://life hacker . com/five-things-I-known-with-hang-out-of-a-nine-1612615746](https://lifehacker.com/five-things-i-learned-from-hanging-out-with-a-nine-year-1612615746)
+> 原文：<https://lifehacker.com/five-things-i-learned-from-hanging-out-with-a-nine-year-1612615746>
 
 孩子们很擅长提供观点。由于他们没有工作，不能投票，而且通常直到他们进入青少年时期才开始引发严重的关系剧，他们处于独特的地位来学习真正重要的东西(无论他们是否有意教我们)。
 

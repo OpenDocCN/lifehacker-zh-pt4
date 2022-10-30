@@ -1,6 +1,6 @@
 # 职业聚焦:我作为数据科学家的工作
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-data-scientist-1684793405](https://lifehacker.com/career-spotlight-what-i-do-as-a-data-scientist-1684793405)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-data-scientist-1684793405>
 
 在硅谷的任何一家咖啡店坐一会儿，你肯定会无意中听到有人在谈论数据分析。这是什么？谁在处理这些数字？数据科学家的工作是在大量数据中发现模式，并将它们与现实世界的决策联系起来。
 

@@ -1,6 +1,6 @@
 # 最好的桌面杀毒应用是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-desktop-anti virus-application-1606224030](https://lifehacker.com/whats-the-best-desktop-antivirus-application-1606224030)
+> 原文：<https://lifehacker.com/whats-the-best-desktop-antivirus-application-1606224030>
 
 如果你想在互联网上保持安全，一个好的、可靠的杀毒工具是你口袋里的好工具。本周，我们想听听您认为哪些方法可以在不使您的机器瘫痪的情况下抵御威胁。
 

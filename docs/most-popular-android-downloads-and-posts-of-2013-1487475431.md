@@ -1,6 +1,6 @@
 # 2013 年最受欢迎的 Android 下载和帖子
 
-> 原文:[https://life hacker . com/most-popular-Android-downloads-and-post-of-2013-1487475431](https://lifehacker.com/most-popular-android-downloads-and-posts-of-2013-1487475431)
+> 原文：<https://lifehacker.com/most-popular-android-downloads-and-posts-of-2013-1487475431>
 
 对于 Android 来说，这是重要的一年。我们看到谷歌开始让 Android 变得更加模块化以对抗碎片化，果冻豆脱颖而出，KitKat 登上舞台，我们向你展示了比以往任何时候都更容易为你的手机扎根，定制它，用语音命令与它交谈，并使用它来自动化你的生活。这里回顾一下。
 

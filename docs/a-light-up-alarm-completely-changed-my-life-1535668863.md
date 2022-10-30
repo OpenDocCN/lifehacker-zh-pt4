@@ -1,6 +1,6 @@
 # 一个灯光警报彻底改变了我的生活
 
-> 原文:[https://gizmodo . com/a-light-up-alarm-complete-changed-my-life-1535668863](https://gizmodo.com/a-light-up-alarm-completely-changed-my-life-1535668863)
+> 原文：<https://gizmodo.com/a-light-up-alarm-completely-changed-my-life-1535668863>
 
 一遍又一遍地按下贪睡按钮几乎是最糟糕、最不宁静的方式来开始你的早晨，所以把这当成一个公共服务公告:一个灯光闹钟完全改变了我的生活，我想它也能改变你的生活。
 

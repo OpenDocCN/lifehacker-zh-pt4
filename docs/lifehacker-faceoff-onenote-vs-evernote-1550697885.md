@@ -1,6 +1,6 @@
 # 生活黑客对决:OneNote vs. Evernote
 
-> 原文:[https://life hacker . com/life hacker-face off-onenote-vs-evernote-1550697885](https://lifehacker.com/lifehacker-faceoff-onenote-vs-evernote-1550697885)
+> 原文：<https://lifehacker.com/lifehacker-faceoff-onenote-vs-evernote-1550697885>
 
 现在，微软 OneNote 在 Mac 和 Windows 上免费提供，这个备受喜爱的笔记工具的价格和跨平台障碍都消失了。但 OneNote 的表现如何才能与 Evernote、 [以及 Evernote、Lifehacker 读者最喜欢的笔记应用相媲美呢？让我们来看看每个应用程序的亮点，以及为什么你可能想使用一个而不是另一个。](http://lifehacker.com/ive-been-using-evernote-all-wrong-heres-why-its-actual-5989980)
 

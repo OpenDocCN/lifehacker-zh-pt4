@@ -1,6 +1,6 @@
 # 孤独的摇滚桌面
 
-> 原文:[https://lifehacker.com/the-lonely-rock-desktop-1617524942](https://lifehacker.com/the-lonely-rock-desktop-1617524942)
+> 原文：<https://lifehacker.com/the-lonely-rock-desktop-1617524942>
 
 读者[few cent](http://revolutionaryl524.kinja.com/)向我们的 [桌面展柜](http://kinja.com/desktop-showcase) 提交了这张精美的桌面。没事的时候，它看起来很舒服，而且有足够的工作空间，它的配件都放在旁边。这是你设置它需要的东西。
 

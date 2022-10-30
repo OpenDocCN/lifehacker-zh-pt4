@@ -1,6 +1,6 @@
 # 将你的抱负集中在 Lifehacker 的目标层次上
 
-> 原文:[https://life hacker . com/focus-your-ambitions-with-the-life hacker-hierarchy-of-g-5912971](https://lifehacker.com/focus-your-ambitions-with-the-lifehacker-hierarchy-of-g-5912971)
+> 原文：<https://lifehacker.com/focus-your-ambitions-with-the-lifehacker-hierarchy-of-g-5912971>
 
 设定目标很容易，但是优先排序却很难。人类不擅长正确权衡实现目标所需的东西。我们承担了太多，跳过一些步骤，结果，我们常常放弃。一旦你承诺建立一个框架来优先考虑你的目标并减少垃圾，实现你的目标就会变得更加现实。这里有一种方法。
 

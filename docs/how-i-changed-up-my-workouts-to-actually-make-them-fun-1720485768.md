@@ -1,6 +1,6 @@
 # 我如何改变我的锻炼，让它们变得有趣
 
-> 原文:[https://life hacker . com/how-I-changed-up-my-testings-to-actually-make-them-fun-1720485768](https://lifehacker.com/how-i-changed-up-my-workouts-to-actually-make-them-fun-1720485768)
+> 原文：<https://lifehacker.com/how-i-changed-up-my-workouts-to-actually-make-them-fun-1720485768>
 
 一旦你最终跨过那个门槛 [，锻炼变成了例行公事](http://lifehacker.com/how-to-motivate-yourself-into-an-exercise-routine-youll-5950484) ，就会有一个大问题“下一步是什么？”你脑海中闪现的问题。对我们中的许多人来说，仅仅做工作还不够令人兴奋。作为一名自行车手，我需要把自己推出舒适区，让事情变得有趣。
 

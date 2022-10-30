@@ -1,6 +1,6 @@
 # 我从编程中学到的六条人生经验
 
-> 原文:[https://life hacker . com/six-life-lessons-ive-learn-from-programming-1502077380](https://lifehacker.com/six-life-lessons-ive-learned-from-programming-1502077380)
+> 原文：<https://lifehacker.com/six-life-lessons-ive-learned-from-programming-1502077380>
 
 你需要知道的所有关于成功生活的重要信息，你都可以从计算机程序中获得。不相信我？请继续阅读。
 

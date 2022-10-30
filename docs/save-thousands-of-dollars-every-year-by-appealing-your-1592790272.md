@@ -1,6 +1,6 @@
 # 通过征收财产税，每年可以节省数千美元
 
-> 原文:[https://life hacker . com/通过向你的 1592790272 号申诉每年节省数千美元](https://lifehacker.com/save-thousands-of-dollars-every-year-by-appealing-your-1592790272)
+> 原文：<https://lifehacker.com/save-thousands-of-dollars-every-year-by-appealing-your-1592790272>
 
 继抵押贷款之后，房主的第二大支出通常是财产税。随着 30%到 60%的应税财产被高估，很有可能你支付的财产税超过了你应得的份额。以下是如何对抗——并减少——你的财产税账单。
 

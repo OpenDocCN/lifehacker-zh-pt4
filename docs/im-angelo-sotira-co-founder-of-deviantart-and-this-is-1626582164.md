@@ -1,6 +1,6 @@
 # 我是安吉洛·索提拉，DeviantArt 的联合创始人，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-angelo-soti ra-deviantart-and-this-is-1626582164 联合创始人](https://lifehacker.com/im-angelo-sotira-co-founder-of-deviantart-and-this-is-1626582164)
+> 原文：<https://lifehacker.com/im-angelo-sotira-co-founder-of-deviantart-and-this-is-1626582164>
 
 在当代互联网公司的语境中， [DeviantArt](http://www.deviantart.com/) 是无比古老的。该网站始于 2000 年，是一种分享媒体播放器皮肤的方式，现已发展成为各种艺术家创意和合作的温床。场地后面是安吉洛·索提拉。
 

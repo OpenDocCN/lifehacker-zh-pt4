@@ -1,6 +1,6 @@
 # 我可以在网上学习演奏乐器吗？
 
-> 原文:[https://life hacker . com/can-I-learn-how-to-play-a-instrument-online-1548792371](https://lifehacker.com/can-i-learn-how-to-play-an-instrument-online-1548792371)
+> 原文：<https://lifehacker.com/can-i-learn-how-to-play-an-instrument-online-1548792371>
 
 亲爱的 Lifehacker，
 我一直想学习如何弹吉他，但我负担不起私人课程的费用。很多人告诉我，我可以用在线工具自学，但我不知道从哪里开始。你建议我如何学习演奏？

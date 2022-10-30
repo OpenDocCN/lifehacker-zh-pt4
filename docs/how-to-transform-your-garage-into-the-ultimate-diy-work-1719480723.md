@@ -1,6 +1,6 @@
 # 如何将你的车库改造成终极 DIY 工作室
 
-> 原文:[https://life hacker . com/how-to-transform-your-garage-to-ultimate-DIY-work-1719480723](https://lifehacker.com/how-to-transform-your-garage-into-the-ultimate-diy-work-1719480723)
+> 原文：<https://lifehacker.com/how-to-transform-your-garage-into-the-ultimate-diy-work-1719480723>
 
 车库是存放工具和设备的天然场所，但这并不意味着它是建造下一个项目的理想场所。以下是如何将你的车库改造成一个安全高效的 DIY 工作空间，让你引以为豪。
 

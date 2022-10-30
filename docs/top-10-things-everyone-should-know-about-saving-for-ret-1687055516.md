@@ -1,6 +1,6 @@
 # 关于退休储蓄，每个人都应该知道的 10 件事
 
-> 原文:[https://life hacker . com/top-10-things-every one-should-know-on-saving-for-ret-1687055516](https://lifehacker.com/top-10-things-everyone-should-know-about-saving-for-ret-1687055516)
+> 原文：<https://lifehacker.com/top-10-things-everyone-should-know-about-saving-for-ret-1687055516>
 
 如果我们曾经希望停止工作，享受我们的黄金岁月，我们必须为我们的退休储蓄和投资。这里有十件事需要知道，这样我们就可以增加我们的退休基金(并且在我们死之前不会把钱用完)。
 

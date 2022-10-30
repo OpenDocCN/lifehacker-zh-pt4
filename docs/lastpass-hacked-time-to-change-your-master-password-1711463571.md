@@ -1,6 +1,6 @@
 # LastPass 被黑，现在改变你的主密码
 
-> 原文:[https://life hacker . com/lastpass-hacked-time-to-change-your-master-password-1711463571](https://lifehacker.com/lastpass-hacked-time-to-change-your-master-password-1711463571)
+> 原文：<https://lifehacker.com/lastpass-hacked-time-to-change-your-master-password-1711463571>
 
 伙计们，先说坏消息。LastPass，我们 [最喜欢的密码管理器](https://lifehacker.com/the-intermediate-guide-to-mastering-passwords-with-last-5645162) ( [和你的](https://lifehacker.com/most-popular-password-manager-lastpass-1679554433) )被黑了。是时候更改您的主密码了。好消息是，你为其他网站保存的密码应该是安全的。
 

@@ -1,6 +1,6 @@
 # 解决常见身体问题的完美睡姿
 
-> 原文:[https://life hacker . com/the-perfect-sleeping-positions-to-fix-common-body-probl-1628559555](https://lifehacker.com/the-perfect-sleeping-positions-to-fix-common-body-probl-1628559555)
+> 原文：<https://lifehacker.com/the-perfect-sleeping-positions-to-fix-common-body-probl-1628559555>
 
 你每晚的睡眠量很重要，但更重要的是你得到的睡眠是好的睡眠 。如果你有疼痛、消化不良或打鼾的倾向，这些姿势可以帮助治疗你的病痛。
 

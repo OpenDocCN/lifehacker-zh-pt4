@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:1 月 31 日至 2 月 7 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-1 月 31 日至 2 月 1518461241](https://lifehacker.com/this-weeks-most-popular-posts-january-31st-to-february-1518461241)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-january-31st-to-february-1518461241>
 
 本周我们学习了 [为什么你不应该把你的地址写在简历上](https://lifehacker.com/why-you-shouldnt-put-your-address-on-your-resume-1516569421)[为什么你应该使用 Linux](http://lifehacker.com/top-10-uses-for-linux-even-if-your-main-pc-runs-window-1513172815)[chrome cast 与其他流媒体设备的不同](http://lifehacker.com/whats-so-great-about-the-chromecast-vs-other-streamin-1516646444) ，以及 [我们花钱的常见方式](http://lifehacker.com/six-times-we-blow-more-money-than-we-should-and-how-to-1515656181) 。这里回顾一下。
 

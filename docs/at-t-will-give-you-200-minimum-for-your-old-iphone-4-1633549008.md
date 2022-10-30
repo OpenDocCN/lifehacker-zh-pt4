@@ -1,6 +1,6 @@
 # 美国电话电报公司会给你 200 美元的最低价格来买你的旧 iPhone 4
 
-> 原文:[https://gizmodo . com/at-t-will-give-you-200-minimum-for-your-old-iphone-4-1633549008](https://gizmodo.com/at-t-will-give-you-200-minimum-for-your-old-iphone-4-1633549008)
+> 原文：<https://gizmodo.com/at-t-will-give-you-200-minimum-for-your-old-iphone-4-1633549008>
 
 正如预期的那样，潜在的 iPhone 6 用户目前正在经历一场以旧换新和升级优惠的洪流。这一切都非常非常令人困惑。但是美国电话电报公司很清楚一件事:如果你以旧换新 iPhone 4、4S、5 或 5C，你将获得至少 200 美元的新设备积分。
 

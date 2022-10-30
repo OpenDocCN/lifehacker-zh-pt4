@@ -1,6 +1,6 @@
 # 如何利用拒绝为自己赢得第二次机会
 
-> 原文:[https://life hacker . com/how-to-use-rejection-to-set-up yourself-second-sh-1678175201](https://lifehacker.com/how-to-use-rejection-to-set-yourself-up-for-a-second-sh-1678175201)
+> 原文：<https://lifehacker.com/how-to-use-rejection-to-set-yourself-up-for-a-second-sh-1678175201>
 
 无论是工作面试还是约别人出去，拒绝都是一个残酷的现实，我们都至少会面对一次。这很难，但你如何处理拒绝很可能是以后获得第二次机会的关键，当你这样做时，你就成功了。这里有一些处理拒绝的技巧，并把它作为一个转折点，最终让你得到你想要的。
 

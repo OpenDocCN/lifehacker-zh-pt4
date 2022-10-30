@@ -1,6 +1,6 @@
 # 当整个团队远程工作时，如何感觉联系更加紧密
 
-> 原文:[https://life hacker . com/how-to-feel-more-connected-when-your-all-team-works-r-1688265162](https://lifehacker.com/how-to-feel-more-connected-when-your-whole-team-works-r-1688265162)
+> 原文：<https://lifehacker.com/how-to-feel-more-connected-when-your-whole-team-works-r-1688265162>
 
 如果你在一个远程团队工作，你会很快注意到沟通的重要性。当你不面对面工作时，找到与团队沟通的最佳方式是必不可少的，因为你错过了每个人情况的大部分——如果不是全部的话。
 

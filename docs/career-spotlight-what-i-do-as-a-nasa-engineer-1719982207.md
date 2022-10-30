@@ -1,6 +1,6 @@
 # 职业聚焦:我作为 NASA 工程师做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-NASA-engineer-1719982207](https://lifehacker.com/career-spotlight-what-i-do-as-a-nasa-engineer-1719982207)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-nasa-engineer-1719982207>
 
 太空探索，无论是通过望远镜观察天空还是发送到遥远星球的探测器，都是成千上万人的工作成果，他们共同合作解决当你试图超越似乎可能的东西时出现的无数问题。
 

@@ -1,6 +1,6 @@
 # 放弃购物车一天，在网上打折购物
 
-> 原文:[https://life hacker . com/get-a-discount-shopping-by-cart-512616024](https://lifehacker.com/get-a-discount-shopping-online-by-abandoning-your-cart-512616024)
+> 原文：<https://lifehacker.com/get-a-discount-shopping-online-by-abandoning-your-cart-512616024>
 
 当你在网上下单寻找额外的折扣时，试着把你的购物车放一天。公司有时会发邮件打折来吸引你回来。
 

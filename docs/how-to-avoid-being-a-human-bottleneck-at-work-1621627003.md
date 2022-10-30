@@ -1,6 +1,6 @@
 # 如何避免成为工作中的人力瓶颈
 
-> 原文:[https://life hacker . com/how-to-避免成为工作中的瓶颈-1621627003](https://lifehacker.com/how-to-avoid-being-a-human-bottleneck-at-work-1621627003)
+> 原文：<https://lifehacker.com/how-to-avoid-being-a-human-bottleneck-at-work-1621627003>
 
 没有人想挡别人的路。当你忙于工作，专注于自己的项目时，有时你可能甚至没有意识到你正在制造一个问题。但是如果你特别注意沟通清楚，你就不会成为人类的瓶颈。
 

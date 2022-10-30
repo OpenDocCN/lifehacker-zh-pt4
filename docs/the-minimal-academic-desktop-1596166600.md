@@ -1,6 +1,6 @@
 # 最小的学术桌面
 
-> 原文:[https://life hacker . com/the-minimal-academic-desktop-1596166600](https://lifehacker.com/the-minimal-academic-desktop-1596166600)
+> 原文：<https://lifehacker.com/the-minimal-academic-desktop-1596166600>
 
 读者 [sgosp3](http://sgosp3.kinja.com/) 想要一个最小化的桌面，帮助他专注于手头的任务——他的研究——所以他建造了这个 Windows 桌面，这样他就有足够的工作空间，合适的工具放在顶部，触手可及。他是这样做的。
 

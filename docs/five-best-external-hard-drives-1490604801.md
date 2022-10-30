@@ -1,6 +1,6 @@
 # 五款最佳外置硬盘
 
-> 原文:[https://life hacker . com/five-best-external-hard-drives-1490604801](https://lifehacker.com/five-best-external-hard-drives-1490604801)
+> 原文：<https://lifehacker.com/five-best-external-hard-drives-1490604801>
 
 如今，外置硬盘几乎是一种商品。它们很便宜，有多种尺寸，而且很容易找到。尽管如此，有些还是比其他的好:它们更可靠，更便携，有更多的连接选项，等等。本周我们将根据你们的提名选出五位最佳选手。
 

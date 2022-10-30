@@ -1,6 +1,6 @@
 # 财务上的成功不仅仅是数学:它关乎心态
 
-> 原文:[https://life hacker . com/financial-success-than-math-its-about-mind-1694664694](https://lifehacker.com/financial-success-is-more-than-math-its-about-mindset-1694664694)
+> 原文：<https://lifehacker.com/financial-success-is-more-than-math-its-about-mindset-1694664694>
 
 花得比赚得少是个人理财的黄金法则。这非常简单，但并不容易。你的大脑喜欢通过欺骗你去违背你所知道的事实来阻碍你。以下是你的大脑如何破坏你的财务状况，以及你如何克服这些倾向。
 

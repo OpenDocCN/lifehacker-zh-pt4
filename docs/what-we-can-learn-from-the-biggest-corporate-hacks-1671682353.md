@@ -1,6 +1,6 @@
 # 我们能从最大的公司黑客身上学到什么
 
-> 原文:[https://life hacker . com/what-we-can-learn-from-the-big-corporate-hacks-1671682353](https://lifehacker.com/what-we-can-learn-from-the-biggest-corporate-hacks-1671682353)
+> 原文：<https://lifehacker.com/what-we-can-learn-from-the-biggest-corporate-hacks-1671682353>
 
 过去几年，从简单的密码到整个电子邮件数据库，大量公司遭到黑客攻击。当然，当我们受到这些黑客攻击的影响时，我们会寻找责任人——但我们很少停下来审视自己的生活，看看我们能从这些公司的错误中学到什么。
 

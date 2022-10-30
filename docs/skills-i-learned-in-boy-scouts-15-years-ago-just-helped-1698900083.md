@@ -1,6 +1,6 @@
 # 15 年前我在童子军学到的技能帮助我拯救了一条生命
 
-> 原文:[https://gizmodo . com/skills-I-learn-in-boy-scouts-15 年前-just-help-1698900083](https://gizmodo.com/skills-i-learned-in-boy-scouts-15-years-ago-just-helped-1698900083)
+> 原文：<https://gizmodo.com/skills-i-learned-in-boy-scouts-15-years-ago-just-helped-1698900083>
 
 我在去老鹰童子军的路上学会了如何做心肺复苏。但是，所有的理论训练都不能让我为真正的事情做好准备。一个陌生人周日心脏病发作，我帮助他起死回生。这就是那种感觉。
 

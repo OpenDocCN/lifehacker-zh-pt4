@@ -1,6 +1,6 @@
 # 当你遭遇车祸时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-what-what-what-what-ve-been-a-event-1713225039](https://lifehacker.com/what-to-do-when-you-ve-been-in-a-car-accident-1713225039)
+> 原文：<https://lifehacker.com/what-to-do-when-you-ve-been-in-a-car-accident-1713225039>
 
 车祸后，事情会变得如此忙乱，你可能很难清醒地思考。这些是你为事故做准备时需要做的事情，也是你卷入事故时应该遵循的步骤。
 

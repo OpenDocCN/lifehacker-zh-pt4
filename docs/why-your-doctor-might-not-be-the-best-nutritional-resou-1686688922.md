@@ -1,6 +1,6 @@
 # 为什么你的医生可能不是最好的营养来源
 
-> 原文:[https://life hacker . com/why-your ' s doctor-may-not ' s-best-nutric-resou-1686688922](https://lifehacker.com/why-your-doctor-might-not-be-the-best-nutritional-resou-1686688922)
+> 原文：<https://lifehacker.com/why-your-doctor-might-not-be-the-best-nutritional-resou-1686688922>
 
 你的医生是对你的健康最重要的人之一，理应如此。虽然你应该相信他们在某些问题上的建议，但了解他们的培训范围以及何时应该寻求外部帮助也很重要。
 

@@ -1,6 +1,6 @@
 # 如何告诉人们你是他们作品的粉丝(不让人毛骨悚然)
 
-> 原文:[https://life hacker . com/how-to-tell-people-you-a-fan-of-the-work-without-b-1674157447](https://lifehacker.com/how-to-tell-people-youre-a-fan-of-their-work-without-b-1674157447)
+> 原文：<https://lifehacker.com/how-to-tell-people-youre-a-fan-of-their-work-without-b-1674157447>
 
 无论是一位总是很到位的公共演说家，还是你一直敬仰的业内名人，我们都有自己钦佩的人，并希望与他们接触。但是你可能担心他们会认为你是个怪人。以下是如何告诉人们你欣赏他们的工作，而不会听起来像个讨厌鬼。
 

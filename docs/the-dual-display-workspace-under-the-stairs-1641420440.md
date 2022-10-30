@@ -1,6 +1,6 @@
 # 楼梯下的双显示器工作区
 
-> 原文:[https://life hacker . com/the-dual-display-workspace-under-the-stairs-1641420440](https://lifehacker.com/the-dual-display-workspace-under-the-stairs-1641420440)
+> 原文：<https://lifehacker.com/the-dual-display-workspace-under-the-stairs-1641420440>
 
 楼梯下那个尴尬的区域是书桌的黄金地段，我们已经看到了[再一次](http://lifehacker.com/the-office-under-the-stairs-5191380) 。今天的特色工作空间遵循了这一主题，其设置包括两个 Thunderbolt 显示器、一个音乐键盘和一台 Apple Mac Pro。
 

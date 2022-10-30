@@ -1,6 +1,6 @@
 # 六个为期 30 天的挑战，帮助你学习更多并形成持久的习惯
 
-> 原文:[https://life hacker . com/six-30-day-challenges-to-help-your-learn-more-and-form-1614583798](https://lifehacker.com/six-30-day-challenges-to-help-your-learn-more-and-form-1614583798)
+> 原文：<https://lifehacker.com/six-30-day-challenges-to-help-your-learn-more-and-form-1614583798>
 
 30 天挑战是迫使自己走出舒适区，学习新技能的好方法。你可以学习新的东西，形成持久的习惯，并从总体上更好地了解自己。另外，只有 30 天，你没有什么可失去的。
 

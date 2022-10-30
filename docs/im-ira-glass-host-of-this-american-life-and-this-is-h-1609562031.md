@@ -1,6 +1,6 @@
 # 我是《美国生活》的主持人伊拉·格拉斯，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-IRA-glass-host-of-this-American-life-and-this-is-h-1609562031](https://lifehacker.com/im-ira-glass-host-of-this-american-life-and-this-is-h-1609562031)
+> 原文：<https://lifehacker.com/im-ira-glass-host-of-this-american-life-and-this-is-h-1609562031>
 
 伊拉·格拉斯是一个作家，制片人，讲故事，演员，和一个熟悉的声音。他的节目 [这种美国生活](http://www.thisamericanlife.org/) 树立了当代非虚构广播节目的标准，并影响和激励了无数其他人拿起麦克风，尝试播客。
 

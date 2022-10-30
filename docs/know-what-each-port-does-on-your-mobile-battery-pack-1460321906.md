@@ -1,6 +1,6 @@
 # 了解移动电池组上每个端口的功能
 
-> 原文:[https://life hacker . com/know-what-each-port-does-on-your-mobile-battery-pack-1460321906](https://lifehacker.com/know-what-each-port-does-on-your-mobile-battery-pack-1460321906)
+> 原文：<https://lifehacker.com/know-what-each-port-does-on-your-mobile-battery-pack-1460321906>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-sV70tnlTG_g&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-sV70tnlTG_g&start=0) 
 

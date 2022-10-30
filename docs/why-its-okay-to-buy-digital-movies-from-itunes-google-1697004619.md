@@ -1,6 +1,6 @@
 # 为什么可以从 iTunes、谷歌和亚马逊购买数字电影
 
-> 原文:[https://life hacker . com/why-it-okay-to-buy-digital-movies-from-itunes-Google-1697004619](https://lifehacker.com/why-its-okay-to-buy-digital-movies-from-itunes-google-1697004619)
+> 原文：<https://lifehacker.com/why-its-okay-to-buy-digital-movies-from-itunes-google-1697004619>
 
 今天,《星球大战》再次重新发行。这次， [要来 iTunes，亚马逊和 Google Play](http://www.droid-life.com/2015/04/06/stars-wars-arrives-digitally-april-10-on-google-play-amazon-and-itunes/)T3。不管你是否已经购买了这个特定的收藏十几次，数字图书馆不会消失。但是值得向他们购买吗？ 
 

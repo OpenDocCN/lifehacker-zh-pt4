@@ -1,6 +1,6 @@
 # 让粉刷墙壁变得更容易的五个技巧
 
-> 原文:[https://life hacker . com/five-tips-to-make-painting-your-walls-easy-1632720076](https://lifehacker.com/five-tips-to-make-painting-your-walls-easier-1632720076)
+> 原文：<https://lifehacker.com/five-tips-to-make-painting-your-walls-easier-1632720076>
 
 将滚筒蘸上一些颜料，然后在墙上拍打似乎是一件简单的事情——在某种程度上，的确如此。但是有一些小技巧和工具可以让这项工作变得更快、更容易，并且大大减少头发上的颜料。
 

@@ -1,6 +1,6 @@
 # iOS 8 之后还有越狱的理由吗？
 
-> 原文:[https://gizmodo . com/IOs-8-1588158735](https://gizmodo.com/is-there-any-reason-to-jailbreak-after-ios-8-1588158735)
+> 原文：<https://gizmodo.com/is-there-any-reason-to-jailbreak-after-ios-8-1588158735>
 
 对于数百万人来说，拥有一部 iPhone 的全部意义在于其越狱 的 [能力；如果没有从苹果的围墙花园中解放出来的调整和修改，iPhone 就不会这么有趣。但是 iOS 8 之后，还会有什么意义吗？还是苹果已经让越狱过时了？](http://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-5771943)
 

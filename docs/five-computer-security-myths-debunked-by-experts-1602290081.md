@@ -1,6 +1,6 @@
 # 被专家揭穿的五大计算机安全神话
 
-> 原文:[https://life hacker . com/five-computer-security-myths-debuted-by-experts-1602290081](https://lifehacker.com/five-computer-security-myths-debunked-by-experts-1602290081)
+> 原文：<https://lifehacker.com/five-computer-security-myths-debunked-by-experts-1602290081>
 
 我们对帮助您保护您的计算机并不陌生，但是有一些计算机安全神话和故事一直在流传，尽管它们显然不是真的。我们和几个计算机安全专家坐下来区分事实和虚构。
 

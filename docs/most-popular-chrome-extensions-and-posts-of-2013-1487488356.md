@@ -1,6 +1,6 @@
 # 2013 年最受欢迎的 Chrome 扩展和帖子
 
-> 原文:[https://life hacker . com/most-popular-chrome-extensions-and-post-of-2013-1487488356](https://lifehacker.com/most-popular-chrome-extensions-and-posts-of-2013-1487488356)
+> 原文：<https://lifehacker.com/most-popular-chrome-extensions-and-posts-of-2013-1487488356>
 
 2013 年对谷歌 Chrome 浏览器和产品来说都是重要的一年，大量有用的应用程序和插件保护你的隐私，帮助你提高工作效率，定制网络，让它为你服务。让我们回顾一下 2013 年与 Chrome 相关的最热门帖子。
 

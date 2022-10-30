@@ -1,6 +1,6 @@
 # OnePlus One 评论:一款不可思议的智能手机
 
-> 原文:[https://gizmodo . com/oneplus-one-review-an-incredible-fantastic-smart phon-1598476240](https://gizmodo.com/oneplus-one-review-an-unbelievably-fantastic-smartphon-1598476240)
+> 原文：<https://gizmodo.com/oneplus-one-review-an-unbelievably-fantastic-smartphon-1598476240>
 
 也许你听说过一加手机。这是自封的“旗舰杀手”，旨在从中国扑过来，在自己的负担能力游戏中击败 Nexus 5。这是一个艰巨的任务，但一加 1 可以满足它。它是如此的便宜，如此的不可思议，以至于几乎令人难以置信。
 

@@ -1,6 +1,6 @@
 # 温约塞米蒂桌面
 
-> 原文:[https://lifehacker.com/the-winyosamite-desktop-1589538721](https://lifehacker.com/the-winyosamite-desktop-1589538721)
+> 原文：<https://lifehacker.com/the-winyosamite-desktop-1589538721>
 
 读者 [赛法利](http://isaifalii.kinja.com/) 上周看到了苹果公司推出的 OS X“约塞米蒂”，他想把至少一些外观带到他的 Windows 机器上。合适的壁纸和一个小雨量计就足够了。他是这样设置的。
 

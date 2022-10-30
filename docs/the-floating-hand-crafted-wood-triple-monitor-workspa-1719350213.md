@@ -1,6 +1,6 @@
 # 浮动手工木制三显示器工作空间
 
-> 原文:[https://life hacker . com/the-floating-hand-crafted-wood-triple-monitor-works pa-1719350213](https://lifehacker.com/the-floating-hand-crafted-wood-triple-monitor-workspa-1719350213)
+> 原文：<https://lifehacker.com/the-floating-hand-crafted-wood-triple-monitor-workspa-1719350213>
 
 你的桌子、书架和其他家具真的不需要腿，只要你能把它们栓在墙上。这就是这个节省空间的 DIY 工作空间的情况，它的墙上安装了木板。
 

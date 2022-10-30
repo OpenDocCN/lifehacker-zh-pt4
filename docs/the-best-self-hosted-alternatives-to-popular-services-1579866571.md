@@ -1,6 +1,6 @@
 # 流行服务的最佳自我托管替代方案
 
-> 原文:[https://life hacker . com/the-best-self-hosted-alternatives-to-popular-services-1579866571](https://lifehacker.com/the-best-self-hosted-alternatives-to-popular-services-1579866571)
+> 原文：<https://lifehacker.com/the-best-self-hosted-alternatives-to-popular-services-1579866571>
 
 我们大多数人使用 Gmail、Feedly 和 Instapaper 等服务来度过一天——但这意味着放弃隐私并锁定一项你无法控制的服务。在家里托管自己的服务曾经是书呆子的专利，但现在比以前更容易了。这里是你可以为你的日常需求提供的最好的服务。
 

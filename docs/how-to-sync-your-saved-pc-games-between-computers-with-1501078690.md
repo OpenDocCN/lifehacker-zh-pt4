@@ -1,6 +1,6 @@
 # 如何使用 Dropbox 在电脑之间同步您保存的电脑游戏
 
-> 原文:[https://life hacker . com/how-to-sync-your-saved-PC-games-with-1501078690](https://lifehacker.com/how-to-sync-your-saved-pc-games-between-computers-with-1501078690)
+> 原文：<https://lifehacker.com/how-to-sync-your-saved-pc-games-between-computers-with-1501078690>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-FPD5tCOQGDI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-FPD5tCOQGDI&start=0) 
 

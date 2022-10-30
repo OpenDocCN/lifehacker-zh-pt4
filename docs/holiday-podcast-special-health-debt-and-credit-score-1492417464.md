@@ -1,6 +1,6 @@
 # 假日播客专题:健康、债务和信用评分
 
-> 原文:[https://life hacker . com/holiday-podcast-special-health-debt-and-credit-score-1492417464](https://lifehacker.com/holiday-podcast-special-health-debt-and-credit-score-1492417464)
+> 原文：<https://lifehacker.com/holiday-podcast-special-health-debt-and-credit-score-1492417464>
 
 在本周的播客中，我们将与骨病医生兼 Examine.com[](http://examine.com/)[的主任斯潘塞·纳多斯基](https://twitter.com/DrNadolsky) 博士对话，回答你的健康问题。我们还与债务管理网站[【ReadyForZero.com](http://readyforzero.com)的首席执行官 [罗德·易卜拉希米](http://innovatebig.com/) 交谈，以解决各种个人财务问题，从信用评分到学生贷款。
 

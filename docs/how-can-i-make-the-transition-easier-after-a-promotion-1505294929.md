@@ -1,6 +1,6 @@
 # 升职后，我如何让过渡变得更容易？
 
-> 原文:[https://life hacker . com/how-can-I-make-the-transition-easy-after-a-promotion-1505294929](https://lifehacker.com/how-can-i-make-the-transition-easier-after-a-promotion-1505294929)
+> 原文：<https://lifehacker.com/how-can-i-make-the-transition-easier-after-a-promotion-1505294929>
 
 亲爱的 Lifehacker，
 我最近在公司被提升到一个更具管理性的职位，这很好——但我对这种转变有点紧张，尤其是因为我要管理我所有的前朋友和同事。对第一次做经理有什么建议吗？

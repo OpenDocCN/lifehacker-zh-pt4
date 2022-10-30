@@ -1,6 +1,6 @@
 # 安卓最佳漫画阅读器应用
 
-> 原文:[https://life hacker . com/the-best-comic-reader-app-for-Android-511597116](https://lifehacker.com/the-best-comic-reader-app-for-android-511597116)
+> 原文：<https://lifehacker.com/the-best-comic-reader-app-for-android-511597116>
 
 阅读漫画，尤其是在平板电脑上，是对明亮、生动的触摸屏 的一种令人愉快的使用。如果你是一个重度读者，并想带自己的文件，惊人的漫画读者是一个相对较新的一吨光滑的功能。
 

@@ -1,6 +1,6 @@
 # 最好的维基百科功能仍在测试阶段
 
-> 原文:[https://life hacker . com/the-best-Wikipedia-features-still-in-beta-1654944810](https://lifehacker.com/the-best-wikipedia-features-still-in-beta-1654944810)
+> 原文：<https://lifehacker.com/the-best-wikipedia-features-still-in-beta-1654944810>
 
 维基百科一直在幕后悄悄开发各种功能，作为其测试版项目 的一部分。如果你喜欢冒险，这里有一些方法可以让你在维基百科上做的更好。
 

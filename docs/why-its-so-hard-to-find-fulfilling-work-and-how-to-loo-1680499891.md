@@ -1,6 +1,6 @@
 # 为什么很难找到令人满意的工作(以及如何寻找)
 
-> 原文:[https://life hacker . com/why-its-so-hard-find-fulfilling-work-and-how-to-loo-1680499891](https://lifehacker.com/why-its-so-hard-to-find-fulfilling-work-and-how-to-loo-1680499891)
+> 原文：<https://lifehacker.com/why-its-so-hard-to-find-fulfilling-work-and-how-to-loo-1680499891>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-veriqDHLXsw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-veriqDHLXsw&start=0) 
 

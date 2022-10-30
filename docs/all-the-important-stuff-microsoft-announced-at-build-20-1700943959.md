@@ -1,6 +1,6 @@
 # 微软今天在 Build 2015 上宣布的所有重要内容
 
-> 原文:[https://life hacker . com/all-the-important-stuff-Microsoft-announced-at-build-20-1700943959](https://lifehacker.com/all-the-important-stuff-microsoft-announced-at-build-20-1700943959)
+> 原文：<https://lifehacker.com/all-the-important-stuff-microsoft-announced-at-build-20-1700943959>
 
 今天，微软举行了它的(大多很无聊！)Build 2015 上的开发者主题演讲。如果你不是开发人员，你的眼睛可能会在演示过程中被忽略，但是仍然有一些普通用户可能会感兴趣的很酷的特性。这是他们宣布的最好的消息。
 

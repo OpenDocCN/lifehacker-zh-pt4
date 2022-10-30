@@ -1,6 +1,6 @@
 # 家庭维修你完全可以自己处理
 
-> 原文:[https://life hacker . com/household-repairs-you-can-total-handle-you-self-1705921903](https://lifehacker.com/household-repairs-you-can-totally-handle-yourself-1705921903)
+> 原文：<https://lifehacker.com/household-repairs-you-can-totally-handle-yourself-1705921903>
 
 啊，拥有一所房子的乐趣:摇摇晃晃的门，卡住的窗户，干墙上的裂缝。这些项目很烦人，但是太容易被忽略而忽略掉，但是你可以在一个周末自己处理它们。这里有九种常见的家庭修理方法以及如何修理，无需经验。
 

@@ -1,6 +1,6 @@
 # 6+针对儿童的免费奖励计划(你可能不知道)
 
-> 原文:[https://life hacker . com/6-free-reward-programs-for-kids-that-you-may-not-k-1634045169](https://lifehacker.com/6-free-reward-programs-for-kids-which-you-might-not-k-1634045169)
+> 原文：<https://lifehacker.com/6-free-reward-programs-for-kids-which-you-might-not-k-1634045169>
 
 除了 [为孩子们举办的免费工作坊和活动](https://lifehacker.com/10-free-workshops-to-keep-kids-busy-this-summer-1596366258) ，孩子们还有很多机会通过奖励计划和俱乐部获得免费的东西。其中一些甚至不是专门面向孩子的，但孩子们仍然可以加入来积累奖励。谁不喜欢免费的东西？
 

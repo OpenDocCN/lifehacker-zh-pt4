@@ -1,6 +1,6 @@
 # 最好的桌面漫画书阅读器是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-desktop-comic-book-reader-1674579151](https://lifehacker.com/whats-the-best-desktop-comic-book-reader-1674579151)
+> 原文：<https://lifehacker.com/whats-the-best-desktop-comic-book-reader-1674579151>
 
 我们都喜欢纸质漫画，数字版本不必取代它们——但是如果你不想离开房子，或者你想为旅行装载一台笔记本电脑，一个好的桌面漫画阅读器就派上用场了。本周我们想知道你用哪些来跟上你最喜欢的发布。
 

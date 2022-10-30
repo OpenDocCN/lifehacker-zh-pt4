@@ -1,6 +1,6 @@
 # 赠送一个有条理的家
 
-> 原文:[https://life hacker . com/give-the-gift-of-a-organized-home-1668235423](https://lifehacker.com/give-the-gift-of-an-organized-home-1668235423)
+> 原文：<https://lifehacker.com/give-the-gift-of-an-organized-home-1668235423>
 
 你的家就是你的城堡，没有人喜欢杂乱无章的城堡。这里有一些最好的家庭礼物，你可以送给那些相信每样东西都有位置的人。
 

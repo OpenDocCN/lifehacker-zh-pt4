@@ -1,6 +1,6 @@
 # 用这些建筑壁纸在你的桌面上展示伟大的建筑
 
-> 原文:[https://life hacker . com/put-great-buildings-on-your desktop with these-architec-1566632590](https://lifehacker.com/put-great-buildings-on-your-desktop-with-these-architec-1566632590)
+> 原文：<https://lifehacker.com/put-great-buildings-on-your-desktop-with-these-architec-1566632590>
 
 建筑和其他人造结构可以是令人敬畏的设计杰作。用世界上最伟大的建筑装饰您的桌面。
 

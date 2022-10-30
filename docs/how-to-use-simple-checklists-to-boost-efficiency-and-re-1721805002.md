@@ -1,6 +1,6 @@
 # 如何使用简单的清单来提高效率和减少错误
 
-> 原文:[https://life hacker . com/how-to-use-simple-checklists-to-boost-efficiency-and-re-1721805002](https://lifehacker.com/how-to-use-simple-checklists-to-boost-efficiency-and-re-1721805002)
+> 原文：<https://lifehacker.com/how-to-use-simple-checklists-to-boost-efficiency-and-re-1721805002>
 
 当你有一份像医生或飞行员这样压力很大的工作时，你每天都面临着执行复杂的任务，而且成功率很高。当手头的任务如此艰巨时，这些专业人士是如何开始的呢？帮助他们管理工作的一个工具是简易清单。
 

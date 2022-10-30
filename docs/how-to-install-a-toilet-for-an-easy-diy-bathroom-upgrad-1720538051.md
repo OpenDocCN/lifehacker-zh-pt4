@@ -1,6 +1,6 @@
 # 如何安装马桶，轻松实现 DIY 浴室升级
 
-> 原文:[https://life hacker . com/how-to-install-a toilet-a-easy-DIY-battery-upgrad-1720538051](https://lifehacker.com/how-to-install-a-toilet-for-an-easy-diy-bathroom-upgrad-1720538051)
+> 原文：<https://lifehacker.com/how-to-install-a-toilet-for-an-easy-diy-bathroom-upgrad-1720538051>
 
 更换马桶听起来像是一个令人生畏的 DIY 项目，但只需几个简单的步骤，就可以在几个小时内安装一个新的宝座。
 

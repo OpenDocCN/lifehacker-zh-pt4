@@ -1,6 +1,6 @@
 # 2014 年最受欢迎的采访
 
-> 原文:[https://life hacker . com/2014 年最受欢迎的采访-1672300919](https://lifehacker.com/most-popular-interviews-of-2014-1672300919)
+> 原文：<https://lifehacker.com/most-popular-interviews-of-2014-1672300919>
 
 每周我们都很高兴地强调一些我们的生产力英雄，从公司首席执行官到艺术家和作家，他们成功地完成了比任何合理的人应该做的更多的事情。让我们回顾一下 2014 年最受欢迎的一些采访。
 

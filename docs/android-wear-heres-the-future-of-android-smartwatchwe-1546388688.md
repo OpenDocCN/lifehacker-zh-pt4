@@ -1,6 +1,6 @@
 # Android Wear:Android 智能手表的未来来了
 
-> 原文:[https://gizmodo . com/Android-wear-heres-the-future-of-Android-smartwatchwe-1546388688](https://gizmodo.com/android-wear-heres-the-future-of-android-smartwatchwe-1546388688)
+> 原文：<https://gizmodo.com/android-wear-heres-the-future-of-android-smartwatchwe-1546388688>
 
 谷歌刚刚宣布了一个名为 [Android Wear](http://officialandroid.blogspot.com/2014/03/sharing-whats-up-our-sleeve-android.html) 的新项目，顾名思义，这是专为可穿戴设备量身定制的谷歌操作系统的“一览式”变种。到目前为止，LG 和摩托罗拉已经发布了 Android Wear 智能手表，它们只是今年即将推出的一系列 Android 智能手表中的第一款。
 

@@ -1,6 +1,6 @@
 # 会损坏你家的脏点(以及如何清洁它们)
 
-> 原文:[https://life hacker . com/the-dirty-spots-that-can-damage-your-home and-how-to-c-1666421408](https://lifehacker.com/the-dirty-spots-that-can-damage-your-home-and-how-to-c-1666421408)
+> 原文：<https://lifehacker.com/the-dirty-spots-that-can-damage-your-home-and-how-to-c-1666421408>
 
 我们中的一些人是十足的邋遢鬼，而另一些人则是十足的洁癖者。但是，即使是表面上看起来最干净的房子，也可能在某个地方藏着一些灰尘和粘糊糊的东西，很多这些东西会损坏你的房子。这里有些东西你可能应该检查一下，并进行彻底的清洁。
 

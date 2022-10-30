@@ -1,6 +1,6 @@
 # 理性的争论真的能改变人的想法吗？
 
-> 原文:[https://life hacker . com/can-rational-arguments-actually-change-people-minds-1590008558](https://lifehacker.com/can-rational-arguments-actually-change-peoples-minds-1590008558)
+> 原文：<https://lifehacker.com/can-rational-arguments-actually-change-peoples-minds-1590008558>
 
 我们人类是不是不可理喻？理性的论点有任何力量来左右我们吗，或者它只是直觉、隐藏的动机和各种其他形式的偏见？答案并不简单，但我们毕竟不是无理性的生物。
 

@@ -1,6 +1,6 @@
 # 如何让在手机上浏览网页变得不那么糟糕
 
-> 原文:[https://life hacker . com/how-to-make-web-browsing-on-your-phone-suck-less-1551424231](https://lifehacker.com/how-to-make-web-browsing-on-your-phone-suck-less-1551424231)
+> 原文：<https://lifehacker.com/how-to-make-web-browsing-on-your-phone-suck-less-1551424231>
 
 无论屏幕有多大，软件有多有效，智能手机上的网页浏览都比不上电脑上的浏览。它永远不会完美，但可以好得多。以下是如何让在智能手机上浏览变得不那么糟糕的方法。
 

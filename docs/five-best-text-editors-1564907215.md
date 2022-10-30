@@ -1,6 +1,6 @@
 # 五个最佳文本编辑器
 
-> 原文:[https://lifehacker.com/five-best-text-editors-1564907215](https://lifehacker.com/five-best-text-editors-1564907215)
+> 原文：<https://lifehacker.com/five-best-text-editors-1564907215>
 
 无论您是开发人员还是作家，一个好的文本编辑器在任何计算机、任何操作系统上都是必备的。这个不起眼的文本编辑器非常适合管理代码，写下快速笔记，或者仅仅作为一个不受干扰的写作工具。本周，我们将根据你们的提名选出五位最佳选手。
 

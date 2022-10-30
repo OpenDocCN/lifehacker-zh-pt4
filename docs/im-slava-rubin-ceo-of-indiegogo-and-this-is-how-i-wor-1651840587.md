@@ -1,6 +1,6 @@
 # 我是斯拉瓦·鲁宾，Indiegogo 的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-slava-Rubin-indiegogo-and-this-is-how-I-wor-1651840587](https://lifehacker.com/im-slava-rubin-ceo-of-indiegogo-and-this-is-how-i-wor-1651840587)
+> 原文：<https://lifehacker.com/im-slava-rubin-ceo-of-indiegogo-and-this-is-how-i-wor-1651840587>
 
 在过去的几年里，众筹改变了业余爱好者和专业人士处理他们的激情项目的方式。从艺术和电影到原型技术产品，在像 [Indiegogo](http://www.indiegogo.com) 这样的网站上有生命的项目是无限的。
 

@@ -1,6 +1,6 @@
 # 如何最终击败你永无止境的积压未完成的游戏
 
-> 原文:[https://life hacker . com/how-to-finally-beat-the-unfinished-games-in-your-never 1691789842](https://lifehacker.com/how-to-finally-beat-the-unfinished-games-in-your-never-1691789842)
+> 原文：<https://lifehacker.com/how-to-finally-beat-the-unfinished-games-in-your-never-1691789842>
 
 在一个充斥着[廉价二手游戏](http://lifehacker.com/five-best-places-to-buy-used-games-and-consoles-1637048086) 的世界里，很容易积累大量游戏，感觉你永远都没有时间去玩。实际上是有时间的，但是你必须以正确的方式处理你的积压工作。下面是怎么做的。
 

@@ -1,6 +1,6 @@
 # 如何给自己一个职业调整
 
-> 原文:[https://life hacker . com/how-to-give-yourself-career-tune-up-1616639595](https://lifehacker.com/how-to-give-yourself-a-career-tune-up-1616639595)
+> 原文：<https://lifehacker.com/how-to-give-yourself-a-career-tune-up-1616639595>
 
 在每个人的职业生涯中，都有一个我们会松懈的时刻。我们没有投入到工作中，我们没有和推荐人保持联系，或者我们忘记更新我们的简历。以下是如何调整你的职业生涯，让你的职业生活顺利进行的方法。
 

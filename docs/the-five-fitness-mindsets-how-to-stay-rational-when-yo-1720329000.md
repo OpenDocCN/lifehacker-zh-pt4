@@ -1,6 +1,6 @@
 # 五种健身心态:当你气馁时如何保持理性
 
-> 原文:[https://life hacker . com/the-five-fitness-mindsets-how-to-stay-rational-when-yo-1720329000](https://lifehacker.com/the-five-fitness-mindsets-how-to-stay-rational-when-yo-1720329000)
+> 原文：<https://lifehacker.com/the-five-fitness-mindsets-how-to-stay-rational-when-yo-1720329000>
 
 我们喜欢认为我们是理性的，但我们不是。你做决定的能力受到一系列因素的影响，包括你的情绪状态。以下是如何利用这些感觉做出更好的决定，实现你的健身目标。
 

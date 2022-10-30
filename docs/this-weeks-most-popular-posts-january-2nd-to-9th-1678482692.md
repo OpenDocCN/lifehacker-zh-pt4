@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:1 月 2 日至 9 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-1 月 2 日至 9 日-1678482692](https://lifehacker.com/this-weeks-most-popular-posts-january-2nd-to-9th-1678482692)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-january-2nd-to-9th-1678482692>
 
 这一周我们 [攻克了减肥的实用性](https://lifehacker.com/exercise-vs-diet-which-is-more-important-for-weight-l-1677532039)[得到了一些免费的东西](http://twocents.lifehacker.com/what-do-people-buy-that-they-can-get-for-free-1677866139)[从宋飞](http://lifehacker.com/seinfeld-s-trick-for-small-talk-ask-questions-with-num-1661708641)[那里学到了一些闲聊的小技巧，还修理了自己的家](http://lifehacker.com/nine-of-the-easiest-diy-repairs-you-dont-need-a-profess-1677077555) 。这里回顾一下。
 

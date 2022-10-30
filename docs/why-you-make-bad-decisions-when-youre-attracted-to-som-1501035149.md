@@ -1,6 +1,6 @@
 # 为什么当你被某人吸引时会做出错误的决定
 
-> 原文:[https://life hacker . com/why-to-som-1501035149](https://lifehacker.com/why-you-make-bad-decisions-when-youre-attracted-to-som-1501035149)时做出错误决定
+> 原文：<https://lifehacker.com/why-you-make-bad-decisions-when-youre-attracted-to-som-1501035149>时做出错误决定
 
 和新人约会既有趣又刺激。这也可能导致即使是最理性、头脑冷静的人做出非常愚蠢的决定。不过，别担心。你的大脑应该做到这一点。算是吧。
 

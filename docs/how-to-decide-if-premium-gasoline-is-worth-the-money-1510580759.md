@@ -1,6 +1,6 @@
 # 如何判断优质汽油是否物有所值
 
-> 原文:[https://life hacker . com/how-to-decision-if-premium-汽油是否物有所值-1510580759](https://lifehacker.com/how-to-decide-if-premium-gasoline-is-worth-the-money-1510580759)
+> 原文：<https://lifehacker.com/how-to-decide-if-premium-gasoline-is-worth-the-money-1510580759>
 
 你正站在加油站。有多种燃料可供选择:标有 87 辛烷值的低成本燃料，也含有 10%的乙醇；价格为 87 但比乙醇汽油更贵的中等价格汽油；以及 91 辛烷值的优质燃料。哪种方式能让你获得最高的里程数？
 

@@ -1,6 +1,6 @@
 # 如何对付一个经常东拉西扯的人
 
-> 原文:[https://life hacker . com/how-to-deal-someone-the-continuously-rambles-1677630626](https://lifehacker.com/how-to-deal-with-someone-who-constantly-rambles-1677630626)
+> 原文：<https://lifehacker.com/how-to-deal-with-someone-who-constantly-rambles-1677630626>
 
 一次好的谈话是关于来回的；双方都在倾听和回应。然而，如果你和一个喜欢喋喋不休的人在一起，这种对话就会变成独白。这里有一些对付喋喋不休的凯西或话匣子先生的小窍门。
 

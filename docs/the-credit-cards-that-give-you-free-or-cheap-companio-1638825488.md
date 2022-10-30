@@ -1,6 +1,6 @@
 # 给你免费(或便宜)机票的信用卡
 
-> 原文:[https://life hacker . com/the-credit-cards-the-give-you-free-or-price-companio-1638825488](https://lifehacker.com/the-credit-cards-that-give-you-free-or-cheap-companio-1638825488)
+> 原文：<https://lifehacker.com/the-credit-cards-that-give-you-free-or-cheap-companio-1638825488>
 
 你可能已经熟悉典型的 [信用卡奖励](https://twocents.lifehacker.com/the-best-credit-cards-for-earning-rewards-1615998836) 、返现或 [旅行里程](http://twocents.lifehacker.com/how-to-pick-and-manage-credit-cards-for-the-best-trav-1612445323) 或其他购物。一个不太受欢迎(但可能非常有价值)的好处是:为同行的人提供免费或大幅折扣的机票。这项福利每年可以为你节省数百美元。
 

@@ -1,6 +1,6 @@
 # 安卓最佳摄影应用:2014 版
 
-> 原文:[https://life hacker . com/the-best-photography-apps-for-Android-2014-edition-1497507095](https://lifehacker.com/the-best-photography-apps-for-android-2014-edition-1497507095)
+> 原文：<https://lifehacker.com/the-best-photography-apps-for-android-2014-edition-1497507095>
 
 你的 Android 设备中的摄像头可以从出色到糟糕，这取决于你的手机型号，甚至你运行的 Android 版本。幸运的是，有大量的应用程序可以帮助你充分利用你的相机，不管它是好是坏，甚至可以帮助你拍摄、编辑和分享更好的照片。这里有一些最好的。
 

@@ -1,6 +1,6 @@
 # 我应该如何和配偶谈论我们不同的理财习惯？
 
-> 原文:[https://life hacker . com/how-should-I-talk-to-my-slave-our-different-fina-1679784629](https://lifehacker.com/how-should-i-talk-to-my-spouse-about-our-different-fina-1679784629)
+> 原文：<https://lifehacker.com/how-should-i-talk-to-my-spouse-about-our-different-fina-1679784629>
 
 亲爱的两分，我没有债务，并且遵循严格的预算。我妻子有学生贷款债务，挣得比我少，而且倾向于挥霍。我想合并财务，一起管理我们的钱，但我想我必须解决我们的分歧。我该如何以一种建设性的方式向她提出这个问题，从而影响改变？
 

@@ -1,6 +1,6 @@
 # 自行车背包
 
-> 原文:[https://life hacker . com/the-bicycle-backpacking-bag-1717500264](https://lifehacker.com/the-bicycle-backpacking-bag-1717500264)
+> 原文：<https://lifehacker.com/the-bicycle-backpacking-bag-1717500264>
 
 骑自行车进行背包旅行需要一套特殊的装备。洛根分享了他在北卡罗来纳阿巴拉契亚山脉为期五天的旅行装备清单。
 

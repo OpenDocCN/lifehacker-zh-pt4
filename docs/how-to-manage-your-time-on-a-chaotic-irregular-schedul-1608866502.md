@@ -1,6 +1,6 @@
 # 如何在混乱无序的时间表上管理你的时间
 
-> 原文:[https://life hacker . com/how-to-manage-your-time-on-a-chaos-regular-scheduler-1608866502](https://lifehacker.com/how-to-manage-your-time-on-a-chaotic-irregular-schedul-1608866502)
+> 原文：<https://lifehacker.com/how-to-manage-your-time-on-a-chaotic-irregular-schedul-1608866502>
 
 不是每个人都朝九晚五地工作。当你的时间表放不进整洁的小盒子里时，你可能需要一些特殊的技能来让一切井然有序。这里有一些策略可以让你保持精力充沛，并保持一点控制力。
 

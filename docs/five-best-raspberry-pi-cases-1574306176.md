@@ -1,6 +1,6 @@
 # 五个最好的覆盆子酱案例
 
-> 原文:[https://life hacker . com/five-best-raspberry-pi-cases-1574306176](https://lifehacker.com/five-best-raspberry-pi-cases-1574306176)
+> 原文：<https://lifehacker.com/five-best-raspberry-pi-cases-1574306176>
 
 如果你有一个覆盆子酱，并且有很大的计划，你首先需要的是一个盒子。有数以吨计的选择，但有些提供耐用性，端口访问，易于访问的董事会，和风格。本周我们将根据你们的提名选出五位最佳选手。
 

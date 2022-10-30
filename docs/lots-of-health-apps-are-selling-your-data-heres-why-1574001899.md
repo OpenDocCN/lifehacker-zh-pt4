@@ -1,6 +1,6 @@
 # 很多健康应用出售你的数据。原因如下
 
-> 原文:[https://life hacker . com/lots-of-health-apps-is-selling-your-data-heres-why-1574001899](https://lifehacker.com/lots-of-health-apps-are-selling-your-data-heres-why-1574001899)
+> 原文：<https://lifehacker.com/lots-of-health-apps-are-selling-your-data-heres-why-1574001899>
 
 最近，出现了一系列报告，显示健身应用程序如何记录和出售你的数据给广告公司、城市规划者和其他人。就其本质而言，这些应用程序拥有大量关于你的敏感个人数据，你可能不想让这些数据公之于众。我们来看看是怎么回事。
 

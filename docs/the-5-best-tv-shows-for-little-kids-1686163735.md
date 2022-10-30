@@ -1,6 +1,6 @@
 # 5 个最适合小孩子的电视节目
 
-> 原文:[https://kotaku . com/the-5-best-TV-shows-for-little-kids-1686163735](https://kotaku.com/the-5-best-tv-shows-for-little-kids-1686163735)
+> 原文：<https://kotaku.com/the-5-best-tv-shows-for-little-kids-1686163735>
 
 作为一个小孩的父母，最糟糕的事情之一就是电视，我这里说的是 2 到 5 岁的小孩。绿色大便，不眠之夜，食物随地吐痰，所有这些事情都是可控的，但他们开始看无聊的电视，因为他们发展了微小的，无用的小大脑？是*最差的*。
 

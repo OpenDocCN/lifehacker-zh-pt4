@@ -1,6 +1,6 @@
 # 去问 Nerdlove 博士:我无法忘记和已婚老板的恋情
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-can-get-over-the-affair-with-my-mar-1573528327](https://kotaku.com/ask-dr-nerdlove-i-cant-get-over-an-affair-with-my-mar-1573528327)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-cant-get-over-an-affair-with-my-mar-1573528327>
 
 你好，互联网！欢迎来到 [询问 NerdLove 博士](http://kotaku.com/askdrnerdlove) ，这是唯一一个玩家分数超过 9000 的约会建议专栏。
 

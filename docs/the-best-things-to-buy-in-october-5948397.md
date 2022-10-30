@@ -1,6 +1,6 @@
 # 十月最好买的东西
 
-> 原文:[https://life hacker . com/the-best-things-to-buy-in-10-5948397](https://lifehacker.com/the-best-things-to-buy-in-october-5948397)
+> 原文：<https://lifehacker.com/the-best-things-to-buy-in-october-5948397>
 
 这可能只是秋天的开始，但假期交易已经开始，这意味着你可以在 10 月份抓住各种交易。以下是这个月最值得买的东西。
 

@@ -1,6 +1,6 @@
 # 秋天灰色的主屏幕
 
-> 原文:[https://life hacker . com/the-autumn-grey-home-screen-1712372944](https://lifehacker.com/the-autumn-grey-home-screen-1712372944)
+> 原文：<https://lifehacker.com/the-autumn-grey-home-screen-1712372944>
 
 现在是仲夏，这意味着你可能会因为查看邮件而汗流浃背。你知道什么感觉会很棒吗？秋天。秋天的岩石。在我们学会加速时间或控制天气之前，这个受秋天启发的主屏幕将不得不这样做。
 

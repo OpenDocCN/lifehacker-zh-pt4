@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:5 月 23 日至 30 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-may-23-to-30-1583790083](https://lifehacker.com/this-weeks-most-popular-posts-may-23rd-to-30th-1583790083)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-may-23rd-to-30th-1583790083>
 
 本周我们 [了解了人们在我们的 LinkedIn 个人资料上真正看到的东西](https://lifehacker.com/how-recruiters-really-look-at-your-linkedin-profile-and-1580589303)[做了六种酱料的无尽大餐](http://lifehacker.com/six-more-sauces-everyone-should-learn-how-to-make-1580465771)[欢呼第三方应用的荣耀](http://lifehacker.com/third-party-apps-that-are-better-than-the-official-coun-1582242852)[赢得了一些争论](http://lifehacker.com/win-an-argument-by-asking-the-other-person-to-outline-a-1582077330) 。这里回顾一下。
 

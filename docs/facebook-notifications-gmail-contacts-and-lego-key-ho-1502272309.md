@@ -1,6 +1,6 @@
 # 脸书通知、Gmail 联系人和乐高钥匙扣
 
-> 原文:[https://life hacker . com/Facebook-notifications-Gmail-contacts-and-Lego-key-ho-1502272309](https://lifehacker.com/facebook-notifications-gmail-contacts-and-lego-key-ho-1502272309)
+> 原文：<https://lifehacker.com/facebook-notifications-gmail-contacts-and-lego-key-ho-1502272309>
 
 读者们提供了通过 RSS 获得页面脸书通知、删除不想要的 Gmail 联系人以及用乐高组装 DIY 钥匙扣的最佳技巧。
 

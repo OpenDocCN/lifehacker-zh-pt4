@@ -1,6 +1,6 @@
 # 当你碰上头脑风暴的砖墙时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-what-you-hit-a-branch-brick-wall-1695123115](https://lifehacker.com/what-to-do-when-you-hit-a-brainstorming-brick-wall-1695123115)
+> 原文：<https://lifehacker.com/what-to-do-when-you-hit-a-brainstorming-brick-wall-1695123115>
 
 当一个伟大的想法或解决方案出现的时候，你会感觉像是有魔法一样——就像是被某个神圣的存在完整地传递给了你。但是通常最终发生的事情恰恰相反——我们在一个问题上挣扎和停滞不前，渴望那些神奇的突破之一能够实现。
 

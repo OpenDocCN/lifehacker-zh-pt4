@@ -1,6 +1,6 @@
 # 免费音乐摊牌:什么 0 美元就能让你享受到最好的流媒体服务
 
-> 原文:[https://life hacker . com/free-music-down-what-o-get-you-the-best-strea-1713623745](https://lifehacker.com/free-music-showdown-what-0-gets-you-on-the-best-strea-1713623745)
+> 原文：<https://lifehacker.com/free-music-showdown-what-0-gets-you-on-the-best-strea-1713623745>
 
 令泰勒·斯威夫特懊恼的是，音乐流媒体订阅现在越来越便宜了。既然谷歌已经加入了免费流媒体服务的行列，我们决定看看哪些提供了最好的功能。以下是主要区别，以及哪种服务最适合哪种类型的用户。
 

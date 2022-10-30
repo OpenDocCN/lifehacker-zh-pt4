@@ -1,6 +1,6 @@
 # 复古计算器主屏幕
 
-> 原文:[https://life hacker . com/the-retro-calculator-home-screen-1707539406](https://lifehacker.com/the-retro-calculator-home-screen-1707539406)
+> 原文：<https://lifehacker.com/the-retro-calculator-home-screen-1707539406>
 
 在过去的古代，计算器是带按钮的物理设备。现在它们已经被你口袋里的手机取代了。如果你怀念那些日子，但仍然喜欢你的手机，这个计算器主屏幕将带你回到过去。
 

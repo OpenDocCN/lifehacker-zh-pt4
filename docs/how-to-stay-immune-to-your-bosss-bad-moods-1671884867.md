@@ -1,6 +1,6 @@
 # 如何不受老板坏情绪的影响
 
-> 原文:[https://life hacker . com/how-to-stay-immune-to-your boss-bad-moods-1671884867](https://lifehacker.com/how-to-stay-immune-to-your-bosss-bad-moods-1671884867)
+> 原文：<https://lifehacker.com/how-to-stay-immune-to-your-bosss-bad-moods-1671884867>
 
 经理们经常处于巨大的压力之下，这种压力会让他们表现得不愉快。当然，有些人可以管理压力，但有些老板常年情绪不佳，这会影响你的工作方式。不管你老板的心情如何，以下是如何继续你的一天。
 

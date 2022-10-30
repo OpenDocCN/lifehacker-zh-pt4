@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:2 月 27 日至 3 月 6 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-2 月 27 日至 3 月 6 日-1689830954](https://lifehacker.com/this-weeks-most-popular-posts-february-27th-to-march-6-1689830954)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-february-27th-to-march-6-1689830954>
 
 这周我们 [学了一些基本的卫生知识](https://lifehacker.com/an-adults-guide-to-hygiene-for-those-who-werent-taught-1689160558)[挑了一些纹身](http://lifehacker.com/carefully-decide-where-to-get-a-tattoo-with-this-pain-c-1689492474)[为退休储蓄](http://lifehacker.com/how-much-of-your-income-to-save-based-on-when-you-want-1689402509)[讲了一些好笑话](http://lifehacker.com/five-common-mistakes-people-make-when-telling-jokes-1688286046) 。这里回顾一下。
 

@@ -1,6 +1,6 @@
 # 最好的移动热点是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-mobile-hotspot-1521766880](https://lifehacker.com/whats-the-best-mobile-hotspot-1521766880)
+> 原文：<https://lifehacker.com/whats-the-best-mobile-hotspot-1521766880>
 
 如果您在旅途中需要高速互联网接入，或者当您的有线电视或其他宽带互联网中断时，您需要一个备用选项，3G 或 4G 移动热点是您的最佳选择。本周，我们想知道哪些是你认为性价比最高的，覆盖面广，价格灵活，可用性强。
 

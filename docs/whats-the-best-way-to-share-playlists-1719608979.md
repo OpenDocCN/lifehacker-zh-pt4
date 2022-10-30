@@ -1,6 +1,6 @@
 # 共享播放列表的最佳方式是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-way-to-share-playlists-1719608979](https://lifehacker.com/whats-the-best-way-to-share-playlists-1719608979)
+> 原文：<https://lifehacker.com/whats-the-best-way-to-share-playlists-1719608979>
 
 无论你是专门使用一款应用程序在派对上与他人分享你最喜爱的音乐，还是只是在你已经使用并喜爱的音乐服务中分享播放列表，本周我们都渴望听到你如何与朋友分享你的音乐。
 

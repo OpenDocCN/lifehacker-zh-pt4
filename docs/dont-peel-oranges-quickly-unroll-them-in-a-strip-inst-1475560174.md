@@ -1,6 +1,6 @@
 # 不要剥橘子。而是快速地将它们展开成一条
 
-> 原文:[https://life hacker . com/don-peel-oranges-quickly-unroll-them-in-a-strip-inst-1475560174](https://lifehacker.com/dont-peel-oranges-quickly-unroll-them-in-a-strip-inst-1475560174)
+> 原文：<https://lifehacker.com/dont-peel-oranges-quickly-unroll-them-in-a-strip-inst-1475560174>
 
 学会这一招后，你就再也不需要剥橘子了，手也不会脏了。
 

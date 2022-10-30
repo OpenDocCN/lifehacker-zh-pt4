@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名社会工作者我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-social-worker-1718632898](https://lifehacker.com/career-spotlight-what-i-do-as-a-social-worker-1718632898)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-social-worker-1718632898>
 
 我们都喜欢认为我们尽我们所能让世界变得更美好，并帮助有需要的人，但有些人选择以此为职业。社会工作者不知疲倦地帮助那些需要帮助的人，没有太多的魅力或荣耀。
 

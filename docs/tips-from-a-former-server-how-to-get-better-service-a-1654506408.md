@@ -1,6 +1,6 @@
 # 来自前服务员的建议:如何在餐馆获得更好的服务
 
-> 原文:[https://life hacker . com/tips-from-a-former-server-how-to-get-better-service-a-1654506408](https://lifehacker.com/tips-from-a-former-server-how-to-get-better-service-a-1654506408)
+> 原文：<https://lifehacker.com/tips-from-a-former-server-how-to-get-better-service-a-1654506408>
 
 我们都是糟糕的餐厅服务的受害者——感觉被忽视，或者糟糕的服务态度——但是如果这经常发生在你身上，也许你可以做一些事情来改善你的体验。从以前的服务员那里，这里有一些获得更好餐馆服务的内部建议。
 

@@ -1,6 +1,6 @@
 # 根据“肮脏的一打”清单，你为什么不应该购买有机食品[2019 年更新]
 
-> 原文:[https://life hacker . com/why-you-should-not-buy-on-the-dirty-十二-1689190822](https://lifehacker.com/why-you-shouldnt-buy-organic-based-on-the-dirty-dozen-1689190822)
+> 原文：<https://lifehacker.com/why-you-shouldnt-buy-organic-based-on-the-dirty-dozen-1689190822>
 
 S 对有机羽衣甘蓝着迷是因为它高居[2019 年“十大脏菜”名单](https://www.ewg.org/foodnews/dirty-dozen.php) 农药使用最多的农产品？你可能要重新考虑一下。事实证明“d irty”食品相当干净，而且有机食品也不是没有杀虫剂。
 

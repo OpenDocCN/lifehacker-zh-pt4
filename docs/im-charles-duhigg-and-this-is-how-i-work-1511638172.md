@@ -1,6 +1,6 @@
 # 我是查尔斯·杜希格，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Charles-du higg-and-this-is-how-I-work-1511638172](https://lifehacker.com/im-charles-duhigg-and-this-is-how-i-work-1511638172)
+> 原文：<https://lifehacker.com/im-charles-duhigg-and-this-is-how-i-work-1511638172>
 
 你可能会说查尔斯·杜希格是个有习惯的人，他可能会说我们都是。他的书*《习惯的力量*》研究了为什么我们容易形成行为模式——包括好的和坏的——以及我们如何利用这个过程来掌控生活和工作。我们采访了《纽约时报》的记者*来讨论他自己的一些习惯。*
 

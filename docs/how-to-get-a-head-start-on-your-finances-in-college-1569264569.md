@@ -1,6 +1,6 @@
 # 如何在大学财务上领先一步
 
-> 原文:[https://life hacker . com/how-to-get-a-head-start-on-your financies-1569264569](https://lifehacker.com/how-to-get-a-head-start-on-your-finances-in-college-1569264569)
+> 原文：<https://lifehacker.com/how-to-get-a-head-start-on-your-finances-in-college-1569264569>
 
 在大学里，身无分文是很常见的经历。你现在可能没有多少钱，但为毕业后的生活做好财务准备是值得的。这里有一些方法可以让你在毕业前在财务上有一个好的开端。
 

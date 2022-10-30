@@ -1,6 +1,6 @@
 # 纸巾和干手器:哪个更卫生？
 
-> 原文:[https://life hacker . com/paper-towels-vs-hand-dryers-and-the-is-actually-mor-1637804135](https://lifehacker.com/paper-towels-vs-hand-dryers-and-which-is-actually-mor-1637804135)
+> 原文：<https://lifehacker.com/paper-towels-vs-hand-dryers-and-which-is-actually-mor-1637804135>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-2g4fWaegoDk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-2g4fWaegoDk&start=0) 
 

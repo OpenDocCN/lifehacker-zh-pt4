@@ -1,6 +1,6 @@
 # 建筑师富有戏剧性和艺术性的工作空间
 
-> 原文:[https://life hacker . com/the-architects-dramatic-artistic-workspace-1630157878](https://lifehacker.com/the-architects-dramatic-artistic-workspace-1630157878)
+> 原文：<https://lifehacker.com/the-architects-dramatic-artistic-workspace-1630157878>
 
 在桌子上，有通常的电脑，书籍，一些装饰性的人物...和一碗黄瓜。
 

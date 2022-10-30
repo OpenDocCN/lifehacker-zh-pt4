@@ -1,6 +1,6 @@
 # 我想写安卓应用。我从哪里开始？
 
-> 原文:[https://life hacker . com/I-want-to-write-Android-apps-where-do-I-start-1643818268](https://lifehacker.com/i-want-to-write-android-apps-where-do-i-start-1643818268)
+> 原文：<https://lifehacker.com/i-want-to-write-android-apps-where-do-i-start-1643818268>
 
 亲爱的 Lifehacker，
 我有一些编码方面的背景，但之前从未接触过 Android 开发。我想要开始，但是我不完全确定我需要什么。我本身不需要“学习编码”，但是我可以使用一些关于从哪里开始使用 Android 的指导。你能帮忙吗？

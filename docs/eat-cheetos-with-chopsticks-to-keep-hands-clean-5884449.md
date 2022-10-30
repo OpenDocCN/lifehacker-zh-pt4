@@ -1,6 +1,6 @@
 # 用筷子吃奇多，保持双手干净
 
-> 原文:[https://life hacker . com/eat-Cheetos-with-choices-to-keep-hands-clean-5884449](https://lifehacker.com/eat-cheetos-with-chopsticks-to-keep-hands-clean-5884449)
+> 原文：<https://lifehacker.com/eat-cheetos-with-chopsticks-to-keep-hands-clean-5884449>
 
 Webcomic Wondermark 提供了一个吃奇多而不会让手指沾上“橙色粪便”的绝妙方法——用筷子！简洁中的精彩！
 

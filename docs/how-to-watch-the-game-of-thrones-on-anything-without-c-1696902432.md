@@ -1,6 +1,6 @@
 # 如何在任何设备上观看《权力的游戏》,没有有线电视
 
-> 原文:[https://gizmodo . com/how-to-watch-the game-of-thrones-on-what-without-c-1696902432](https://gizmodo.com/how-to-watch-the-game-of-thrones-on-anything-without-c-1696902432)
+> 原文：<https://gizmodo.com/how-to-watch-the-game-of-thrones-on-anything-without-c-1696902432>
 
 [星期天，星期天，星期天！](https://www.youtube.com/watch?v=jDYzidMqq4o) 那是*《权力的游戏》*回来的时候，而*你*需要找个地方看。但是等等！如果你没有有线电视*或*HBO 套餐怎么办？幸运的是，你不再需要它了——如今，你可以合法地通过互联网在几乎任何设备上播放 HBO。以下是方法。
 

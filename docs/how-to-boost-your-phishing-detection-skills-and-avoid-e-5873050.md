@@ -1,6 +1,6 @@
 # 如何提高您的网络钓鱼检测技能并避免电子邮件诈骗
 
-> 原文:[https://life hacker . com/how-to-boost-your-phishing-detection-skills-and-avoid-e-5873050](https://lifehacker.com/how-to-boost-your-phishing-detection-skills-and-avoid-e-5873050)
+> 原文：<https://lifehacker.com/how-to-boost-your-phishing-detection-skills-and-avoid-e-5873050>
 
 [网络钓鱼](http://en.wikipedia.org/wiki/Phishing) 诈骗——那些通过伪装成合法公司试图让你进入 [提供私人信息](https://lifehacker.com/the-complete-guide-to-avoiding-online-scams-for-your-l-5420356) 的诈骗——可能很容易被怀疑的眼光发现，但当你放松警惕一秒钟时，有些诈骗就能轻易抓住你。以下是如何提高您的网络钓鱼检测技能，并在您注意力不集中时保护自己的方法。
 

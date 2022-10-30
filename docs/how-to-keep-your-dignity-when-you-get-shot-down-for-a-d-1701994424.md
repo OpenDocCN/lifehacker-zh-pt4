@@ -1,6 +1,6 @@
 # 约会被击落如何保持尊严
 
-> 原文:[https://life hacker . com/how-to-keep your dignity-when-you-get-down-for-a-d-1701994424](https://lifehacker.com/how-to-keep-your-dignity-when-you-get-shot-down-for-a-d-1701994424)
+> 原文：<https://lifehacker.com/how-to-keep-your-dignity-when-you-get-shot-down-for-a-d-1701994424>
 
 当你终于鼓起勇气邀请一个朋友出去约会，而他们拒绝的时候，伤害可能不止一个方面。以下是你如何不仅能应对被拒绝的痛苦，还能保持冷静，这样你就不会破坏你们未来的关系。
 

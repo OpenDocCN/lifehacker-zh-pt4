@@ -1,6 +1,6 @@
 # 增强还是噱头？电视的高级图像设置，解释
 
-> 原文:[https://life hacker . com/enhancement-or-hedge-your-TVs-advanced-picture-setti-1682343703](https://lifehacker.com/enhancement-or-gimmick-your-tvs-advanced-picture-setti-1682343703)
+> 原文：<https://lifehacker.com/enhancement-or-gimmick-your-tvs-advanced-picture-setti-1682343703>
 
 高清电视配有各种旨在“改善”画面的高级设置，但大多数只是营销噱头。事实上，你的照片去掉一些会更好看。这里有一些你可以在高级菜单中找到的设置，以及你应该如何使用它们。
 

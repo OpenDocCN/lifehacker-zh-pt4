@@ -1,6 +1,6 @@
 # 黑金屠夫街区工作区
 
-> 原文:[https://life hacker . com/the-black-and-gold-butcher-block-workspace-1720636217](https://lifehacker.com/the-black-and-gold-butcher-block-workspace-1720636217)
+> 原文：<https://lifehacker.com/the-black-and-gold-butcher-block-workspace-1720636217>
 
 许多最引人注目的工作空间都围绕着一张定制的独特的桌子，就像上面这张今天的特色工作空间。
 

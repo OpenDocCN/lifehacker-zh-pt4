@@ -1,6 +1,6 @@
 # 我是埃里克·迪门森，这是 PadMapper 背后的故事
 
-> 原文:[https://life hacker . com/im-Eric-dement hon-and-this-is-the-story-behind-pad map-1472209726](https://lifehacker.com/im-eric-dementhon-and-this-is-the-story-behind-padmap-1472209726)
+> 原文：<https://lifehacker.com/im-eric-dementhon-and-this-is-the-story-behind-padmap-1472209726>
 
 PadMapper 一直是我们最喜欢的 找房子工具之一。这是非常有用的谷歌地图界面，多种搜索过滤器，以及新添加的公共交通和停车场覆盖图，使其成为开始租赁搜索的最佳地点之一。当 Craigslist 去年取消了 PadMapper 对其列表的访问权时，创建者 Eric DeMenthon[用一个后门 API 把它们带回了](http://blog.padmapper.com/2012/07/09/bringing-craigslist-back/) 。我们采访了 Eric，讨论了他最大的挑战、最大的灵感等等。
 

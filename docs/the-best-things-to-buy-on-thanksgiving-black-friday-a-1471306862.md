@@ -1,6 +1,6 @@
 # 感恩节、黑色星期五和网络星期一的区别
 
-> 原文:[https://life hacker . com/the-best-things-to-buy-on-thanksgiving-black-Friday-a-1471306862](https://lifehacker.com/the-best-things-to-buy-on-thanksgiving-black-friday-a-1471306862)
+> 原文：<https://lifehacker.com/the-best-things-to-buy-on-thanksgiving-black-friday-a-1471306862>
 
 有时候，在黑色星期五购物就像在一场有奖比赛中下注。你把所有的钱都花在了一双很棒的鞋子上，结果却看到它们的价格在网络星期一的一次井喷中被压低了。但是，一个购物者如何知道哪种未经广告的、成功的销售即将到来呢？这个季节，每个人都在思考这样一个问题:感恩节、黑色星期五或网络星期一——或者这两个节日之间的时间——是否是购买他们想要的特定商品的最佳时机。
 

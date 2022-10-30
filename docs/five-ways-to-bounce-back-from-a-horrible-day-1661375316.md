@@ -1,6 +1,6 @@
 # 从糟糕的一天中恢复过来的五种方法
 
-> 原文:[https://life hacker . com/five-ways-to-bounce-back-from-a-drugly-day-1661375316](https://lifehacker.com/five-ways-to-bounce-back-from-a-horrible-day-1661375316)
+> 原文：<https://lifehacker.com/five-ways-to-bounce-back-from-a-horrible-day-1661375316>
 
 糟糕的日子发生在我们每个人身上。即使是一个看似无害的早上起床时睡眼惺忪也会让你感到恐惧。无论你尝试多少快乐的窍门或积极的咒语来让它变得更好，都很难改变你的牢骚和杯子半空的态度。
 

@@ -1,6 +1,6 @@
 # 为什么早上起床这么难？
 
-> 原文:[https://gizmodo . com/why-it ' s so impossible-up bed in-1348209324](https://gizmodo.com/why-is-it-so-impossible-to-get-out-of-bed-in-the-mornin-1348209324)
+> 原文：<https://gizmodo.com/why-is-it-so-impossible-to-get-out-of-bed-in-the-mornin-1348209324>
 
 仅仅是懒惰，还是每天挣扎着唤醒自己源于更严重的事情？
 

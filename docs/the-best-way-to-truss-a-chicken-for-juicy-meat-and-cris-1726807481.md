@@ -1,6 +1,6 @@
 # 为了多汁的肉和酥脆的皮，最好的方法是把鸡捆起来
 
-> 原文:[https://life hacker . com/the-best-way-to-truss-a-chicken for-juicy-meat-and-cris-1726807481](https://lifehacker.com/the-best-way-to-truss-a-chicken-for-juicy-meat-and-cris-1726807481)
+> 原文：<https://lifehacker.com/the-best-way-to-truss-a-chicken-for-juicy-meat-and-cris-1726807481>
 
 在厨房小贴士和技巧的世界里，似乎有永无止境的“你做错了”类型的文章。我看到各种网站和视频都宣称*他们用厨房麻绳缠绕小鸟的*方法是*确保美味多汁、烹饪均匀的*方法，但很难知道如何(或由谁)缠绕。
 

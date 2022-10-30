@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:我怎么约 GameStop 女孩？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-ask-out-the-gamestop-girl-1543136621](https://kotaku.com/ask-dr-nerdlove-how-do-i-ask-out-the-gamestop-girl-1543136621)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-ask-out-the-gamestop-girl-1543136621>
 
 怎么了， *Kotaku* ？欢迎来到最新一期的 Ask Dr. NerdLove，这是唯一一个知道当你的王子或公主不在另一个城堡，也不回你电话时该怎么做的约会建议专栏。
 

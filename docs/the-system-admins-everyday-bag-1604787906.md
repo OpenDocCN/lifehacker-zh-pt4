@@ -1,6 +1,6 @@
 # 系统管理员的日常包
 
-> 原文:[https://life hacker . com/the-system-admins-daily-bag-1604787906](https://lifehacker.com/the-system-admins-everyday-bag-1604787906)
+> 原文：<https://lifehacker.com/the-system-admins-everyday-bag-1604787906>
 
 作为一名系统管理员和程序员意味着你需要为突发奇想的任何事情做好准备。读者 Scott Buffington 与我们分享了他的包，其中包括他工作(和生活)所需的一切。
 

@@ -1,6 +1,6 @@
 # 如何在不放弃 PC 的情况下继续使用 Windows XP
 
-> 原文:[https://life hacker . com/how-to-move-on-after-windows-XP-without-give-your-1556573928](https://lifehacker.com/how-to-move-on-after-windows-xp-without-giving-up-your-1556573928)
+> 原文：<https://lifehacker.com/how-to-move-on-after-windows-xp-without-giving-up-your-1556573928>
 
 4 月 8 日，微软将正式切断对 Windows XP 的支持、服务和安全更新。这是一个漫长的时刻，但取决于你的立场，这要么是逾期或绝对的世界末日。如果你刚从 Windows XP 世界出来，需要帮助你熟悉环境，这里有一些提示可以帮助你熟悉环境。
 

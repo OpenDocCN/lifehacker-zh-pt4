@@ -1,6 +1,6 @@
 # 不上班呆在家里的理由
 
-> 原文:[https://gizmodo . com/the-case-for-stay-home-from-work-1639473842](https://gizmodo.com/the-case-for-staying-home-from-work-1639473842)
+> 原文：<https://gizmodo.com/the-case-for-staying-home-from-work-1639473842>
 
 我们都经历过。尽管身体不适，我们还是去上班。这是一个如此大的问题，以至于它有了一个名字——“出勤主义”——它花费了公司数十亿美元。这就是为什么你生病的时候应该呆在家里，为什么这对你的老板最有利。
 

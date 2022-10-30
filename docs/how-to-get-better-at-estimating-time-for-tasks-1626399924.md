@@ -1,6 +1,6 @@
 # 如何更好地估计任务时间
 
-> 原文:[https://life hacker . com/how-to-get-better-at-estimating-time-for-tasks-1626399924](https://lifehacker.com/how-to-get-better-at-estimating-time-for-tasks-1626399924)
+> 原文：<https://lifehacker.com/how-to-get-better-at-estimating-time-for-tasks-1626399924>
 
 好的时间管理取决于知道每分钟的价值。如果你能正确地知道完成一项任务需要多长时间，你的时间表就永远不会乱。下面是如何学会估计时间的方法。
 

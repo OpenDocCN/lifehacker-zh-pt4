@@ -1,6 +1,6 @@
 # 根据《消费者报告》,最佳超市品牌
 
-> 原文:[https://life hacker . com/the-best-super-store-brands-by-consume-1699071755](https://lifehacker.com/the-best-supermarket-store-brands-according-to-consume-1699071755)
+> 原文：<https://lifehacker.com/the-best-supermarket-store-brands-according-to-consume-1699071755>
 
 购买商店品牌是省钱的好方法，它们通常在质量上比名牌 更好或相同。在 [消费者报告](http://www.consumerreports.org/cro/index.htm) 调查的 68 家不同的连锁超市中，这些是拥有最佳商店品牌的商店。
 

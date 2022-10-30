@@ -1,6 +1,6 @@
 # BirdDrop 将 Twitter 放入你的 OS X 菜单栏
 
-> 原文:[https://life hacker . com/bird drop-puts-Twitter-in-your-OS-x-menubar-504662208](https://lifehacker.com/birddrop-puts-twitter-in-your-os-x-menubar-504662208)
+> 原文：<https://lifehacker.com/birddrop-puts-twitter-in-your-os-x-menubar-504662208>
 
 OS X:就像脸书的 Facebox 一样，BirdDrop 将 Twitter 放在你的 OS X 菜单栏中，方便快捷地访问，这样你就可以阅读、撰写和回复推文，而不需要单独的应用程序。
 

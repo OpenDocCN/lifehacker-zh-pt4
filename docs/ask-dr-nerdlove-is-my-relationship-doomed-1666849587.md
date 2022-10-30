@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:我的感情是不是注定要失败了？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-is-my-relationship-dummy-1666849587](https://kotaku.com/ask-dr-nerdlove-is-my-relationship-doomed-1666849587)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-is-my-relationship-doomed-1666849587>
 
 你好，互联网！欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个由浪漫调查者《安德拉斯特先驱报》运营的约会建议专栏。
 

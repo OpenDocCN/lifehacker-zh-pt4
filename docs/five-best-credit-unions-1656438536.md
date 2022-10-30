@@ -1,6 +1,6 @@
 # 五大最佳信用合作社
 
-> 原文:[https://lifehacker.com/five-best-credit-unions-1656438536](https://lifehacker.com/five-best-credit-unions-1656438536)
+> 原文：<https://lifehacker.com/five-best-credit-unions-1656438536>
 
 如果你正在寻找一个更好的地方存钱，信用合作社是一个比传统银行更好的选择。然而，找到一个好的可能是棘手的——有太多的选择，有些是本地的，有些是全国的。本周我们将根据你们的提名选出五位最佳选手。
 

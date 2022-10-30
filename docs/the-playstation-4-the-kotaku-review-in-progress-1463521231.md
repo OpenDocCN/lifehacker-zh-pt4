@@ -1,6 +1,6 @@
 # PlayStation 4:Kotaku 评论
 
-> 原文:[https://kotaku . com/the-PlayStation-4-the-kotaku-review-in-progress-1463521231](https://kotaku.com/the-playstation-4-the-kotaku-review-in-progress-1463521231)
+> 原文：<https://kotaku.com/the-playstation-4-the-kotaku-review-in-progress-1463521231>
 
 PlayStation 4 到底有多好？五年后再问我。在顽皮狗接下来的几场比赛之后，在我弄清楚*战神*是否朝着正确的方向前进之后，在我了解到玩一款没有直播的主机游戏是否已经变得不可思议之后，再来问我吧。
 

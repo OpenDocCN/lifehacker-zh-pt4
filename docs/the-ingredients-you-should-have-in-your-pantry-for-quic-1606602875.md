@@ -1,6 +1,6 @@
 # 为了更快地烹饪，你应该在你的餐具室里放些配料
 
-> 原文:[https://life hacker . com/the-ingredients-you-should-has-in-your-pantry-for-quic-1606602875](https://lifehacker.com/the-ingredients-you-should-have-in-your-pantry-for-quic-1606602875)
+> 原文：<https://lifehacker.com/the-ingredients-you-should-have-in-your-pantry-for-quic-1606602875>
 
 一个储备充足的储藏室可以让你做出快速健康的饭菜。让我们列一个“快速修复”成分的清单，帮助我们更快地烹饪，而不牺牲味道或质量。
 

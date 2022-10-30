@@ -1,6 +1,6 @@
 # 旅游时如何保护自己的钱
 
-> 原文:[https://life hacker . com/how-to-protect-your money-when-traveling-1556542467](https://lifehacker.com/how-to-protect-your-money-when-traveling-1556542467)
+> 原文：<https://lifehacker.com/how-to-protect-your-money-when-traveling-1556542467>
 
 旅行很有趣，但是游客容易受到小偷和扒手的攻击。一个小小的财务灾难会毁了你的假期。旅行时，使用以下建议来保护你的钱。
 

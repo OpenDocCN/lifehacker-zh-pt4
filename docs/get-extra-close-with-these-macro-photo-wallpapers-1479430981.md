@@ -1,6 +1,6 @@
 # 使用这些微距照片壁纸获得额外的亲密感
 
-> 原文:[https://life hacker . com/get-extra-close-with-these-macro-photo-wallpapers-1479430981](https://lifehacker.com/get-extra-close-with-these-macro-photo-wallpapers-1479430981)
+> 原文：<https://lifehacker.com/get-extra-close-with-these-macro-photo-wallpapers-1479430981>
 
 一些最好的图片没有显示所有的东西，而是一个小细节。微距照片不仅看起来很棒，而且通常可以制作简单且不太分散注意力的壁纸。看看我们的一些最爱，本周把它们添加到你的桌面上。
 

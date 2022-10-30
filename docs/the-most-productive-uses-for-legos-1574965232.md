@@ -1,6 +1,6 @@
 # 乐高最有效的用途
 
-> 原文:[https://life hacker . com/the-most-productive-uses-for-Legos-1574965232](https://lifehacker.com/the-most-productive-uses-for-legos-1574965232)
+> 原文：<https://lifehacker.com/the-most-productive-uses-for-legos-1574965232>
 
 对于孩子们来说，乐高积木无疑是最成功的激发创造力的玩具。事实上，他们非常成功，甚至成年人都喜欢他们。不出所料，许多人已经找到了将它们转化为高效、有用工具的方法。这里只是一些最好的。
 

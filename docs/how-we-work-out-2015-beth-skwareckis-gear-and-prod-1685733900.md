@@ -1,6 +1,6 @@
 # 我们如何工作，2015 年:贝丝·斯克沃茨基的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-out-2015-Beth-skwareckis-gear-and-prod-1685733900](https://lifehacker.com/how-we-work-out-2015-beth-skwareckis-gear-and-prod-1685733900)
+> 原文：<https://lifehacker.com/how-we-work-out-2015-beth-skwareckis-gear-and-prod-1685733900>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。今天轮到我了。这里有一些我如何工作的秘密，以及——因为这是重要的——我如何工作。
 

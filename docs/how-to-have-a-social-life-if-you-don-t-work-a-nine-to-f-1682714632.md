@@ -1,6 +1,6 @@
 # 如果你不做朝九晚五的工作，如何拥有社交生活
 
-> 原文:[https://life hacker . com/how-to-have-a-social-life-if-you-don-t-work-a-nine-to-f-1682714632](https://lifehacker.com/how-to-have-a-social-life-if-you-don-t-work-a-nine-to-f-1682714632)
+> 原文：<https://lifehacker.com/how-to-have-a-social-life-if-you-don-t-work-a-nine-to-f-1682714632>
 
 如果你在传统的朝九晚五的时间表 之外做一份 [的工作，那么维持现有的关系并建立新的关系会很有挑战性。这里有一些方法可以让你在工作之余保持活跃的社交生活。](https://lifehacker.com/how-can-i-break-free-from-the-9-to-5-lifestyle-5902487)
 

@@ -1,6 +1,6 @@
 # 带回笔迹
 
-> 原文:[https://lifehacker.com/bring-back-handwriting-1721228393](https://lifehacker.com/bring-back-handwriting-1721228393)
+> 原文：<https://lifehacker.com/bring-back-handwriting-1721228393>
 
 我们大多数人几天都没有手写任何东西，当我们最终需要记下一些东西时，它看起来就像三年级学生写的东西。在数字时代，手写感觉几乎过时了，但是有很多理由保持你的书写质量，或者(喘息)甚至提高它。
 

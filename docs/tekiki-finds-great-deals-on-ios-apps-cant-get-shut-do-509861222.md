@@ -1,6 +1,6 @@
 # Tekiki 在 iOS 应用程序上找到很好的交易，不能被关闭
 
-> 原文:[https://life hacker . com/te kiki-finds-great-deals-on-IOs-apps-cant-get-shut-do-509861222](https://lifehacker.com/tekiki-finds-great-deals-on-ios-apps-cant-get-shut-do-509861222)
+> 原文：<https://lifehacker.com/tekiki-finds-great-deals-on-ios-apps-cant-get-shut-do-509861222>
 
 苹果正在打击像 app 免费提供的应用发现服务，但 Tekiki 是一个新的 HTML5 应用，它绕过应用商店，帮助你找到暂时免费的热门应用。
 

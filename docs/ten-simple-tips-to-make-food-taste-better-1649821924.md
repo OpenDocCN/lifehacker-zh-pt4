@@ -1,6 +1,6 @@
 # 让食物味道更好的十个简单技巧
 
-> 原文:[https://life hacker . com/ten-simple-tips-to-make-food-taste-better-1649821924](https://lifehacker.com/ten-simple-tips-to-make-food-taste-better-1649821924)
+> 原文：<https://lifehacker.com/ten-simple-tips-to-make-food-taste-better-1649821924>
 
 有时候，当你在厨房时，微小的接触会带来最大的不同。以下是来自美国试验厨房的一些简单的小贴士，用于准备、烹饪和调味，旨在增加日常烹饪的味道。
 

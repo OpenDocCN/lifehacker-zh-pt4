@@ -1,6 +1,6 @@
 # 使用这些简单的 Excel 公式来比较学生贷款
 
-> 原文:[https://life hacker . com/use-these-simple-excel-formulas-to-compare-student-loan-1679061864](https://lifehacker.com/use-these-simple-excel-formulas-to-compare-student-loan-1679061864)
+> 原文：<https://lifehacker.com/use-these-simple-excel-formulas-to-compare-student-loan-1679061864>
 
 如果你开始为学生贷款货比三家，你可能需要大致了解一下你要付多少钱。如果你正在为现有债务进行再融资，你可能需要一个工具来根据你已经偿还了多少来比较你的选择。不管怎样，看看这些简单的 Excel 公式来比较不同的学生贷款选项。
 

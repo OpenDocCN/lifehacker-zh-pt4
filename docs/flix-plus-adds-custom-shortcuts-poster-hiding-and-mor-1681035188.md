@@ -1,6 +1,6 @@
 # Flix Plus 为网飞添加了自定义快捷方式、海报隐藏等功能
 
-> 原文:[https://life hacker . com/flix-plus-adds-custom-shortcut s-poster-hiding-and-mor-1681035188](https://lifehacker.com/flix-plus-adds-custom-shortcuts-poster-hiding-and-mor-1681035188)
+> 原文：<https://lifehacker.com/flix-plus-adds-custom-shortcuts-poster-hiding-and-mor-1681035188>
 
 Chrome: Flix Plus，Lifehacker 最初的 Chrome 扩展，可以根据你的愿望定制网飞 ，已经更新了可定制的键盘快捷键，隐藏个人海报的能力，以及许多其他调整和错误修复。
 

@@ -1,6 +1,6 @@
 # 最佳电子入门套件
 
-> 原文:[https://life hacker . com/the-best-electronics-starter-kits-1515941488](https://lifehacker.com/the-best-electronics-starter-kits-1515941488)
+> 原文：<https://lifehacker.com/the-best-electronics-starter-kits-1515941488>
 
 培养像 DIY 电子产品这样的新爱好是一项昂贵的努力。有时，最便宜的切入点是一个初学者工具包，它将你需要的一组物品与教你新爱好的物品完美地结合在一起。这是一个微妙的平衡，而且不是所有的初学者工具包都是一样的，所以让我们建立一个最佳列表。
 

@@ -1,6 +1,6 @@
 # 为什么我们如此物质化，即使它并不能让我们快乐
 
-> 原文:[https://life hacker . com/why-were-so-materiality-even-that-it-not-make-1486081424](https://lifehacker.com/why-were-so-materialistic-even-though-it-doesnt-make-1486081424)
+> 原文：<https://lifehacker.com/why-were-so-materialistic-even-though-it-doesnt-make-1486081424>
 
 无论你是谁，都很容易被获得新事物的想法所困扰。下面来看看*为什么*你的大脑如此物质化，以及你能做些什么来防止它压倒你。
 

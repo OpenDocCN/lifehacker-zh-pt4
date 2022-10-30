@@ -1,6 +1,6 @@
 # 我们的 iPhone 6 Liveblog 现在就从这里开始
 
-> 原文:[https://gizmodo . com/our-new-iphone-live blog-starts-right-here-on-9-9-at-1pm-1629704968](https://gizmodo.com/our-new-iphone-liveblog-starts-right-here-on-9-9-at-1pm-1629704968)
+> 原文：<https://gizmodo.com/our-new-iphone-liveblog-starts-right-here-on-9-9-at-1pm-1629704968>
 
 欢迎朋友们！今天，苹果将揭开 iPhone 6 的包装，可能是更大的 iPhone 6L，甚至更有可能是传说中的 iWatch。我们会在这里现场直播。加入我们吧！
 

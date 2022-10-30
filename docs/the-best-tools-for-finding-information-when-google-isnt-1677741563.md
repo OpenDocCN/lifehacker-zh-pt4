@@ -1,6 +1,6 @@
 # 当谷歌不够用时，寻找信息的最佳工具
 
-> 原文:[https://life hacker . com/the-best-tools-for-finding-information-when-Google-nots-1677741563](https://lifehacker.com/the-best-tools-for-finding-information-when-google-isnt-1677741563)
+> 原文：<https://lifehacker.com/the-best-tools-for-finding-information-when-google-isnt-1677741563>
 
 当谈到在互联网上寻找信息的时，谷歌是如此的根深蒂固，我们以它命名了这一行为。然而，当 [谷歌没有答案](https://lifehacker.com/when-google-doesnt-have-the-answer-or-is-idol-white-a-5743020) 时，有大量其他工具和技巧可以帮你找到问题的答案。
 

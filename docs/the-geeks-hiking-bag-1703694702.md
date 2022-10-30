@@ -1,6 +1,6 @@
 # 极客的徒步旅行包
 
-> 原文:[https://lifehacker.com/the-geeks-hiking-bag-1703694702](https://lifehacker.com/the-geeks-hiking-bag-1703694702)
+> 原文：<https://lifehacker.com/the-geeks-hiking-bag-1703694702>
 
 作为一名科技发烧友，意味着当你去徒步旅行时要多带几件。以下是《生活黑客》读者兰登·米歇尔和丈夫外出旅行时随身携带的物品。
 

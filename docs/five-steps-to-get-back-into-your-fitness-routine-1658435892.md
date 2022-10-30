@@ -1,6 +1,6 @@
 # 五步回到你的健身常规
 
-> 原文:[https://life hacker . com/five-steps-to-get-back to-your fitness-routine-1658435892](https://lifehacker.com/five-steps-to-get-back-into-your-fitness-routine-1658435892)
+> 原文：<https://lifehacker.com/five-steps-to-get-back-into-your-fitness-routine-1658435892>
 
 我们都曾在某个时候没能坚持锻炼。几周不训练，连续几天暴饮暴食，害怕踏上体重秤——这种事情发生在我们当中最优秀的人身上，重新开始并重新上马总是很难。以下是如何回到你的健身日程的具体方法。
 

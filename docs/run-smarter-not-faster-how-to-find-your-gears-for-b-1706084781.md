@@ -1,6 +1,6 @@
 # 跑得更聪明，而不是更快:如何找到更好锻炼的“齿轮”
 
-> 原文:[https://life hacker . com/run-smarter-not-fast-how-to-find-your-gears-for-b-1706084781](https://lifehacker.com/run-smarter-not-faster-how-to-find-your-gears-for-b-1706084781)
+> 原文：<https://lifehacker.com/run-smarter-not-faster-how-to-find-your-gears-for-b-1706084781>
 
 跑步者喜欢专注于跑得更快，但特别是如果你是跑步新手，你可能会错过训练的一个关键部分:也要学会跑得更慢。你需要几个“档位”，分别是慢、中和快，以充分利用不同类型的锻炼(并在比赛中表现更好)。
 

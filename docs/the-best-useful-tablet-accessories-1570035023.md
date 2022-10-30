@@ -1,6 +1,6 @@
 # 最有用的平板电脑配件
 
-> 原文:[https://life hacker . com/the-best-used-table t-accessories-1570035023](https://lifehacker.com/the-best-useful-tablet-accessories-1570035023)
+> 原文：<https://lifehacker.com/the-best-useful-tablet-accessories-1570035023>
 
 你的平板电脑——无论是 iPad、Android 平板电脑还是微软 Surface——本身可能就很棒，但一些摆放得当的配件可以让它变得更好。有很多没用的，但是让我们列出一些最好的，实际上对他们有用的。
 

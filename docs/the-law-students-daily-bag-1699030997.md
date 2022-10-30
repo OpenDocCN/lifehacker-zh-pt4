@@ -1,6 +1,6 @@
 # 法律系学生的日常包
 
-> 原文:[https://life hacker . com/the-law-students-daily-bag-1699030997](https://lifehacker.com/the-law-students-daily-bag-1699030997)
+> 原文：<https://lifehacker.com/the-law-students-daily-bag-1699030997>
 
 作为一名法律专业的学生意味着随身携带大量的书籍，并为其他一些事情做好准备。以下是《每日电讯报》读者罗布·巴塞尔姆斯在从一个班到另一个班的那些日子里所了解的情况。
 

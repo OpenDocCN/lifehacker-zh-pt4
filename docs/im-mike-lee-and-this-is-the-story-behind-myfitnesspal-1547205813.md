@@ -1,6 +1,6 @@
 # 我是李政颖，这是我的 FitnessPal 背后的故事
 
-> 原文:[https://life hacker . com/im-Mike-lee-and-this-is-the-story-behind-my fitnesspal-1547205813](https://lifehacker.com/im-mike-lee-and-this-is-the-story-behind-myfitnesspal-1547205813)
+> 原文：<https://lifehacker.com/im-mike-lee-and-this-is-the-story-behind-myfitnesspal-1547205813>
 
 当你试图保持健康的饮食时，跟踪你吃的东西可能是一项繁琐的任务，并且可能会感觉比它的价值更大。幸运的是，有 MyFitnessPal，你最喜欢的营养追踪器 [之一](https://lifehacker.com/most-popular-food-and-nutrition-tracking-tools-myfitne-1121876804) ，它有一个广泛的食物数据库，可以帮助你跟踪你的食物，无论你是在外面吃饭还是在家做饭。我们采访了 MyFitnessPal 的联合创始人兼首席执行官李政颖，了解他为什么决定抛弃纸笔，寻找更好的方法来记录健康的饮食习惯。
 

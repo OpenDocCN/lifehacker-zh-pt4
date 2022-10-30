@@ -1,6 +1,6 @@
 # 最佳多任务手机壳
 
-> 原文:[https://life hacker . com/the-best-多任务手机案例-1467616143](https://lifehacker.com/the-best-multitasking-phone-cases-1467616143)
+> 原文：<https://lifehacker.com/the-best-multitasking-phone-cases-1467616143>
 
 手机壳只是为了保护的时代已经过去了。如今，你可以得到一个手机壳，同时也是一把瑞士军刀，一个电池充电器，一个钱包，或者其他任何东西。考虑到这一点，这里有一些我们最喜欢的案例，它们不仅仅是一块塑料。
 

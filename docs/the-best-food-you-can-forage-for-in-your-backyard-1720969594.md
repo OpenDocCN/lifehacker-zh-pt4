@@ -1,6 +1,6 @@
 # 你能在后院找到的最好的食物
 
-> 原文:[https://life hacker . com/the-best-food-you-can-feed-for-your-后院觅食-1720969594](https://lifehacker.com/the-best-food-you-can-forage-for-in-your-backyard-1720969594)
+> 原文：<https://lifehacker.com/the-best-food-you-can-forage-for-in-your-backyard-1720969594>
 
 我父亲一直反对他所谓的“庭院修剪沙拉”，也就是任何不是由生菜或冰山制成的沙拉。这太糟糕了，因为字面上的庭院剪报(和森林剪报)不仅对你有好处，而且超级美味，而且很容易找到。(而且通常都是免费的。)让我们来探索一些可以在你的门外找到的可食用的杂草、蕨类植物和花卉。
 

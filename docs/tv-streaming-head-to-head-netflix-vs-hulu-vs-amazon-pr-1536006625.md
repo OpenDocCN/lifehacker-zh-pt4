@@ -1,6 +1,6 @@
 # 电视流媒体头对头:网飞 vs Hulu vs 亚马逊 Prime
 
-> 原文:[https://life hacker . com/TV-streaming-head-to-head-网飞-vs-Hulu-vs-亚马逊-pr-1536006625](https://lifehacker.com/tv-streaming-head-to-head-netflix-vs-hulu-vs-amazon-pr-1536006625)
+> 原文：<https://lifehacker.com/tv-streaming-head-to-head-netflix-vs-hulu-vs-amazon-pr-1536006625>
 
 关于网飞、Hulu Plus 和亚马逊的电视流媒体库，更令人恼火的事情之一是可供选择的节目之间的巨大差异。如果不在每个服务上搜索数百个电视节目并手动比较，几乎不可能彻底了解谁的图书馆更好。所以我们就这么做了。
 

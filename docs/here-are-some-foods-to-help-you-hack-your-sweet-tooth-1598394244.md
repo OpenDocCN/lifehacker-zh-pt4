@@ -1,6 +1,6 @@
 # 这里有一些食物可以帮助你改掉爱吃甜食的习惯
 
-> 原文:[https://gizmodo . com/here-is-some-foods-to-help-you-hack-you-that sweet-1598394244](https://gizmodo.com/here-are-some-foods-to-help-you-hack-your-sweet-tooth-1598394244)
+> 原文：<https://gizmodo.com/here-are-some-foods-to-help-you-hack-your-sweet-tooth-1598394244>
 
 人体黑客技术可能低得惊人，尤其是当你试图劫持任何一个爱吃甜食的人时。厨师们正在用一系列的食物来让你的味蕾认为他们的食物比实际味道更好，或者至少更甜。
 

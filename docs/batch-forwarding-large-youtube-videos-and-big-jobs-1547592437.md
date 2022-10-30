@@ -1,6 +1,6 @@
 # 批量转发、大型 YouTube 视频和大型作业
 
-> 原文:[https://life hacker . com/batch-forwarding-large-YouTube-videos-and-big-jobs-1547592437](https://lifehacker.com/batch-forwarding-large-youtube-videos-and-big-jobs-1547592437)
+> 原文：<https://lifehacker.com/batch-forwarding-large-youtube-videos-and-big-jobs-1547592437>
 
 读者们提供了在 Gmail 中批量转发邮件、迫使 YouTube 播放大视频以及将大量工作分成小块的最佳技巧。
 

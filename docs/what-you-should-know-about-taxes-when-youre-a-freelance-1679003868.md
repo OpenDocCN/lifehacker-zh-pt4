@@ -1,6 +1,6 @@
 # 作为一名自由职业者，你应该知道什么是税收
 
-> 原文:[https://life hacker . com/what-you-should-known-what-you-been-you-a-freelance-1679003868](https://lifehacker.com/what-you-should-know-about-taxes-when-youre-a-freelance-1679003868)
+> 原文：<https://lifehacker.com/what-you-should-know-about-taxes-when-youre-a-freelance-1679003868>
 
 成为一名自由职业者不仅仅改变你的工作方式；它也改变了你管理金钱的方式。当你是自由职业者时，需要特别注意的一个方面是你的报税。
 

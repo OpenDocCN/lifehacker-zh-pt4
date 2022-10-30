@@ -1,6 +1,6 @@
 # 帮助孩子提高词汇量的八种方法
 
-> 原文:[https://life hacker . com/8-ways-to-help-improve-your-childs-vocabulary-1645796717](https://lifehacker.com/eight-ways-to-help-improve-your-childs-vocabulary-1645796717)
+> 原文：<https://lifehacker.com/eight-ways-to-help-improve-your-childs-vocabulary-1645796717>
 
 终生热爱和学习天赋的基础很可能是扎实的词汇。丰富的词汇有助于培养理解、交流和阅读能力。这就是为什么父母应该尽力帮助孩子学习新单词。
 

@@ -1,6 +1,6 @@
 # 坚持财务决心的四个诀窍
 
-> 原文:[https://life hacker . com/four-tricks-for-sticking to-your financial-resolutions-1493791703](https://lifehacker.com/four-tricks-for-sticking-to-your-financial-resolutions-1493791703)
+> 原文：<https://lifehacker.com/four-tricks-for-sticking-to-your-financial-resolutions-1493791703>
 
 当涉及到你的钱的时候，你的新年决心是什么？你越早决定今年的财务重点，你就能越早开始实现你的目标。
 

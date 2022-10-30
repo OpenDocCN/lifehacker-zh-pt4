@@ -1,6 +1,6 @@
 # 八个受欢迎的罚单和交通法规被揭穿
 
-> 原文:[https://life hacker . com/eight-popular-ticket-and-traffic-law-myths-debucked-1708158201](https://lifehacker.com/eight-popular-ticket-and-traffic-law-myths-debunked-1708158201)
+> 原文：<https://lifehacker.com/eight-popular-ticket-and-traffic-law-myths-debunked-1708158201>
 
 你可能认为你知道交通规则，但是错误的信息会像野火一样传播。从 [开罚单](https://lifehacker.com/how-to-beat-a-speeding-ticket-or-at-least-better-your-208611) 到为超速找借口，是时候一劳永逸地澄清一些交通误区了。
 

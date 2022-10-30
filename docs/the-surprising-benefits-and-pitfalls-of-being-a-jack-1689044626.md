@@ -1,6 +1,6 @@
 # 成为“百事通”的惊人好处(和陷阱)
 
-> 原文:[https://life hacker . com/the-surprise-benefits-and-recipes-of-be-a-jack-1689044626](https://lifehacker.com/the-surprising-benefits-and-pitfalls-of-being-a-jack-1689044626)
+> 原文：<https://lifehacker.com/the-surprising-benefits-and-pitfalls-of-being-a-jack-1689044626>
 
 人们瞧不起多才多艺的人——甚至“万事通，无所不能”这句话也有一点负面的警告。但是当杰克有很多隐藏的好处。这些是你可能想要重新考虑“多面手不可能同样成功”这一观点的最好理由。
 

@@ -1,6 +1,6 @@
 # 信用记录差的时候如何租公寓
 
-> 原文:[https://life hacker . com/how-to-rent-a-apartment-when-your-credit-history-is-po-1566847914](https://lifehacker.com/how-to-rent-an-apartment-when-your-credit-history-is-po-1566847914)
+> 原文：<https://lifehacker.com/how-to-rent-an-apartment-when-your-credit-history-is-po-1566847914>
 
 不良信用会困扰你。在你的财务状况恢复正常的几年后，你可能仍然不得不处理你的金钱错误。不良信用报告会使一些任务变得困难:例如，租房。如果你因为信用记录而租房有困难，这里有几个选择。
 

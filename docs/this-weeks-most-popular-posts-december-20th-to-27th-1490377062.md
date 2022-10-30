@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:12 月 20 日至 27 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-December-20-to-27-1490377062](https://lifehacker.com/this-weeks-most-popular-posts-december-20th-to-27th-1490377062)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-december-20th-to-27th-1490377062>
 
 本周我们 [让会议更有成效](https://lifehacker.com/ask-these-three-questions-at-the-end-of-every-meeting-1489074784)[与我们重要的其他人](http://lifehacker.com/communicate-better-with-your-significant-other-with-the-1489145411)[无收据退回节日礼物](http://lifehacker.com/how-to-return-nearly-anything-without-a-receipt-5853626)[揭开 iOS 7 越狱](http://lifehacker.com/whats-happening-with-the-ios-7-jailbreak-should-i-use-1488760671) 背后的大戏。这里回顾一下。
 

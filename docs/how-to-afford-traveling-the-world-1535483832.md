@@ -1,6 +1,6 @@
 # 如何支付环游世界的费用
 
-> 原文:[https://life hacker . com/how-to-affordable-travel-the-world-1535483832](https://lifehacker.com/how-to-afford-traveling-the-world-1535483832)
+> 原文：<https://lifehacker.com/how-to-afford-traveling-the-world-1535483832>
 
 在过去的几年里，我很幸运地走遍了世界的许多地方。旅行的机会对我产生了和对许多人一样的影响:我看到的越多，我就越想看到。我*越想让*看到，我就越意识到我的收入不能完全满足我所有的旅行需求。
 

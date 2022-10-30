@@ -1,6 +1,6 @@
 # 2014 年最受欢迎的解释者
 
-> 原文:[https://life hacker . com/most-popular-explainers-of-2014-1666499785](https://lifehacker.com/most-popular-explainers-of-2014-1666499785)
+> 原文：<https://lifehacker.com/most-popular-explainers-of-2014-1666499785>
 
 在提示和操作之间，我们也经常做“解释者”，在那里我们把复杂的主题分解成简单的语言。我们的目标是帮助你理解这些困难的主题是如何工作的，并向你展示你能用这些知识做什么。这是我们过去一年的最佳作品。
 

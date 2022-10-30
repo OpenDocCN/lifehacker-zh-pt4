@@ -1,6 +1,6 @@
 # Android 4.4 KitKat 中的所有新东西
 
-> 原文:[https://life hacker . com/all-the-new-stuff-in-Android-4-4-kit kat-1456286732](https://lifehacker.com/all-the-new-stuff-in-android-4-4-kitkat-1456286732)
+> 原文：<https://lifehacker.com/all-the-new-stuff-in-android-4-4-kitkat-1456286732>
 
 各位万圣节快乐。来一个 kit kat——谷歌对 Android 的最新更新，也就是谷歌刚刚宣布的，以及 [新的 Nexus 5](https://gizmodo.com/nexus-5-a-pure-google-dream-phone-thats-ridiculously-1445522531) 。以下是您需要了解的关于移动操作系统更新的信息。
 

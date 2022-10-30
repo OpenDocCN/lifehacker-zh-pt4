@@ -1,6 +1,6 @@
 # 如何将电脑游戏移动到另一个硬盘上(无需重新下载)
 
-> 原文:[https://life hacker . com/how-to-move-a-PC-game-to-another-hard-drive-with-re-1714706774](https://lifehacker.com/how-to-move-a-pc-game-to-another-hard-drive-without-re-1714706774)
+> 原文：<https://lifehacker.com/how-to-move-a-pc-game-to-another-hard-drive-without-re-1714706774>
 
 所以你的硬盘空间快用完了(可能在你那块速度快但体积小的 SSD 上)，你需要把你的一些电脑游戏移到另一块硬盘上。不要卸载再重新下载！你可以把你的游戏转移到一个新的驱动器上，而不必等待数小时来重新安装每一个。
 

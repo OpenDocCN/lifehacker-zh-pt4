@@ -1,6 +1,6 @@
 # 打造新游戏电脑的 10 大优势
 
-> 原文:[https://kotaku . com/the-10-best-things-about-building-a-new-gaming-PC-1605434587](https://kotaku.com/the-10-best-things-about-building-a-new-gaming-pc-1605434587)
+> 原文：<https://kotaku.com/the-10-best-things-about-building-a-new-gaming-pc-1605434587>
 
 构建一台游戏电脑既费时又费力。有一千件事情可能出错，其中任何一件都可能导致数百美元的损失。然而我们还是做了。为什么？因为制造个人电脑太棒了。
 

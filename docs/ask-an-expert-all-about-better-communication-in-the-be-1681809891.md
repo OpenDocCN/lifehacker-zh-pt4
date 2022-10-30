@@ -1,6 +1,6 @@
 # 问专家:卧室里更好的交流
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-better-communication-in-the-be-1681809891](https://lifehacker.com/ask-an-expert-all-about-better-communication-in-the-be-1681809891)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-better-communication-in-the-be-1681809891>
 
 对大多数人来说，谈论性并不容易，即使是和你爱的伴侣。你可能会觉得在卧室里公开讨论问题不舒服，这就是为什么性治疗师瓦妮莎·马林 在这里提供帮助。
 

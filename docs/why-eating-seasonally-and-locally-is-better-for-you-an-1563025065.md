@@ -1,6 +1,6 @@
 # 为什么季节性和本地饮食对你(和你的钱包)更好
 
-> 原文:[https://life hacker . com/why-eating-seasonly-and-local-is-better for you-an-1563025065](https://lifehacker.com/why-eating-seasonally-and-locally-is-better-for-you-an-1563025065)
+> 原文：<https://lifehacker.com/why-eating-seasonally-and-locally-is-better-for-you-an-1563025065>
 
 健康专家和厨师都经常说，你应该“季节性地”进食，或者在你的饮食中包括在一年中你吃的同一时间生长的食物。例如，这意味着夏天和秋天吃南瓜，春天吃朝鲜蓟。季节性饮食很重要，对你的健康、地球和你的钱包都有好处。以下是其中的一些。
 

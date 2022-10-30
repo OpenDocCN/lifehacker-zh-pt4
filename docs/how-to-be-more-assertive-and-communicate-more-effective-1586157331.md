@@ -1,6 +1,6 @@
 # 如何更自信地进行更好的交流
 
-> 原文:[https://life hacker . com/how-to-be-more-assertive-and-communication-more-effective-1586157331](https://lifehacker.com/how-to-be-more-assertive-and-communicate-more-effective-1586157331)
+> 原文：<https://lifehacker.com/how-to-be-more-assertive-and-communicate-more-effective-1586157331>
 
 当人们描述我时，自信是他们使用的最后一个词。这让我付出了很大的代价，无论是职业上还是个人上，因为错过了机会。但是我们能学会更加自信吗？什么是正确的自信水平？
 

@@ -1,6 +1,6 @@
 # 请教专家:关于身份保护
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-identity-protection-1474993641](https://lifehacker.com/ask-an-expert-all-about-identity-protection-1474993641)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-identity-protection-1474993641>
 
 向 Bancorp[第五第三](https://www.53.com/site) 信息安全部安全意识项目经理 Nancy Hannan 问好。Fifth Third 是中西部最大的资金管理公司之一，提供公司和分支银行、消费贷款和投资顾问等服务。为了纪念网络星期一，南希将在接下来的一个小时里回答关于在这个假日购物季及以后保护你的身份的问题。
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:10 月 11 日至 18 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-10 月 11 日至 18 日-1447755615](https://lifehacker.com/this-weeks-most-popular-posts-october-11th-to-18th-1447755615)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-october-11th-to-18th-1447755615>
 
 本周我们 [打破了一些健康神话](https://lifehacker.com/10-health-myths-that-just-wont-die-debunked-by-scienc-1443659706)[用我们没有鼠标的 PC](http://lifehacker.com/10-things-you-can-do-on-a-pc-without-ever-touching-the-1443071119)[打破了一次又一次的循环](http://lifehacker.com/how-to-break-the-living-paycheck-to-paycheck-cycle-1445330680) ， [用我们的智能手机](http://lifehacker.com/ten-household-items-your-smartphone-can-replace-1444553589) 取代了 10 件家庭用品。这里回顾一下。
 

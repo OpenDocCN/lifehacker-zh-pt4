@@ -1,6 +1,6 @@
 # 最常见的令人尴尬的社交失误以及如何挽回
 
-> 原文:[https://life hacker . com/the-most-common-hanging-social-blends-and-how-to-1715300317](https://lifehacker.com/the-most-common-embarrassing-social-blunders-and-how-to-1715300317)
+> 原文：<https://lifehacker.com/the-most-common-embarrassing-social-blunders-and-how-to-1715300317>
 
 几年前，我的一个朋友经历了一个经典的失言时刻。“恭喜你！”她对一位同事说，那位同事冷淡地回答说:“我没有怀孕。”那样的尴尬会让你想钻到石头底下再也不露面。很诱人，但从那一刻恢复过来可能更健康。
 

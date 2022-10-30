@@ -1,6 +1,6 @@
 # 糖并不比高果糖玉米糖浆更健康
 
-> 原文:[https://life hacker . com/sugar-not-any-healthy-than-high-果糖玉米糖浆-1688266466](https://lifehacker.com/sugar-isnt-any-healthier-than-high-fructose-corn-syrup-1688266466)
+> 原文：<https://lifehacker.com/sugar-isnt-any-healthier-than-high-fructose-corn-syrup-1688266466>
 
 高果糖玉米糖浆对你很不好。我想弄清楚这一点。但是，如果你仔细阅读成分标签试图避免它，或者如果你选择琼斯苏打或墨西哥可乐，因为它的“真正”糖分，你可能被欺骗了。
 

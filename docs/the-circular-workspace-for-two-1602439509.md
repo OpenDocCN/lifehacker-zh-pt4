@@ -1,6 +1,6 @@
 # 两个人的圆形工作空间
 
-> 原文:[https://life hacker . com/the-circular-workspace-for-two-1602439509](https://lifehacker.com/the-circular-workspace-for-two-1602439509)
+> 原文：<https://lifehacker.com/the-circular-workspace-for-two-1602439509>
 
 今天的特色工作区展示了一个定制的圆形办公桌，它可以将一个小房间变成两个人的驾驶舱。
 

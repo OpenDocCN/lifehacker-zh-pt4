@@ -1,6 +1,6 @@
 # OS X Yosemite 的十大隐藏功能
 
-> 原文:[https://life hacker . com/top-10-hidden-features-of-OS-x-Yosemite-1646774857](https://lifehacker.com/top-10-hidden-features-of-os-x-yosemite-1646774857)
+> 原文：<https://lifehacker.com/top-10-hidden-features-of-os-x-yosemite-1646774857>
 
 约塞米蒂在这里有一系列新功能，但是一些最好的东西被隐藏起来了。这里有 10 个你可能还没有注意到的隐藏特征。
 

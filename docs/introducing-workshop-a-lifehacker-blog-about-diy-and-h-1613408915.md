@@ -1,6 +1,6 @@
 # 介绍 Workshop:一个关于 DIY 和家庭装修的 Lifehacker 博客
 
-> 原文:[https://life hacker . com/introducing-workshop-a-life hacker-blog-about-DIY-and-h-1613408915](https://lifehacker.com/introducing-workshop-a-lifehacker-blog-about-diy-and-h-1613408915)
+> 原文：<https://lifehacker.com/introducing-workshop-a-lifehacker-blog-about-diy-and-h-1613408915>
 
 有新房子需要帮忙吗？想知道手头工作的最佳电动工具吗？欢迎来到工作坊，一个致力于 DIY 的新博客。
 

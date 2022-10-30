@@ -1,6 +1,6 @@
 # 如何为你和你的孩子找到最好的保姆
 
-> 原文:[https://life hacker . com/how-to-find the best 保姆为你和你的孩子-1697901039](https://lifehacker.com/how-to-find-the-best-babysitter-for-you-and-your-kids-1697901039)
+> 原文：<https://lifehacker.com/how-to-find-the-best-babysitter-for-you-and-your-kids-1697901039>
 
 信任别人来照顾你的孩子已经够难的了，而找到一个有价值的候选人只会让事情变得更难。以下是你应该做的，以最终找到一个可靠的保姆。
 

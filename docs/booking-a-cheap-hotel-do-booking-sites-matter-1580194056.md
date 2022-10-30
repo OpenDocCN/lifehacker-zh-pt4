@@ -1,6 +1,6 @@
 # 找到一家便宜的酒店:使用什么样的预订网站很重要吗？
 
-> 原文:[https://life hacker . com/booking-a-price-hotel-do-booking-sites-matter-1580194056](https://lifehacker.com/booking-a-cheap-hotel-do-booking-sites-matter-1580194056)
+> 原文：<https://lifehacker.com/booking-a-cheap-hotel-do-booking-sites-matter-1580194056>
 
 有无数的酒店预订网站，但你如何决定使用哪一个？当你在寻找酒店时，它们都提供了广泛的搜索结果，很难判断是否有任何差异。我决定做一些测试，找出哪些网站提供最好的交易。
 

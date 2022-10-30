@@ -1,6 +1,6 @@
 # VirtualBox 中更好的虚拟机高级用户指南
 
-> 原文:[https://life hacker . com/the-power-users-guide-to-better-vir-vir-1569943402](https://lifehacker.com/the-power-users-guide-to-better-virtual-machines-in-vir-1569943402)
+> 原文：<https://lifehacker.com/the-power-users-guide-to-better-virtual-machines-in-vir-1569943402>
 
 VirtualBox 非常适合测试新的操作系统，但是你的虚拟机在你第一次安装的时候可能并没有那么特别。这里有一些让它们更容易使用的技巧——更不用说更强大了。
 

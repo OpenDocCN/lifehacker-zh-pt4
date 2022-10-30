@@ -1,6 +1,6 @@
 # 我是《Make》的执行主编迈克·塞内塞，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Mike-senese-executive-editor-of-make-and this-is-h-1713444097](https://lifehacker.com/im-mike-senese-executive-editor-of-make-and-this-is-h-1713444097)
+> 原文：<https://lifehacker.com/im-mike-senese-executive-editor-of-make-and-this-is-h-1713444097>
 
 十年来 [Make: Magazine](http://makezine.com/) 一直在分享人们做出令人难以置信的项目的故事，从飞行机器人到削汤匙到养蜂，并且一直是创客运动的核心支柱。帮助传递这种热情的是迈克·塞内塞。
 

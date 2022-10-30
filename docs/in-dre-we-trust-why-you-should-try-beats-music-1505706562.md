@@ -1,6 +1,6 @@
 # 在 Dre 中，我们相信:为什么你应该尝试 Beats 音乐
 
-> 原文:[https://gizmodo . com/in-dre-we-trust-why-you-should-try-beats-music-1505706562](https://gizmodo.com/in-dre-we-trust-why-you-should-try-beats-music-1505706562)
+> 原文：<https://gizmodo.com/in-dre-we-trust-why-you-should-try-beats-music-1505706562>
 
 经过一年的宣传， [Beats Music 终于来了](https://beatsmusic.com/) ，如果它有一个确定的音高，该公司狂热、固执的首席执行官伊恩·罗杰斯上周在下东区的一家酒吧里通过响亮的朋克音乐向我提供了它。“我让(传奇制作人)吉米·艾奥文在周末打电话给我，问我，‘这到底是什么播放列表？’"
 

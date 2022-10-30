@@ -1,6 +1,6 @@
 # 配备 Retina 5K 显示器的 iMac 评论:那些额外的像素真的很重要吗？
 
-> 原文:[https://gizmodo . com/IMAC-with-retina-5k-display-review-do-thes-extra-PIXE-1652463922](https://gizmodo.com/imac-with-retina-5k-display-review-do-those-extra-pixe-1652463922)
+> 原文：<https://gizmodo.com/imac-with-retina-5k-display-review-do-those-extra-pixe-1652463922>
 
 决心经常被误解。你本能地知道你想要更多，即使它的实际效用并不像市场宣传的那样。苹果新推出的 2500 美元 iMac 有很多宣传要兑现。
 

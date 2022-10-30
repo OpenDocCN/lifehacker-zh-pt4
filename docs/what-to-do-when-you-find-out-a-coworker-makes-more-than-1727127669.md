@@ -1,6 +1,6 @@
 # 当你发现一个同事挣得比你多时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-what-what-you-find-out-a-co-worker-make-than-1727127669](https://lifehacker.com/what-to-do-when-you-find-out-a-coworker-makes-more-than-1727127669)
+> 原文：<https://lifehacker.com/what-to-do-when-you-find-out-a-coworker-makes-more-than-1727127669>
 
 啊啊。你刚刚发现你的同事比你挣得多，尽管你们做的是同样的工作，但你在那里的时间更长，工作也做得更好。你感到意志消沉，被你的 [不怎么样的朋友](http://lifehacker.com/the-company-you-work-for-is-not-your-friend-1692113529#_ga=1.116407686.1610386042.1433200380) 雇主侮辱，对你的同事心怀怨恨。在你抗议之前，这里有一些专业处理这种情况的方法。
 

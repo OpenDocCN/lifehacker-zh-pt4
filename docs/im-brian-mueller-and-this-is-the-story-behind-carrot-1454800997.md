@@ -1,6 +1,6 @@
 # 我是布莱恩·穆勒，这是胡萝卜加大棒背后的故事
 
-> 原文:[https://life hacker . com/im-Brian-mueller-and-this-is-the-story-behind-carrot-1454800997](https://lifehacker.com/im-brian-mueller-and-this-is-the-story-behind-carrot-1454800997)
+> 原文：<https://lifehacker.com/im-brian-mueller-and-this-is-the-story-behind-carrot-1454800997>
 
 胡萝卜不是你的普通待办事项经理。它的创造者 [布莱恩·穆勒](https://twitter.com/brianmueller333) 将其描述为“有个性的待办事项清单”， [该应用](https://itunes.apple.com/us/app/carrot-to-do/id591840203) 将你的清单变成一个 [略带虐待狂的](https://lifehacker.com/carrot-turns-your-to-do-list-into-a-slightly-sadistic-g-5978354) 游戏，由一个只会在你完成任务后才会高兴的机器人主人完成。(胡萝卜最近推出的 [闹钟](http://lifehacker.com/carrot-alarm-turns-your-morning-routine-into-a-sadistic-1140607638) 也是如此，它让你完成一系列任务来关闭它。邪恶？也许吧。才华横溢？绝对的。)我们采访了 Brian，以了解胡萝卜背后的灵感、他一路走来遇到的问题以及他对其他新手开发者的建议。
 

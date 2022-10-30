@@ -1,6 +1,6 @@
 # 使用这些大型手机壁纸升级您的屏幕尺寸
 
-> 原文:[https://life hacker . com/upgrade-your-screen-size-with these-large-phone-wallpap-1638801390](https://lifehacker.com/upgrade-your-screen-size-with-these-large-phone-wallpap-1638801390)
+> 原文：<https://lifehacker.com/upgrade-your-screen-size-with-these-large-phone-wallpap-1638801390>
 
 今天我们要做一些不同的事情。随着 iPhone 6 Plus 正式上市，Note 4 即将上市，现在似乎是分享一些充满像素的壁纸的好时机。这些也适用于小型(呃)手机，但是这里欢迎所有人！
 

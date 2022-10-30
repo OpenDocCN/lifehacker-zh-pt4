@@ -1,6 +1,6 @@
 # 如何立即安装 Windows 10 技术预览版
 
-> 原文:[https://life hacker . com/windows-10-technical-preview-now-available-for-download-1641212531](https://lifehacker.com/windows-10-technical-preview-now-available-for-download-1641212531)
+> 原文：<https://lifehacker.com/windows-10-technical-preview-now-available-for-download-1641212531>
 
 昨天，微软公布了最新版本的 Windows[。如今，该公司允许喜欢冒险的用户(比如你)免费试用。以下是方法。](https://lifehacker.com/all-the-new-stuff-in-windows-10-1640838152)
 

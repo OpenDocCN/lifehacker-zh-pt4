@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:10 月 3 日至 10 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-10 月 3 日至 10 日-1644890876](https://lifehacker.com/this-weeks-most-popular-posts-october-3rd-to-10th-1644890876)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-october-3rd-to-10th-1644890876>
 
 这个星期我们 [发现了 Windows 10 最酷的功能](https://lifehacker.com/the-coolest-windows-10-features-microsoft-didnt-announc-1642802880)[得到了一些免费的红牛](http://lifehacker.com/you-get-free-red-bull-or-10-if-you-bought-one-in-the-l-1644046794)[买了一些电脑零件](http://lifehacker.com/five-best-places-to-buy-computer-parts-1642332463)[把敏感文件藏在了我们的电脑上](http://lifehacker.com/how-to-hide-files-on-your-computer-1642112044) 。这里回顾一下。
 

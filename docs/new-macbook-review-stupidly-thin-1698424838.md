@@ -1,6 +1,6 @@
 # 新 MacBook 评论:愚蠢的想法
 
-> 原文:[https://gizmodo . com/new-macbook-review-傻乎乎-瘦瘦的-1698424838](https://gizmodo.com/new-macbook-review-stupidly-thin-1698424838)
+> 原文：<https://gizmodo.com/new-macbook-review-stupidly-thin-1698424838>
 
 新款 MacBook 是工程学的奇迹。它很漂亮，比这种尺寸的电脑更实用。但这不适合我，我怀疑这也不适合你。太他妈薄了。
 

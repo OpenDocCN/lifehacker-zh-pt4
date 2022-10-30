@@ -1,6 +1,6 @@
 # Android 的最佳桌面管理器
 
-> 原文:[https://life hacker . com/the-best-desktop-manager-for-Android-1642628063](https://lifehacker.com/the-best-desktop-manager-for-android-1642628063)
+> 原文：<https://lifehacker.com/the-best-desktop-manager-for-android-1642628063>
 
 谷歌没有专门针对 Android 设备的 PC 或 Mac 客户端，但你仍然可以通过 AirDroid 从桌面上 [管理你的智能手机或平板电脑。](https://lifehacker.com/airdroid-2-lands-at-google-play-brings-web-based-remot-481662650)
 

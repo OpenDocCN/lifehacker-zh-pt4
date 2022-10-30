@@ -1,6 +1,6 @@
 # 如何在一段长期的关系中持续计划超棒的约会之夜
 
-> 原文:[https://life hacker . com/how-to-keep-planning-kickass-date-nights-in-a-long-term-1695478453](https://lifehacker.com/how-to-keep-planning-kickass-date-nights-in-a-long-term-1695478453)
+> 原文：<https://lifehacker.com/how-to-keep-planning-kickass-date-nights-in-a-long-term-1695478453>
 
 有规律的约会之夜是保持你们关系稳固的最简单的方法之一，但是保持这些约会有趣是困难的。以下是你如何让自己轻松地计划有趣且难忘的约会。
 

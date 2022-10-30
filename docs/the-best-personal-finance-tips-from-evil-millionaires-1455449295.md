@@ -1,6 +1,6 @@
 # 邪恶百万富翁的最佳个人理财建议
 
-> 原文:[https://life hacker . com/the-best-personal-finance-tips-from-evil-millionaires-1455449295](https://lifehacker.com/the-best-personal-finance-tips-from-evil-millionaires-1455449295)
+> 原文：<https://lifehacker.com/the-best-personal-finance-tips-from-evil-millionaires-1455449295>
 
 某人的邪恶 [并不意味着他不能教给我们一些有价值的东西](https://lifehacker.com/10-surprisingly-inspirational-quotes-from-evil-people-1454328362) ，世界上的百万富翁也没有什么不同。尽管你可能认为他们中的一些人是邪恶的，但毫无疑问，他们知道如何积累财富。考虑到这一点，以下是邪恶的百万富翁给出的一些最适用的建议(不包括洗钱)。
 

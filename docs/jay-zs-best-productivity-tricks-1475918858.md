@@ -1,6 +1,6 @@
 # Jay-Z 的最佳生产力技巧
 
-> 原文:[https://life hacker . com/Jay-zs-best-productivity-tricks-1475918858](https://lifehacker.com/jay-zs-best-productivity-tricks-1475918858)
+> 原文：<https://lifehacker.com/jay-zs-best-productivity-tricks-1475918858>
 
 [Jay-Z](http://en.wikipedia.org/wiki/Jay-Z) 已售出约 5000 万张唱片，收录了 17 张格莱美的唱片，净资产约为 5 亿美元，每年仍在设法制作几首歌曲和几张专辑。为了纪念 Jay-Z 的生日，我们决定看看这些年来他是如何做到高产的。
 

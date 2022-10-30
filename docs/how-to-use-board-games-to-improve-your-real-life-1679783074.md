@@ -1,6 +1,6 @@
 # 如何利用桌游改善你的现实生活
 
-> 原文:[https://life hacker . com/how-to-use-board-games-to-improve-your-real-life-1679783074](https://lifehacker.com/how-to-use-board-games-to-improve-your-real-life-1679783074)
+> 原文：<https://lifehacker.com/how-to-use-board-games-to-improve-your-real-life-1679783074>
 
 如果你在玩棋盘游戏，你的目标不一定是赢，而是玩得开心。尽管如此，当你没有获胜的机会时，一场比赛可能很难享受。以下是你如何在棋盘游戏中变得更好，以及如何在你的工作场所、人际关系、友谊和现实生活的其他领域提高这些技巧。
 

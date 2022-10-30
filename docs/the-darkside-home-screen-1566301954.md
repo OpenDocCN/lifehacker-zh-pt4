@@ -1,6 +1,6 @@
 # 黑暗面主屏幕
 
-> 原文:[https://lifehacker.com/the-darkside-home-screen-1566301954](https://lifehacker.com/the-darkside-home-screen-1566301954)
+> 原文：<https://lifehacker.com/the-darkside-home-screen-1566301954>
 
 Android:虽然它既不吸引天行者，也不与超人战斗，但这个黑暗面主题不仅引人注目，而且使用起来很简洁。它使用一个独特的拨号式界面将所有东西放在一个地方。
 

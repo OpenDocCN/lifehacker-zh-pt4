@@ -1,6 +1,6 @@
 # 什么研究告诉我们最成功的关系
 
-> 原文:[https://life hacker . com/what-research-tell-us-about-the-most-successful-relati-1552386916](https://lifehacker.com/what-research-tells-us-about-the-most-successful-relati-1552386916)
+> 原文：<https://lifehacker.com/what-research-tells-us-about-the-most-successful-relati-1552386916>
 
 完美的关系没有唯一的“公式”。然而，我们已经研究了很多关于成功夫妇的事情。每个人的关系都有一点不同，但是我们可以从我们知道有效的关系中吸取很多东西。
 

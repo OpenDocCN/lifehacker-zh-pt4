@@ -1,6 +1,6 @@
 # 谷歌没有宣布的 Android L 最酷的新功能
 
-> 原文:[https://life hacker . com/the-cool-new-features-of-Android-l-Google-not-anno-1596944149](https://lifehacker.com/the-coolest-new-features-of-android-l-google-didnt-anno-1596944149)
+> 原文：<https://lifehacker.com/the-coolest-new-features-of-android-l-google-didnt-anno-1596944149>
 
 谷歌本周早些时候宣布了 Android L，预计将于秋季发布。有很多 [很酷的新功能](https://lifehacker.com/updating-all-the-new-stuff-in-androids-l-release-prev-1595928268) ，但是在玩了 [开发者预览版](http://lifehacker.com/how-to-install-the-android-l-developer-preview-on-your-1596531372) 之后，我们发现了一堆 Google 没有提到的甜东西。以下是谷歌*在声明中没有强调的最酷的功能。*
 

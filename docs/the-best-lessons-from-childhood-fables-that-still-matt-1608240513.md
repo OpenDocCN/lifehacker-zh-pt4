@@ -1,6 +1,6 @@
 # 童年寓言的最佳教训(对成年人来说仍然重要)
 
-> 原文:[https://life hacker . com/the-best-lessons-from-childhood-fables-that-still-matt-1608240513](https://lifehacker.com/the-best-lessons-from-childhood-fables-that-still-matt-1608240513)
+> 原文：<https://lifehacker.com/the-best-lessons-from-childhood-fables-that-still-matt-1608240513>
 
 当我们还是孩子的时候，寓言和其他道德故事就进入了我们的书籍和漫画中，但是在这个过程中，我们可能已经忘记了它们教给我们的一些重要的课程。也许你听说过这些，也许你没有，但这里有一些无论你是什么年龄都可以学到的最好的教训。
 

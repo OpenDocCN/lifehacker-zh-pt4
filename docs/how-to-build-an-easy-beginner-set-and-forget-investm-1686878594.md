@@ -1,6 +1,6 @@
 # 如何建立一个简单的、初学者的“一劳永逸”的投资组合
 
-> 原文:[https://life hacker . com/how-to-build-a-easy-beginner-set-and-forget-investm-1686878594](https://lifehacker.com/how-to-build-an-easy-beginner-set-and-forget-investm-1686878594)
+> 原文：<https://lifehacker.com/how-to-build-an-easy-beginner-set-and-forget-investm-1686878594>
 
 许多人不投资，因为它似乎过于复杂。但是如果你想积累财富，现在投资是最简单的方法——任何人都可以做到。这里有一些基本的步骤来建立一个简单的、初学者的投资组合，让你在睡觉的时候也能赚钱。
 

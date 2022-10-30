@@ -1,6 +1,6 @@
 # 向我们展示你最喜欢的浴室技巧
 
-> 原文:[https://life hacker . com/show-us-your-favorite-浴室黑客-1448825389](https://lifehacker.com/show-us-your-favorite-bathroom-hack-1448825389)
+> 原文：<https://lifehacker.com/show-us-your-favorite-bathroom-hack-1448825389>
 
 准备睡觉了。准备工作。回应自然的召唤。照顾你的牙齿、皮肤、孩子和宠物。我们大部分时间都在浴室里度过。你想出了什么聪明的办法让这段时间变得轻松一点？
 

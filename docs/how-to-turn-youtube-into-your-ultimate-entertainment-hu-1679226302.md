@@ -1,6 +1,6 @@
 # 如何将 YouTube 变成你的终极娱乐中心
 
-> 原文:[https://life hacker . com/how-to-turn-YouTube-into-your ' s ultimate-entertainment-Hu-1679226302](https://lifehacker.com/how-to-turn-youtube-into-your-ultimate-entertainment-hu-1679226302)
+> 原文：<https://lifehacker.com/how-to-turn-youtube-into-your-ultimate-entertainment-hu-1679226302>
 
 YouTube 在播放流媒体音乐和观看有趣的自制视频方面非常棒，但它也可以成为你有组织的在线媒体和离线音乐的主要来源。以下是如何释放 YouTube 的真正力量，并将其用于不仅仅是猫的视频。
 

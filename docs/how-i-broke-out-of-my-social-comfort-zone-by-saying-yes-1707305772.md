@@ -1,6 +1,6 @@
 # 我是如何打破我的社交舒适区，对一切都说“是”
 
-> 原文:[https://life hacker . com/how-I-break-out-of-my-social-comfort-zone-by-say-yes-1707305772](https://lifehacker.com/how-i-broke-out-of-my-social-comfort-zone-by-saying-yes-1707305772)
+> 原文：<https://lifehacker.com/how-i-broke-out-of-my-social-comfort-zone-by-saying-yes-1707305772>
 
 从我记事起，我就倾向于对社会计划说“不”。如果有些事情不在我的舒适区内，我会尽量避免。但是有一个问题:当你没有经历新事物的时候，生活会变得很无聊。我的情绪最近介于极度低迷和“今天是星期几有什么关系？”
 

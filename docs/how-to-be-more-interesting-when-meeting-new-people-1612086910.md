@@ -1,6 +1,6 @@
 # 如何在认识新朋友时变得更有趣
 
-> 原文:[https://life hacker . com/how-to-be-more-interest-when-meeting-new-people-1612086910](https://lifehacker.com/how-to-be-more-interesting-when-meeting-new-people-1612086910)
+> 原文：<https://lifehacker.com/how-to-be-more-interesting-when-meeting-new-people-1612086910>
 
 你可能会认为有趣是一种与生俱来的天赋，或者这意味着你必须成为“派对的灵魂”这两件事都不一定是真的。如果你想给人留下好印象，你不必确保所有的目光都盯着你。这里有一些任何人都可以在任何社交场合使用的技巧。
 

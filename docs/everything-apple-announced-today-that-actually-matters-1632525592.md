@@ -1,6 +1,6 @@
 # 苹果今天宣布的所有真正重要的事情
 
-> 原文:[https://life hacker . com/everything-apple-announced-today-that-actually-matters-1632525592](https://lifehacker.com/everything-apple-announced-today-that-actually-matters-1632525592)
+> 原文：<https://lifehacker.com/everything-apple-announced-today-that-actually-matters-1632525592>
 
 苹果公司今天举行了盛大的活动，发布了许多新的硬件。我们观看了整个事件，所以你不必，所以从新的 iPhone 到 Apple Watch，这里有你需要知道的一切。
 

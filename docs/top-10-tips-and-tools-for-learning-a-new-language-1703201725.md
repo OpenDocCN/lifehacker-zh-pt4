@@ -1,6 +1,6 @@
 # 学习新语言的 10 大技巧和工具
 
-> 原文:[https://life hacker . com/top-10-tips-and-tools-for-learning a-new-language-1703201725](https://lifehacker.com/top-10-tips-and-tools-for-learning-a-new-language-1703201725)
+> 原文：<https://lifehacker.com/top-10-tips-and-tools-for-learning-a-new-language-1703201725>
 
 掌握另一种语言是一项有价值的技能——这种技能可以 [提高你的工资](http://lifehacker.com/how-much-money-learning-a-foreign-language-is-worth-1546400464)[提高你的大脑](http://lifehacker.com/learning-a-second-language-can-give-your-brain-a-boost-5895128) 。虽然学习一门外语有很多途径，但这里有十种最可靠的方法可以让你成为双语者甚至多语者。
 

@@ -1,6 +1,6 @@
 # 七月最好买的东西
 
-> 原文:[https://life hacker . com/the-best-things-to-buy-in-July-571828886](https://lifehacker.com/the-best-things-to-buy-in-july-571828886)
+> 原文：<https://lifehacker.com/the-best-things-to-buy-in-july-571828886>
 
 夏天正如火如荼地进行着，随之而来的是一系列家居用品和古怪玩具的交易。以下是这个月最值得买的东西。
 

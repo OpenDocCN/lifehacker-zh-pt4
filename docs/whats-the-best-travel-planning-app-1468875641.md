@@ -1,6 +1,6 @@
 # 最好的旅行规划 App 是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-travel-planning-app-1468875641](https://lifehacker.com/whats-the-best-travel-planning-app-1468875641)
+> 原文：<https://lifehacker.com/whats-the-best-travel-planning-app-1468875641>
 
 旅游季节很快就要到了，机票、酒店预订、租车、行程和其他计划让人抓狂。你使用哪个应用程序或服务来保持一切井然有序，以便按时安全到达目的地？本周，我们想听听哪些旅行规划服务是最好的。
 

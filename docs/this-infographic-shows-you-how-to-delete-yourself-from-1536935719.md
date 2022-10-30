@@ -1,6 +1,6 @@
 # 这张信息图向你展示了如何从互联网上删除自己
 
-> 原文:[https://life hacker . com/this-infograph-shows-you-how-to-delete-you-you-from-1536935719](https://lifehacker.com/this-infographic-shows-you-how-to-delete-yourself-from-1536935719)
+> 原文：<https://lifehacker.com/this-infographic-shows-you-how-to-delete-yourself-from-1536935719>
 
 准备好抹去你的痕迹，消失在网上，一劳永逸？这张由谁主办的信息图揭示了你需要采取的九个步骤来删除你在网上收集的个人信息。
 

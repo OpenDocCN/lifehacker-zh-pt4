@@ -1,6 +1,6 @@
 # 五个优秀的，可定制的起始页来取代 iGoogle
 
-> 原文:[https://life hacker . com/five-excellent-customized-start-pages-to-replace-IGO-5923751](https://lifehacker.com/five-excellent-customizable-start-pages-to-replace-igo-5923751)
+> 原文：<https://lifehacker.com/five-excellent-customizable-start-pages-to-replace-igo-5923751>
 
 谷歌将于 11 月 1 日(本周五)关闭超级定制的 iGoogle 起始页 ，但这种 [并不意味着](http://lifehacker.com/how-to-move-on-when-a-service-you-love-shuts-down-5942544) 你无法获得每日新闻和其他小工具。这里有五个替代 iGoogle 的好方法，你可以用它们作为你的新的任意起始页。
 

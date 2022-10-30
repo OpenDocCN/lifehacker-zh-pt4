@@ -1,6 +1,6 @@
 # 最好的一体机电脑是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-all-in-one-computer-1689403754](https://lifehacker.com/whats-the-best-all-in-one-computer-1689403754)
+> 原文：<https://lifehacker.com/whats-the-best-all-in-one-computer-1689403754>
 
 一体式台式电脑可能很棒。它们不占太多空间，以适中的价格提供桌面大小的功能和一个漂亮的大显示器。最好的放在你的桌子上看起来很棒，不会占用太多空间，而且还有一些其他的好处。本周，我们想知道你认为哪些是最好的。
 

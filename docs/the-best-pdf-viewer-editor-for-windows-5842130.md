@@ -1,6 +1,6 @@
 # Windows 的最佳 PDF 浏览器/编辑器
 
-> 原文:[https://life hacker . com/the-best-pdf-viewer-editor-for-windows-5842130](https://lifehacker.com/the-best-pdf-viewer-editor-for-windows-5842130)
+> 原文：<https://lifehacker.com/the-best-pdf-viewer-editor-for-windows-5842130>
 
 您选择的 PDF 查看器实际上取决于您需要对下载的 PDF 做什么，但当涉及到查看*和*编辑 PDF 时，PDF-XChange Editor 是最好的程序。[跳]
 

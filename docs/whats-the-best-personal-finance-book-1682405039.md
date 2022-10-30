@@ -1,6 +1,6 @@
 # 最好的个人理财书是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-personal-finance-book-1682405039](https://lifehacker.com/whats-the-best-personal-finance-book-1682405039)
+> 原文：<https://lifehacker.com/whats-the-best-personal-finance-book-1682405039>
 
 个人理财可能是一个令人望而生畏的话题。储蓄、预算、投资——看起来很容易，但如果真的很容易，每个人都会去做，没有人会为财务问题而挣扎。这个星期，我们想让它变得更容易，一些关于这个话题的好书可以阅读。你认为哪些是最好的？
 

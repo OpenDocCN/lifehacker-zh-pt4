@@ -1,6 +1,6 @@
 # 最好的非标准工具，放在你的工具箱里
 
-> 原文:[https://life hacker . com/the-best-non-standard-tools-to-keep-in-your-toolbox-1579830369](https://lifehacker.com/the-best-non-standard-tools-to-keep-in-your-toolbox-1579830369)
+> 原文：<https://lifehacker.com/the-best-non-standard-tools-to-keep-in-your-toolbox-1579830369>
 
 每个人都有他们离不开的工具。我们都有像螺丝刀和钳子这样的基本工具，但我们敢打赌，在你的工具包里还有其他不那么传统的工具。也许是一个特定的多功能工具，一个特殊的螺丝刀，或者一个完美尺寸的 spudger。不管是什么，让我们列出这些令人敬畏的工具，这样我们就不用再去发现它们了。
 

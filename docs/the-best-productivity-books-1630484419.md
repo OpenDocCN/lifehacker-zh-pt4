@@ -1,6 +1,6 @@
 # 最佳生产力书籍
 
-> 原文:[https://life hacker . com/the-best-productivity-books-1630484419](https://lifehacker.com/the-best-productivity-books-1630484419)
+> 原文：<https://lifehacker.com/the-best-productivity-books-1630484419>
 
 关于生产力的书籍可以是很好的投资，奖励我们更好的工作方式，保持创造力，减少压力。让我们建立一个我们最喜欢的列表。
 

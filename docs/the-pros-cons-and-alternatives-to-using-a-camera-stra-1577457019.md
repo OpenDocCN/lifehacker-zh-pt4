@@ -1,6 +1,6 @@
 # 使用相机带的利弊和替代方案
 
-> 原文:[https://life hacker . com/the-pros-consens-and-alternatives-to-use-a-camera-stra-1577457019](https://lifehacker.com/the-pros-cons-and-alternatives-to-using-a-camera-stra-1577457019)
+> 原文：<https://lifehacker.com/the-pros-cons-and-alternatives-to-using-a-camera-stra-1577457019>
 
 相机背带会给你带来安全和保障，但它们并不总是舒适的，而且它们可能会碍事。在[*Stack Exchange*](http://photography.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=photography-118)*的照片专家就你是否需要一条表带提供了一些建议，并给出了一些备选方案。*
 

@@ -1,6 +1,6 @@
 # 如何(以及为什么)放弃 Dropbox 并使用 BitTorrent Sync 同步文件
 
-> 原文:[https://life hacker . com/how-and-why-to-ditch-Dropbox-and-sync-files-with-bitt-1686702811](https://lifehacker.com/how-and-why-to-ditch-dropbox-and-sync-files-with-bitt-1686702811)
+> 原文：<https://lifehacker.com/how-and-why-to-ditch-dropbox-and-sync-files-with-bitt-1686702811>
 
 Dropbox(以及类似的云服务)很棒，但是它们不能给你太多的控制权、安全性或文件隐私。如果你想把控制权掌握在自己手中，同时又不失去云同步服务的特性， [BitTorrent Sync](http://www.getsync.com/) 就是为你准备的服务。以下是使用方法。
 

@@ -1,6 +1,6 @@
 # 快速提高我写作水平的六个策略
 
-> 原文:[https://life hacker . com/six-strategies-that-has-the-quick-improved-my-writing-1510969008](https://lifehacker.com/six-strategies-that-have-quickly-improved-my-writing-1510969008)
+> 原文：<https://lifehacker.com/six-strategies-that-have-quickly-improved-my-writing-1510969008>
 
 在我担任[缓冲](http://bufferapp.com/) 的这半年里，我一直在 [写很多](http://blog.bufferapp.com/) 。我也一直试着定期在我自己的博客 和我的 [创业](http://exist.io/blog/) 上写东西。写了很多。在这段时间里，我一直在尝试对我的工作流程、写作过程和我创作的内容类型做一些小的改变。
 

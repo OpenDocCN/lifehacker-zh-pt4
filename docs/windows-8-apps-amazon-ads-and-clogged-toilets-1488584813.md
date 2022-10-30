@@ -1,6 +1,6 @@
 # Windows 8 应用、亚马逊广告和堵塞的厕所
 
-> 原文:[https://life hacker . com/windows-8-apps-亚马逊-广告-堵塞的厕所-1488584813](https://lifehacker.com/windows-8-apps-amazon-ads-and-clogged-toilets-1488584813)
+> 原文：<https://lifehacker.com/windows-8-apps-amazon-ads-and-clogged-toilets-1488584813>
 
 读者为 Windows 8 应用程序提供最佳建议，禁用其他网站上的个性化亚马逊广告，以及疏通厕所。
 

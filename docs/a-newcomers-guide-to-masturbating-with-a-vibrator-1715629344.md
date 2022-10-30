@@ -1,6 +1,6 @@
 # 新手指南用振动器手淫
 
-> 原文:[https://life hacker . com/a-新人-用振动器手淫指南-1715629344](https://lifehacker.com/a-newcomers-guide-to-masturbating-with-a-vibrator-1715629344)
+> 原文：<https://lifehacker.com/a-newcomers-guide-to-masturbating-with-a-vibrator-1715629344>
 
 有很多振动器散播恐惧，主要来自那些受到女性性权利威胁的白痴。担心你会对振动器上瘾？或者你的男性伴侣会被你使用振动器吓到？让我们打破常规，谈谈如何让你的振动器成为你自慰生活中健康的一部分。
 

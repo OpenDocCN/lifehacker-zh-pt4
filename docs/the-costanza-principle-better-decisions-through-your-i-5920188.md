@@ -1,6 +1,6 @@
 # 克斯坦萨原则:通过你内心的逆向思维做出更好的决定
 
-> 原文:[https://life hacker . com/the-co stanza-principle-better-decisions-through-your-I-5920188](https://lifehacker.com/the-costanza-principle-better-decisions-through-your-i-5920188)
+> 原文：<https://lifehacker.com/the-costanza-principle-better-decisions-through-your-i-5920188>
 
 当谈到做出坚定、客观的决定时，你大概是地球上最不应该信任的人。所以今天，我们要从宋飞的《T4》中选取一页。
 

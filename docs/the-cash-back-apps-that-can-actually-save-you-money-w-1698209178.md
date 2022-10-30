@@ -1,6 +1,6 @@
 # 购物时真正能帮你省钱的“返现”应用
 
-> 原文:[https://life hacker . com/the-cash-back-apps-the-can-actually-save-you money-w-1698209178](https://lifehacker.com/the-cash-back-apps-that-can-actually-save-you-money-w-1698209178)
+> 原文：<https://lifehacker.com/the-cash-back-apps-that-can-actually-save-you-money-w-1698209178>
 
 在过去的几年里，出现了大量的应用程序，承诺你购买的任何东西都可以退款——但其中一半比它们的价值更令人头疼。以下是你应该真正看一看的(也是那些只会浪费你时间的)。
 

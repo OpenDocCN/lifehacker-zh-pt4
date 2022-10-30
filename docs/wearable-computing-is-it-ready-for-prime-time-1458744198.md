@@ -1,6 +1,6 @@
 # 可穿戴计算:黄金时间到了吗？
 
-> 原文:[https://life hacker . com/wearable-computing-is-it-ready-for-prime-time-1458744198](https://lifehacker.com/wearable-computing-is-it-ready-for-prime-time-1458744198)
+> 原文：<https://lifehacker.com/wearable-computing-is-it-ready-for-prime-time-1458744198>
 
 随着智能手表、谷歌眼镜和可穿戴计算的大肆宣传，你会认为革命已经发生了。尽管如此，假日购物季即将来临。可穿戴设备应该在你的清单上吗？
 

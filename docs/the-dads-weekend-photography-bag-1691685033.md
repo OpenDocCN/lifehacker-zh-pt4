@@ -1,6 +1,6 @@
 # 爸爸的周末摄影包
 
-> 原文:[https://life hacker . com/the-dads-weekend-photography-bag-1691685033](https://lifehacker.com/the-dads-weekend-photography-bag-1691685033)
+> 原文：<https://lifehacker.com/the-dads-weekend-photography-bag-1691685033>
 
 作为一个父亲，意味着你要在游乐场、博物馆或溜冰场度过周末。摄像师/摄影师兼 Lifehacker 读者 Mark Henderson 分享了他为确保尽可能捕捉所有特殊时刻而付出的努力。
 

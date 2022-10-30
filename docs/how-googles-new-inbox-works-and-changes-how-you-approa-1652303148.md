@@ -1,6 +1,6 @@
 # Gmail 收件箱如何工作，以及如何使用它来提高电子邮件的效率
 
-> 原文:[https://life hacker . com/how-Google-new-inbox-works-and-changes-how-you-appura-1652303148](https://lifehacker.com/how-googles-new-inbox-works-and-changes-how-you-approa-1652303148)
+> 原文：<https://lifehacker.com/how-googles-new-inbox-works-and-changes-how-you-approa-1652303148>
 
 上周，谷歌发布了一款全新的电子邮件服务 ，名为 [收件箱](https://play.google.com/store/apps/details?id=com.google.android.apps.inbox) 。如果你不熟悉 Inbox，或者只是对它的功能和工作方式感到困惑，下面是我们将它作为日常驱动程序使用一周后的发现。
 

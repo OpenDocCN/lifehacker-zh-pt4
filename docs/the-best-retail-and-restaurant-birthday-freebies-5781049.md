@@ -1,6 +1,6 @@
 # 最佳零售和餐馆生日赠品
 
-> 原文:[https://life hacker . com/the-best-retail-and-restaurant-birthday-freebies-5781049](https://lifehacker.com/the-best-retail-and-restaurant-birthday-freebies-5781049)
+> 原文：<https://lifehacker.com/the-best-retail-and-restaurant-birthday-freebies-5781049>
 
 今天是你的生日，这意味着是时候开始收集礼物了。许多零售商为生日当天或临近生日的人提供、优惠券或折扣。我们收集了一些主要零售商和餐馆的最佳生日赠品，并把它们放在一个方便的图表中，当你的生日到来时可以参考。
 

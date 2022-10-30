@@ -1,6 +1,6 @@
 # 没有有效的保修，如何获得免费维修
 
-> 原文:[https://life hacker . com/how-to-get-free-repair-without-a-valid-warranty-5952350](https://lifehacker.com/how-to-get-free-repairs-without-a-valid-warranty-5952350)
+> 原文：<https://lifehacker.com/how-to-get-free-repairs-without-a-valid-warranty-5952350>
 
 没有什么比一个小玩意坏了，发现要花几百美元才能修好更糟糕的了。没钱花在维修上？即使你的保修不适用，这里也有一些修理它的技巧。
 

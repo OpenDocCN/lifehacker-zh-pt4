@@ -1,6 +1,6 @@
 # 如何安装免费、有效的杀毒软件(初学者)
 
-> 原文:[https://life hacker . com/how-to-install-free-effective-anti-virus-software-for-5807250](https://lifehacker.com/how-to-install-free-effective-antivirus-software-for-5807250)
+> 原文：<https://lifehacker.com/how-to-install-free-effective-antivirus-software-for-5807250>
 
 任何运行 Windows 电脑的人都知道拥有好的防病毒软件有多重要——但是你不需要为好的保护付费！如果你认识的人还没有运行防病毒软件，这里有一个快速指南，你可以发给他们，帮助他们安装。
 

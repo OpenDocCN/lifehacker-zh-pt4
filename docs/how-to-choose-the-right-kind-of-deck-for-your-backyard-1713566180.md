@@ -1,6 +1,6 @@
 # 如何为你的后院选择合适的甲板
 
-> 原文:[https://life hacker . com/how-to-choose-the-right-kind-of-deck for-your-后院-1713566180](https://lifehacker.com/how-to-choose-the-right-kind-of-deck-for-your-backyard-1713566180)
+> 原文：<https://lifehacker.com/how-to-choose-the-right-kind-of-deck-for-your-backyard-1713566180>
 
 户外平台为夏季烧烤创造了完美的空间，并为任何院子增添了的视觉吸引力。但是你可以用任何东西做甲板，这就引出了一个问题:哪种材料是最好的？
 

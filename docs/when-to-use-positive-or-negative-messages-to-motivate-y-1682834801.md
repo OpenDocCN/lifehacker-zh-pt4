@@ -1,6 +1,6 @@
 # 何时使用积极或消极的信息来激励自己
 
-> 原文:[https://life hacker . com/when-to-use-positive-or-negative-messages-to-motivate-y-1682834801](https://lifehacker.com/when-to-use-positive-or-negative-messages-to-motivate-y-1682834801)
+> 原文：<https://lifehacker.com/when-to-use-positive-or-negative-messages-to-motivate-y-1682834801>
 
 积极思考是激励自己保持健康习惯的好方法...但 [负面消息](http://lifehacker.com/the-positive-power-of-negative-thinking-1459381519) 也是如此，像是害怕失败。一份关于动机背后的心理学的新综述给了我们四种方法来决定什么时候积极或消极的信息最有效。
 

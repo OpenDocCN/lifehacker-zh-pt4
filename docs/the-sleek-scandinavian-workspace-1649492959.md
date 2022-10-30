@@ -1,6 +1,6 @@
 # 时尚的斯堪的纳维亚工作空间
 
-> 原文:[https://life hacker . com/the-sleek-Scandinavian-workspace-1649492959](https://lifehacker.com/the-sleek-scandinavian-workspace-1649492959)
+> 原文：<https://lifehacker.com/the-sleek-scandinavian-workspace-1649492959>
 
 这个以白色为主、黑色和自然色调为辅的工作空间清新明亮，简约而不乏味。
 

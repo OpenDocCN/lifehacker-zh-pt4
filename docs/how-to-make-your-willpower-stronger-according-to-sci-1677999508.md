@@ -1,6 +1,6 @@
 # 如何让你的意志力更强——根据科学
 
-> 原文:[https://gizmodo . com/how-to-make-your wildership-strong-据 sci-1677999508](https://gizmodo.com/how-to-make-your-willpower-stronger-according-to-sci-1677999508)
+> 原文：<https://gizmodo.com/how-to-make-your-willpower-stronger-according-to-sci-1677999508>
 
 假期结束了，是时候认真对待你的新年计划了。但是那些美好的意图只和你的自制力一样好。以下是你需要了解的关于意志力的神经科学——以及你能做些什么来让你的意志更加坚强。
 

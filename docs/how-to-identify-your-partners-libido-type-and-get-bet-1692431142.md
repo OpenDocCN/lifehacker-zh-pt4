@@ -1,6 +1,6 @@
 # 如何识别伴侣的“力比多类型”，在床上变得更好
 
-> 原文:[https://life hacker . com/how-to-identify-your-partners-libido-type-and-get-bet-1692431142](https://lifehacker.com/how-to-identify-your-partners-libido-type-and-get-bet-1692431142)
+> 原文：<https://lifehacker.com/how-to-identify-your-partners-libido-type-and-get-bet-1692431142>
 
 有没有在一段关系中，你们对性有完全不同的看法？也许他们总是很紧张，拒绝你，或者抱怨不够热情。每个人都有不同类型的性冲动，弄清楚你伴侣的类型会让你的生活变得轻松很多，也会让你的性生活变得更美好。
 

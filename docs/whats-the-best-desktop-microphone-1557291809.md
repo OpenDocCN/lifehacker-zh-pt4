@@ -1,6 +1,6 @@
 # 最好的桌面麦克风是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-desktop-microphone-1557291809](https://lifehacker.com/whats-the-best-desktop-microphone-1557291809)
+> 原文：<https://lifehacker.com/whats-the-best-desktop-microphone-1557291809>
 
 无论你是播客，与同事或朋友视频聊天，还是 YouTube 上的名人，你都需要一个好的桌面麦克风。我们已经谈论了如何选择最适合你的，但本周我们想听听你认为哪些最适合这份工作。
 

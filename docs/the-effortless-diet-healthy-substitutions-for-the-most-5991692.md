@@ -1,6 +1,6 @@
 # 轻松饮食:最不健康烹饪原料的健康替代品
 
-> 原文:[https://life hacker . com/the-effortless-diet-healthy-substitutions-for-the-most-5991692](https://lifehacker.com/the-effortless-diet-healthy-substitutions-for-the-most-5991692)
+> 原文：<https://lifehacker.com/the-effortless-diet-healthy-substitutions-for-the-most-5991692>
 
 每个人都想改善自己的饮食，但要做一个全面的整改需要做很多工作。如果你想稍微放松一下，以下是如何用更健康的食物代替你最喜欢的不健康的主食。
 

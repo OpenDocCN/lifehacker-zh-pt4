@@ -1,6 +1,6 @@
 # 对于第一次学习的人来说，最好的编程语言是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-programming-language-for-first-time-lea-1493135749](https://lifehacker.com/whats-the-best-programming-language-for-first-time-lea-1493135749)
+> 原文：<https://lifehacker.com/whats-the-best-programming-language-for-first-time-lea-1493135749>
 
 想着学编码？有很多地方可以帮助你开始，其中许多地方采用不同的方法。即便如此，有些语言比其他语言提供更多的基本技能，它们更容易学习，并且它们给你一个很好的入门基础，在这个基础上你可以建立你的技能。本周我们想知道你认为他们是哪些人。
 

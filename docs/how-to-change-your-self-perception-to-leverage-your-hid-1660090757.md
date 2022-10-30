@@ -1,6 +1,6 @@
 # 如何改变你的自我认知来利用你隐藏的优势
 
-> 原文:[https://life hacker . com/how-to-change-your-self-perception-leverage-your-hid-1660090757](https://lifehacker.com/how-to-change-your-self-perception-to-leverage-your-hid-1660090757)
+> 原文：<https://lifehacker.com/how-to-change-your-self-perception-to-leverage-your-hid-1660090757>
 
 我们的自我认知往往是在我们有发言权之前就被灌输给我们的。学会改变我们看待自己的方式有助于我们发现自己隐藏的优势，或改善我们不知道自己有的弱点，从而在生活中更好地相处。
 

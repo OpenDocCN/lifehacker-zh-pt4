@@ -1,6 +1,6 @@
 # 这个计算器决定放弃电缆是否会节省你的钱
 
-> 原文:[https://life hacker . com/use-this-calculator-to-decision-if-dropping-cable-will-sa-1679043694](https://lifehacker.com/use-this-calculator-to-decide-if-dropping-cable-will-sa-1679043694)
+> 原文：<https://lifehacker.com/use-this-calculator-to-decide-if-dropping-cable-will-sa-1679043694>
 
 乍一看，放弃有线电视订阅似乎总能省钱，但根据你需要购买哪些服务来取代有线电视，情况可能并非如此。Slate 提供了一个方便的计算器来帮助你做决定。
 

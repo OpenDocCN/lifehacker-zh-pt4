@@ -1,6 +1,6 @@
 # 赠送改善生活的书籍
 
-> 原文:[https://life hacker . com/give-the-give-gift-the-life-improving-books-1666810773](https://lifehacker.com/give-the-gift-of-life-improving-books-1666810773)
+> 原文：<https://lifehacker.com/give-the-gift-of-life-improving-books-1666810773>
 
 每个人都喜欢一本好书，虽然小说可以教你很多关于生活的知识，但有时最能改变生活的书也会提供直截了当的生活建议。这里有一些很棒的书给你名单上的人。
 

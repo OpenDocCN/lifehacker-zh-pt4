@@ -1,6 +1,6 @@
 # 获得免费食物(和网络)的学生指南
 
-> 原文:[https://life hacker . com/the-students-guide-to-acquiring-free-food-and-network I-1674069348](https://lifehacker.com/the-students-guide-to-acquiring-free-food-and-networki-1674069348)
+> 原文：<https://lifehacker.com/the-students-guide-to-acquiring-free-food-and-networki-1674069348>
 
 你是学生吗？你今天吃过免费餐了吗？如果没有，你就错过了。几乎在任何一所大学校园里，到处都有免费的食物等待采摘。读者
 

@@ -1,6 +1,6 @@
 # 我如何学会不再唠叨我的孩子，并开始激励他们
 
-> 原文:[https://life hacker . com/how-I-learn-to-stop-fabring-my-kids-and-start-motivat-1464670051](https://lifehacker.com/how-i-learned-to-stop-nagging-my-kids-and-start-motivat-1464670051)
+> 原文：<https://lifehacker.com/how-i-learned-to-stop-nagging-my-kids-and-start-motivat-1464670051>
 
 我敢打赌，你以前一定遇到过“积极强化”这个术语——但是说实话，你知道它真正的意思吗？不久前，我决定加入正面强化的行列。只是，我不太清楚我应该做什么。最糟糕的部分？我读得越多，就越感到困惑。
 

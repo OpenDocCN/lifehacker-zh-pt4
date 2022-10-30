@@ -1,6 +1,6 @@
 # 我希望在开始为自己工作时就知道的五件事
 
-> 原文:[https://life hacker . com/five-things-I-wish-I-known-when-I-started-working-f-1497900668](https://lifehacker.com/five-things-i-wish-i-had-known-when-i-started-working-f-1497900668)
+> 原文：<https://lifehacker.com/five-things-i-wish-i-had-known-when-i-started-working-f-1497900668>
 
 自己当老板太棒了！做自己的老板有时也是地狱！从一份在家工作的(轻松的)有薪雇员工作到成为一名自由职业者来养活自己，这是我希望在开始工作时就知道的事情。
 

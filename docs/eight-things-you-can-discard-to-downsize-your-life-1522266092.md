@@ -1,6 +1,6 @@
 # 为了缩减生活，你可以放弃的八件事
 
-> 原文:[https://life hacker . com/eight-things-you-can-discard-to-downsize-your-life-1522266092](https://lifehacker.com/eight-things-you-can-discard-to-downsize-your-life-1522266092)
+> 原文：<https://lifehacker.com/eight-things-you-can-discard-to-downsize-your-life-1522266092>
 
 过正常生活我们到底需要多少东西？没有你想的那么多。2009 年，我搬进了一个 200 平方英尺的小屋。租金和地理位置都很棒，但有一个问题:我一半的东西都放不下。所以我把它扔了。
 

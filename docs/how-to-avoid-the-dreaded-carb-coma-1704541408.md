@@ -1,6 +1,6 @@
 # 如何避免可怕的“碳水化合物昏迷”
 
-> 原文:[https://life hacker . com/how-to-避免可怕的碳水化合物昏迷-1704541408](https://lifehacker.com/how-to-avoid-the-dreaded-carb-coma-1704541408)
+> 原文：<https://lifehacker.com/how-to-avoid-the-dreaded-carb-coma-1704541408>
 
 富含碳水化合物的食物会让你在一天的晚些时候感到饥饿和暴躁，更不用说增加体重了。但是如果你真的想吃你的意大利面和土豆，你可以通过添加其他食物来让你的身体更容易处理这顿饭。煎饼和熏肉比单吃煎饼更好。
 

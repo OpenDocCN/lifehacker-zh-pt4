@@ -1,6 +1,6 @@
 # 投资如何影响你的税收
 
-> 原文:[https://life hacker . com/how-investing-affects-your-taxes-1624132288](https://lifehacker.com/how-investing-affects-your-taxes-1624132288)
+> 原文：<https://lifehacker.com/how-investing-affects-your-taxes-1624132288>
 
 投资可能会令人生畏，额外的税收规则可能会把它变成一只更大、更令人困惑的动物。这里有一个当你投资时税收如何运作的简单纲要。
 

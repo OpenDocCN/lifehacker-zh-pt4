@@ -1,6 +1,6 @@
 # 有线电视订阅带来的所有精彩内容
 
-> 原文:[https://life hacker . com/all-the-awesome-free-stuff-you-get-with-your-cable-subs-1708693202](https://lifehacker.com/all-the-awesome-free-stuff-you-get-with-your-cable-subs-1708693202)
+> 原文：<https://lifehacker.com/all-the-awesome-free-stuff-you-get-with-your-cable-subs-1708693202>
 
 切断电线 [如今风靡一时](https://lifehacker.com/the-biggest-myths-about-cutting-the-cable-cord-1566140265) ，但如果你坚持使用电缆，你不妨充分发挥它的潜力。这种订阅还附带了大量你可能不知道的应用程序、网络服务和其他额外待遇。这里有一些最好的，以及如何访问它们。
 

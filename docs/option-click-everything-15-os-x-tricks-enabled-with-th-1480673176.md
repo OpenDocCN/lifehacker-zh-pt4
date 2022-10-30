@@ -1,6 +1,6 @@
 # Option+Click Everything:用 Option 键启用 15 个 OS X 戏法
 
-> 原文:[https://life hacker . com/option-click-everything-15-OS-x-tricks-enabled-with-th-1480673176](https://lifehacker.com/option-click-everything-15-os-x-tricks-enabled-with-th-1480673176)
+> 原文：<https://lifehacker.com/option-click-everything-15-os-x-tricks-enabled-with-th-1480673176>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-2VIIz12biCg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-2VIIz12biCg&start=0) 
 

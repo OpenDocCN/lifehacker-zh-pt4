@@ -1,6 +1,6 @@
 # 为什么 FCC 的新网络中立规则对互联网有益
 
-> 原文:[https://life hacker . com/why-the-fccs-new-net-neutrality-rules-is-good-for-the-the-the-1683769527](https://lifehacker.com/why-the-fccs-new-net-neutrality-rules-are-good-for-the-1683769527)
+> 原文：<https://lifehacker.com/why-the-fccs-new-net-neutrality-rules-are-good-for-the-1683769527>
 
 今天，联邦通信委员会投票通过了开放互联网令，将互联网归类为第二章规定下的公用事业。下面是那些乱七八糟的行话的意思，以及它对你的影响。
 

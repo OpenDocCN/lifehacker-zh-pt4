@@ -1,6 +1,6 @@
 # 邮箱，伟大的 iOS Gmail 客户端，适用于 Android 和 Mac
 
-> 原文:[https://life hacker . com/mailbox-the-great-IOs-Gmail-client-available-for-andr-1561406563](https://lifehacker.com/mailbox-the-great-ios-gmail-client-available-for-andr-1561406563)
+> 原文：<https://lifehacker.com/mailbox-the-great-ios-gmail-client-available-for-andr-1561406563>
 
 我们一直很喜欢 iOS 版 的邮箱，但当它只在你的一个平台上工作时，很难使用一个专门的电子邮件应用程序。幸运的是，他们现在宣布该应用程序将在 Android 上可用，并在今天在 Mac 上进行测试。
 

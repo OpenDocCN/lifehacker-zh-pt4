@@ -1,6 +1,6 @@
 # 网恋值得吗？常见问题
 
-> 原文:[https://life hacker . com/is-online-dating-worth-it-an-FAQ-1633598636](https://lifehacker.com/is-online-dating-worth-it-an-faq-1633598636)
+> 原文：<https://lifehacker.com/is-online-dating-worth-it-an-faq-1633598636>
 
 你可能听说过网上约会。你甚至可能有几个朋友这样做。但是，尽管你很好奇，你还没有能够说服自己实际尝试一下。我们来回答你的一些迫切问题。
 

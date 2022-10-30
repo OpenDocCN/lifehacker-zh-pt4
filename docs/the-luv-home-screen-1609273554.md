@@ -1,6 +1,6 @@
 # Luv 主屏幕
 
-> 原文:[https://lifehacker.com/the-luv-home-screen-1609273554](https://lifehacker.com/the-luv-home-screen-1609273554)
+> 原文：<https://lifehacker.com/the-luv-home-screen-1609273554>
 
 简单和主屏幕就像马车一样走在一起。这个设计来自我的彩屏用户 [alicarbovader](http://mycolorscreen.com/alicarbovader@XDA/) 在一个主屏幕上展示了你需要的一切，包括天气、日历、通信徽章等等。
 

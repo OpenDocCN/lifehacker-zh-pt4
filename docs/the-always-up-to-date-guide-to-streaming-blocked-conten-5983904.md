@@ -1,6 +1,6 @@
 # 海外屏蔽内容流的最新指南
 
-> 原文:[https://life hacker . com/the-always-update-guide-to-streaming-blocked-conten-5983904](https://lifehacker.com/the-always-up-to-date-guide-to-streaming-blocked-conten-5983904)
+> 原文：<https://lifehacker.com/the-always-up-to-date-guide-to-streaming-blocked-conten-5983904>
 
 不管你在池塘的哪一边，被屏蔽的内容都是令人讨厌的。无论你是想看《奇迹年代》的重播，还是渴望体验《神秘博士 T2》，这里都有获得这些内容的最佳(也是最简单)方式。
 

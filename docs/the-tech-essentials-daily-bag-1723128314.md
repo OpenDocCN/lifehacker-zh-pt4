@@ -1,6 +1,6 @@
 # 科技必备日常包
 
-> 原文:[https://life hacker . com/the-tech-essentials-daily-bag-1723128314](https://lifehacker.com/the-tech-essentials-daily-bag-1723128314)
+> 原文：<https://lifehacker.com/the-tech-essentials-daily-bag-1723128314>
 
 使用大量技术的一个问题是组织它。读者 Chris Hardie 的解决方案是一个简单的电缆组织器和一个便于每天装载的小包。
 

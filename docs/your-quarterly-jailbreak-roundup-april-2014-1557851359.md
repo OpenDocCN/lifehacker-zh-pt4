@@ -1,6 +1,6 @@
 # 你的季度越狱摘要，2014 年 4 月
 
-> 原文:[https://life hacker . com/your-quarterly-jail break-round up-April-2014-1557851359](https://lifehacker.com/your-quarterly-jailbreak-roundup-april-2014-1557851359)
+> 原文：<https://lifehacker.com/your-quarterly-jailbreak-roundup-april-2014-1557851359>
 
 我们已经进入了 iOS 7 越狱的生命周期，这意味着越狱者将获得大量更高级的调整和应用。我们已经介绍了第一批和 [第二批](http://lifehacker.com/the-best-jailbreak-apps-and-tweaks-for-ios-7-part-ii-1506144309) 应用程序，但这里还有更多我们最喜欢的。
 

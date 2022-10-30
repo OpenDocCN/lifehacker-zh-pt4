@@ -1,6 +1,6 @@
 # 如何解决 LinkedIn 最大的烦恼
 
-> 原文:[https://life hacker . com/how-to-fix-linkedins-maximum-angioness-1567460670](https://lifehacker.com/how-to-fix-linkedins-biggest-annoyances-1567460670)
+> 原文：<https://lifehacker.com/how-to-fix-linkedins-biggest-annoyances-1567460670>
 
 无论你是喜欢它还是(很可能)讨厌它， [LinkedIn](http://linkedin.com) 是你职业生涯的领先社交网络，无论你是在 [找工作](http://lifehacker.com/how-can-i-make-linkedin-more-useful-in-landing-a-job-1066870899) 还是只想在职业层面上与他人保持联系。这也让我们中的许多人非常沮丧。以下是你如何让 LinkedIn 不那么烦人，更有用。
 

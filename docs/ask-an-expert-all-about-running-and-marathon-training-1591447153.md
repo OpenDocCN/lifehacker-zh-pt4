@@ -1,6 +1,6 @@
 # 请教专家:关于跑步和马拉松训练
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-running-and-marathon-training-1591447153](https://lifehacker.com/ask-an-expert-all-about-running-and-marathon-training-1591447153)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-running-and-marathon-training-1591447153>
 
 向杰森·菲茨杰拉德 问好，他是我们的专业跑步教练和马拉松运动员，在超过 15 年的跑步和锻炼中，他一直在帮助人们 [免受伤害](http://lifehacker.com/the-biggest-mistakes-runners-of-all-levels-make-and-ho-1030501368) 。
 

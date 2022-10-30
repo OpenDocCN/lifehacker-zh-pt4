@@ -1,6 +1,6 @@
 # 你有一个“秘密”的信用评分，可能对你不利
 
-> 原文:[https://life hacker . com/you-have-a-secret-credit-score-that-be-work-1589169255](https://lifehacker.com/you-have-a-secret-credit-score-that-could-be-working-1589169255)
+> 原文：<https://lifehacker.com/you-have-a-secret-credit-score-that-could-be-working-1589169255>
 
 你可能很熟悉你的 FICO 信用评分。你甚至可能知道你的 [Chexsystems 分数](https://lifehacker.com/how-can-i-open-a-bank-account-when-my-credit-sucks-1585417920) 。事实证明，还有另一个财务分数会影响你的金钱目标。内部人士称之为“第四局”，它跟踪从银行账户到公共事业账单到健身房会员资格的一切。
 

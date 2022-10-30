@@ -1,6 +1,6 @@
 # 如何清理和微调你的 Twitter 订阅
 
-> 原文:[https://life hacker . com/how-to-clean-up-and-fine-tune-your-Twitter-feed-1514738479](https://lifehacker.com/how-to-clean-up-and-fine-tune-your-twitter-feed-1514738479)
+> 原文：<https://lifehacker.com/how-to-clean-up-and-fine-tune-your-twitter-feed-1514738479>
 
 Twitter 是一个严肃的交流媒介，名字很傻。抛开方言不谈，Twitter 实际上对获取最新信息非常有用。当然，前提是你知道如何得到好的东西，过滤掉垃圾。
 

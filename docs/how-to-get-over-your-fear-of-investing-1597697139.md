@@ -1,6 +1,6 @@
 # 如何克服对投资的恐惧
 
-> 原文:[https://life hacker . com/how-to-get-over-your-fear-of-investment-1597697139](https://lifehacker.com/how-to-get-over-your-fear-of-investing-1597697139)
+> 原文：<https://lifehacker.com/how-to-get-over-your-fear-of-investing-1597697139>
 
 前不久，我们的读者被问到(谈论你的个人财务旅程)“ [下一步是什么？](http://www.getrichslowly.org/blog/2013/03/08/ask-the-readers-what-is-the-next-step/)”j . d .在他的 [2009 年文章](http://www.getrichslowly.org/blog/2009/02/06/what-next-the-third-stage-of-personal-finance/) 中给出了答案:第三阶段是……**投资。**
 

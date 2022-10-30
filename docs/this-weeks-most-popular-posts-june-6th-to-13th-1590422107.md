@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:6 月 6 日至 13 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-June-6-6-to-13-1590422107](https://lifehacker.com/this-weeks-most-popular-posts-june-6th-to-13th-1590422107)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-june-6th-to-13th-1590422107>
 
 本周我们 [了解了隐性工作面试测试](https://lifehacker.com/look-out-for-a-hidden-test-at-your-next-job-interview-1587095685)[在好市多省钱](http://lifehacker.com/top-10-ways-to-save-more-money-at-costco-and-other-ware-1586789318)[揭穿了一些酒精神话](http://lifehacker.com/eight-stubborn-alcohol-myths-debunked-by-science-1589574974)[流播了第一场世界杯比赛](http://lifehacker.com/how-to-stream-the-2014-world-cup-1587280464) 。这里回顾一下。
 

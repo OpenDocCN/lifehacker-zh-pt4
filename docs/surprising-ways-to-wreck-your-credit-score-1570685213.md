@@ -1,6 +1,6 @@
 # 令人惊讶的方式，你可以破坏你的信用评分
 
-> 原文:[https://life hacker . com/surviving-ways-wreck-your-credit-score-1570685213](https://lifehacker.com/surprising-ways-to-wreck-your-credit-score-1570685213)
+> 原文：<https://lifehacker.com/surprising-ways-to-wreck-your-credit-score-1570685213>
 
 你可能已经知道，不按时支付账单或让你的账户被收账会损害你的信用。但是也有很多意想不到的方法来破坏你的分数。看看这些令人惊讶的损害你信用的方式——如果可能的话，避免它们。
 

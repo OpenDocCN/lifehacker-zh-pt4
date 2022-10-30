@@ -1,6 +1,6 @@
 # 如何一劳永逸地摆脱“妈妈内疚”(或爸爸内疚)
 
-> 原文:[https://life hacker . com/how-to-get-off-the-once-and-1679504610](https://lifehacker.com/how-to-get-rid-of-mommy-guilt-or-daddy-guilt-once-and-1679504610)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-mommy-guilt-or-daddy-guilt-once-and-1679504610>
 
 当你的新宝宝投入你的怀抱时，一系列全新的情绪涌上心头——骄傲、喜悦、惊奇、恐惧，是的，还有内疚。因为作为这个孩子的监护人，你做的或没做的一切都是你的错，永远都是你的错，T2。
 

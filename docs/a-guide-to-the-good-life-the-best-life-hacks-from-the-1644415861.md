@@ -1,6 +1,6 @@
 # 美好生活指南:来自古代斯多葛派的最佳生活秘诀
 
-> 原文:[https://life hacker . com/a-guide-to-the-good-life-the-best-life-hacks-from-the-the-1644415861](https://lifehacker.com/a-guide-to-the-good-life-the-best-life-hacks-from-the-1644415861)
+> 原文：<https://lifehacker.com/a-guide-to-the-good-life-the-best-life-hacks-from-the-1644415861>
 
 “生活帮”这个术语只存在了几年，但是我们可以从世界上最古老的哲学家那里学到很多东西。威廉·欧文(William Irvine)的《美好生活指南:古代斯多葛派的快乐艺术》改编了古代斯多葛派的一些最佳快乐技巧，并将其融入现代语境。
 

@@ -1,6 +1,6 @@
 # 风险顾问的日常包
 
-> 原文:[https://life hacker . com/the-risk-consultants-daily-bag-1645708713](https://lifehacker.com/the-risk-consultants-daily-bag-1645708713)
+> 原文：<https://lifehacker.com/the-risk-consultants-daily-bag-1645708713>
 
 火灾和风险顾问的工作需要有人快速评估建筑物的风险并帮助改进。这种对细节的关注也转移到了他们的日报上，日报读者克里斯·卡尔顿在这里分享了这一点。
 

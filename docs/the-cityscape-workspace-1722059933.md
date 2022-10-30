@@ -1,6 +1,6 @@
 # 城市景观工作区
 
-> 原文:[https://lifehacker.com/the-cityscape-workspace-1722059933](https://lifehacker.com/the-cityscape-workspace-1722059933)
+> 原文：<https://lifehacker.com/the-cityscape-workspace-1722059933>
 
 如果你喜欢你的城市(或者你去过的城市)，鸟瞰图可能是你工作站的最佳背景。今天的特色工作区展示了令人惊叹的城市日夜景观。
 

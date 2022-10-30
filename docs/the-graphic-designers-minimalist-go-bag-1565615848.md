@@ -1,6 +1,6 @@
 # 平面设计师的旅行包
 
-> 原文:[https://life hacker . com/the-graphic-designers-minimalist-go-bag-1565615848](https://lifehacker.com/the-graphic-designers-minimalist-go-bag-1565615848)
+> 原文：<https://lifehacker.com/the-graphic-designers-minimalist-go-bag-1565615848>
 
 有时候，你只需要坚持包里的必需品，也就是说只剩下必需品。“每日一提”的人们展示了一个来自伯明翰的网页开发者兼平面设计师泰·沃星顿的包。
 

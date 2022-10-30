@@ -1,6 +1,6 @@
 # 暑假期间不要工作太多
 
-> 原文:[https://life hacker . com/stop-working-so-much-over-summer-break-1713606083](https://lifehacker.com/stop-working-so-much-over-summer-break-1713606083)
+> 原文：<https://lifehacker.com/stop-working-so-much-over-summer-break-1713606083>
 
 夏季意味着温暖的天气，享受户外活动，以及与朋友和家人在一起的时间。这是一个停下来，放慢脚步，并希望在漫长而缓慢的夏日里探索我们的兴趣的机会。尽管如此，我们中有太多的人对生产力果汁如此着迷，以至于我们去参加夏令营、暑期学校，做额外的工作，或者为秋天做准备。停止:保持“暑假”中的“休息”是很重要的
 

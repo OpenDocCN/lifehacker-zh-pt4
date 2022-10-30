@@ -1,6 +1,6 @@
 # 我是安娜·霍姆斯，Jezebel 的创始人，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Anna-Holmes-the-Jezebel-and-this-is-how-I-1459414569](https://lifehacker.com/im-anna-holmes-founder-of-jezebel-and-this-is-how-i-1459414569)
+> 原文：<https://lifehacker.com/im-anna-holmes-founder-of-jezebel-and-this-is-how-i-1459414569>
 
 安娜·霍尔姆斯 于 2007 年推出了 [耶泽贝尔](http://jezebel.com/) ，引发了一场新的女性网络内容运动。它的聪明和尖刻的独特融合立即赢得了追随者，从那以后就没有减缓过。2010 年，安娜辞去了主编一职，除了其他工作，她还专注于将《Jezebel》以书的形式呈现出来。新出版的《耶洗别的书》是由一群女性撰稿人撰写，安娜编辑的，是一本庆祝性的百科全书，涵盖了从珍妮·亚当斯到 T21 的所有事物(和所有人)! 和瑜伽。我和安娜聊了聊轻松的工作环境、拖延症、公路旅行等等。
 

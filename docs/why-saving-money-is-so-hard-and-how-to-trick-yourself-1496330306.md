@@ -1,6 +1,6 @@
 # 为什么存钱这么难，如何骗自己存更多钱
 
-> 原文:[https://life hacker . com/why-saving money is so hard-how-to-trick yourself-1496330306](https://lifehacker.com/why-saving-money-is-so-hard-and-how-to-trick-yourself-1496330306)
+> 原文：<https://lifehacker.com/why-saving-money-is-so-hard-and-how-to-trick-yourself-1496330306>
 
 不仅仅是缺乏自制力让我们许多人无法尽可能多地存钱。哈佛经济学教授 Sendhil Mullainathan 告诉 CNN Money，不储蓄是人类的天性，但我们可以做得更好。
 

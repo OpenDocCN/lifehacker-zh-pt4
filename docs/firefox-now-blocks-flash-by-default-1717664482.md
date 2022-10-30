@@ -1,6 +1,6 @@
 # Firefox 现在默认阻止 Flash(更新)
 
-> 原文:[https://gizmodo . com/Firefox-now-blocks-flash-default-1717664482](https://gizmodo.com/firefox-now-blocks-flash-by-default-1717664482)
+> 原文：<https://gizmodo.com/firefox-now-blocks-flash-by-default-1717664482>
 
 默认情况下，Mozilla Firefox web 浏览器现在会阻止 Flash。当我说“blocks”时，我并不是说它很友好地问你是否真的喜欢使用 Flash。我不是故意的 [像谷歌 Chrome 一样自动暂停 Flash 视频](http://gizmodo.com/future-versions-of-chrome-will-kill-flash-in-the-name-1709212263) 。我的意思是，Mozilla 已经决定让 Flash*下线*。
 

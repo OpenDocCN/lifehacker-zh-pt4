@@ -1,6 +1,6 @@
 # 如何在 4.5 年内击败 400 场比赛
 
-> 原文:[https://kotaku . com/how-to-beat-400-games-in-4-5-years-1607296068](https://kotaku.com/how-to-beat-400-games-in-4-5-years-1607296068)
+> 原文：<https://kotaku.com/how-to-beat-400-games-in-4-5-years-1607296068>
 
 2010 年 1 月，我决定改变我对如何管理我的游戏时间，如何收集游戏，以及如何应对许多游戏玩家共有的克星:可怕的积压的看法。
 

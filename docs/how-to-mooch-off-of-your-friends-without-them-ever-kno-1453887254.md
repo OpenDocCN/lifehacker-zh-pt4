@@ -1,6 +1,6 @@
 # 如何从你的朋友身上揩油(不让他们知道)
 
-> 原文:[https://life hacker . com/how-to-mooch-off-your ' s friends-never-them-kno-1453887254](https://lifehacker.com/how-to-mooch-off-of-your-friends-without-them-ever-kno-1453887254)
+> 原文：<https://lifehacker.com/how-to-mooch-off-of-your-friends-without-them-ever-kno-1453887254>
 
 我们都喜欢免费的东西，但它往往有一个隐藏的成本: [你成为产品](https://lifehacker.com/if-youre-not-paying-for-it-youre-the-product-5697167) 。如果你不再向公司要施舍，不再向你的朋友要钱，你可以在几乎没有牺牲的情况下获得更好的收益。
 

@@ -1,6 +1,6 @@
 # 招聘人员的建议:不要让我看你的简历
 
-> 原文:[https://life hacker . com/tips-from-a-recruiter-don ' t-make-me-read-your-resume-1520083351](https://lifehacker.com/tips-from-a-recruiter-dont-make-me-read-your-resume-1520083351)
+> 原文：<https://lifehacker.com/tips-from-a-recruiter-dont-make-me-read-your-resume-1520083351>
 
 我会看你的简历，除非是 [10 页](http://jobtipsforgeeks.com/2013/11/07/10pages/) ，但是(就像你不想写简历一样)*我真的不想看你的简历*。换句话说，我不想读它，因为我*必须*才能做出是/否的决定。
 

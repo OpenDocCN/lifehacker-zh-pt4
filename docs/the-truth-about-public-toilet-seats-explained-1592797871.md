@@ -1,6 +1,6 @@
 # 公共马桶座圈的真相
 
-> 原文:[https://life hacker . com/the-truth-about-public-toilet-seats-explained-1592797871](https://lifehacker.com/the-truth-about-public-toilet-seats-explained-1592797871)
+> 原文：<https://lifehacker.com/the-truth-about-public-toilet-seats-explained-1592797871>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-FFrbmYpvC4I&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-FFrbmYpvC4I&start=0) 
 

@@ -1,6 +1,6 @@
 # 如何超越网上请愿，让你的声音真正有价值
 
-> 原文:[https://life hacker . com/how-go-beyond-online-visities-and-make-your-voice-r-1519753157](https://lifehacker.com/how-to-go-beyond-online-petitions-and-make-your-voice-r-1519753157)
+> 原文：<https://lifehacker.com/how-to-go-beyond-online-petitions-and-make-your-voice-r-1519753157>
 
 你生气了，你被冤枉了，或者某个比你更有权力的人在做你不同意的事情。你的第一反应可能是签署一份在线请愿书，这没关系。不过，你不应该就此打住。
 

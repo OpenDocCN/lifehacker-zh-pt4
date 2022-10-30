@@ -1,6 +1,6 @@
 # 为本周末的感恩节做好准备
 
-> 原文:[https://life hacker . com/get-ready-for-thanksgiving-this-weekend-1464527584](https://lifehacker.com/get-ready-for-thanksgiving-this-weekend-1464527584)
+> 原文：<https://lifehacker.com/get-ready-for-thanksgiving-this-weekend-1464527584>
 
 下周感恩节就要到了，是时候开始计划了。这里有一些提示、技巧、工具和食谱可以帮助你开始。
 

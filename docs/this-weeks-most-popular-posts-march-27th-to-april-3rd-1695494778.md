@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:3 月 27 日至 4 月 3 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-March-27-to-4-3-1695494778](https://lifehacker.com/this-weeks-most-popular-posts-march-27th-to-april-3rd-1695494778)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-march-27th-to-april-3rd-1695494778>
 
 这一周我们 [了解了大麻](https://lifehacker.com/what-marijuana-actually-does-to-your-brain-and-body-1693986467)[给我们的路由器](http://lifehacker.com/how-to-choose-the-best-firmware-to-supercharge-your-wi-1694982764)[像牙医一样清洁牙齿](http://lifehacker.com/clean-your-teeth-like-a-dentist-with-the-one-minute-flo-1694872524)[进行了一次史诗般的公路旅行](http://lifehacker.com/this-map-shows-how-to-take-an-epic-road-trip-across-eur-1694791363) 。这里回顾一下。
 

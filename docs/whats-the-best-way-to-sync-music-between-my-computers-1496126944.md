@@ -1,6 +1,6 @@
 # 在我的计算机之间同步音乐的最佳方式是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-way-to-sync-music-my-computers-1496126944](https://lifehacker.com/whats-the-best-way-to-sync-music-between-my-computers-1496126944)
+> 原文：<https://lifehacker.com/whats-the-best-way-to-sync-music-between-my-computers-1496126944>
 
 亲爱的 Lifehacker，
 我的桌面上有一个很大的音乐收藏，我也想把它放在我的笔记本电脑上。事实上，我也不介意在我的媒体中心安装它。我听说过一些同步选项，但我不确定哪一个效果最好。你有什么建议？

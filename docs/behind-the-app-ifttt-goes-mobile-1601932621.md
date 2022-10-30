@@ -1,6 +1,6 @@
 # 应用背后:IFTTT 走向移动
 
-> 原文:[https://life hacker . com/behind-the-app-if TTT-goes-mobile-1601932621](https://lifehacker.com/behind-the-app-ifttt-goes-mobile-1601932621)
+> 原文：<https://lifehacker.com/behind-the-app-ifttt-goes-mobile-1601932621>
 
 if TTT——意思是“如果这个那么那个”——正迅速成为许多数字工具箱中的必备工具。该服务类似于跨平台编程:您可以创建触发器和动作来将信息从一个地方传输到另一个地方。听起来像是专为 Lifehacker 打造的。
 

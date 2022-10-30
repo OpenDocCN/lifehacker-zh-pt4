@@ -1,6 +1,6 @@
 # 安卓最佳 Craigslist 应用
 
-> 原文:[https://life hacker . com/the-best-craigslist-app-for-Android-1631301328](https://lifehacker.com/the-best-craigslist-app-for-android-1631301328)
+> 原文：<https://lifehacker.com/the-best-craigslist-app-for-android-1631301328>
 
 Craigslist 是一个在线买卖东西的好地方，无论你是在寻找公寓、寻找特价商品，还是有东西要卖，我们认为 Mokriya 是你在 Android 设备上使用 Craiglist 的最佳选择。它速度快、灵活、外观漂亮，并且拥有您需要的所有功能。
 

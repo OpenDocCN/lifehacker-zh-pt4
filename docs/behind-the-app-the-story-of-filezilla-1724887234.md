@@ -1,6 +1,6 @@
 # 应用背后:FileZilla 的故事
 
-> 原文:[https://life hacker . com/behind-the-app-the-story-of-file zilla-1724887234](https://lifehacker.com/behind-the-app-the-story-of-filezilla-1724887234)
+> 原文：<https://lifehacker.com/behind-the-app-the-story-of-filezilla-1724887234>
 
 在我第一次安装新电脑时下载的应用程序中，有一个叫做 [FileZilla](https://filezilla-project.org/) 的简单的开源 FTP 客户端。对于我们这些经营过自己的小网站的人来说，这是网站管理员工具箱里的一个长期的主要工具。
 

@@ -1,6 +1,6 @@
 # 职业聚焦:我作为美国陆军军官的工作
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-a-of-u-s-a-1696228506](https://lifehacker.com/career-spotlight-what-i-do-as-an-officer-in-the-u-s-a-1696228506)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-an-officer-in-the-u-s-a-1696228506>
 
 在军队服役是一条高尚的职业道路，被各行各业的人所追求。我们大多数人只从电子游戏和电影中知道它是什么样子的，但是美国军队的日常工作实际上是什么样子的呢？简而言之，准备，训练，更多的准备。
 

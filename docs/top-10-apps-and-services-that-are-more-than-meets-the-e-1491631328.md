@@ -1,6 +1,6 @@
 # 十大超乎想象的应用和服务
 
-> 原文:[https://life hacker . com/top-10-the-than-meets-e-1491631328](https://lifehacker.com/top-10-apps-and-services-that-are-more-than-meets-the-e-1491631328)
+> 原文：<https://lifehacker.com/top-10-apps-and-services-that-are-more-than-meets-the-e-1491631328>
 
 有些 app 做一件事，而且做得很好。其他人有许多聪明的、隐藏的用途，你自己可能从来没有想到过。以下是我们最喜欢的流行应用的巧妙用法。
 

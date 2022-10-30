@@ -1,6 +1,6 @@
 # 职业聚焦:我作为电视新闻任务编辑做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-TV-news-assignment-EDI-1695018085](https://lifehacker.com/career-spotlight-what-i-do-as-a-tv-news-assignment-edi-1695018085)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-tv-news-assignment-edi-1695018085>
 
 制作每日新闻对任何媒体来说都是一个挑战，当你面对直播电视时，复杂的事情层出不穷。电视新闻站如何找到他们的故事，并决定什么值得报道？
 

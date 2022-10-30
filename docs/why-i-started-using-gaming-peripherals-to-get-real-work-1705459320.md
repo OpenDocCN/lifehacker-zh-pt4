@@ -1,6 +1,6 @@
 # 为什么我开始使用游戏鼠标和键盘来完成真正的工作
 
-> 原文:[https://life hacker . com/why-I-started-using-gaming-peripherals-to-get-real-work-1705459320](https://lifehacker.com/why-i-started-using-gaming-peripherals-to-get-real-work-1705459320)
+> 原文：<https://lifehacker.com/why-i-started-using-gaming-peripherals-to-get-real-work-1705459320>
 
 众所周知，游戏鼠标和键盘可以让你以最高效率玩快节奏游戏。但是有了这些按钮和宏，它们实际上也能帮助你更聪明地工作。这就是为什么我相信他们。
 

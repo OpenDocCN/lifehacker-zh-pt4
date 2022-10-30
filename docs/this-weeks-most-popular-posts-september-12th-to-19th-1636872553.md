@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:9 月 12 日至 19 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-9 月 12 日至 19 日 1636872553](https://lifehacker.com/this-weeks-most-popular-posts-september-12th-to-19th-1636872553)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-september-12th-to-19th-1636872553>
 
 本周我们 [学习了关于 iOS 8](https://lifehacker.com/all-the-new-stuff-in-ios-8-1584893352)[保护自己免受 ATIM 小偷](http://lifehacker.com/protect-your-atm-pin-or-lock-combo-from-thieves-with-th-1635396534)[学习了成功人士的共同特质](http://lifehacker.com/the-eight-most-common-traits-of-successful-people-1635017441)[学习了简历上不该做的事情](http://lifehacker.com/the-biggest-resume-mistakes-according-to-googles-head-1636446614) 。这里回顾一下。
 

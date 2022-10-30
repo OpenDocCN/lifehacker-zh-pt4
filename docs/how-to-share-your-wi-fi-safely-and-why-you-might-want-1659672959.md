@@ -1,6 +1,6 @@
 # 如何安全地与朋友分享您的家庭无线网络
 
-> 原文:[https://life hacker . com/how-to-share-your-wi-fi-safely-and-why-you-may-want-1659672959](https://lifehacker.com/how-to-share-your-wi-fi-safely-and-why-you-might-want-1659672959)
+> 原文：<https://lifehacker.com/how-to-share-your-wi-fi-safely-and-why-you-might-want-1659672959>
 
 你可能会努力确保你的无线网络是安全的。这很重要，但是有时候——例如，当你邀请客人或举办活动时——分享也很好。以下是如何在不影响安全的情况下共享您的 Wi-Fi。
 

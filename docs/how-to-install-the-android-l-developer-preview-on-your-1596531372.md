@@ -1,6 +1,6 @@
 # 如何在你的 Nexus 5 或 7 上安装 Android L 开发者预览版
 
-> 原文:[https://life hacker . com/how-to-install-the-Android-l-developer-preview-on-your-1596531372](https://lifehacker.com/how-to-install-the-android-l-developer-preview-on-your-1596531372)
+> 原文：<https://lifehacker.com/how-to-install-the-android-l-developer-preview-on-your-1596531372>
 
 谷歌刚刚发布了最新版本 Android 的第一个开发者预览版。对于那些渴望获得最新最棒产品的人来说，下面是如何立即在 Nexus 5 或 Nexus 7 (2013)上安装 Android L 的方法。
 

@@ -1,6 +1,6 @@
 # 你不知道你可以用 Chromecast 做的四件事
 
-> 原文:[https://life hacker . com/four-things-you-not-know-you-your-chromec-1676260180](https://lifehacker.com/four-things-you-didnt-know-you-can-do-with-your-chromec-1676260180)
+> 原文：<https://lifehacker.com/four-things-you-didnt-know-you-can-do-with-your-chromec-1676260180>
 
 谷歌的 Chromecast 是在你的客厅里播放任何东西的一个很好的方式，但是 [掌握它的复杂性真的可以让它发光](http://gizmodo.com/10-tricks-to-make-yourself-a-chromecast-master-1606622927) 。有一些隐藏的 Chromecast 功能很多人不知道存在，这里有一些最好的。
 

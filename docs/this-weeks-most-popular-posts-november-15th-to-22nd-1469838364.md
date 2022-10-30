@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:11 月 15 日至 22 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-11 月 15 日至 22 日-1469838364](https://lifehacker.com/this-weeks-most-popular-posts-november-15th-to-22nd-1469838364)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-november-15th-to-22nd-1469838364>
 
 这一周我们 [对付了条子](https://lifehacker.com/decrease-your-chances-of-being-arrested-with-these-tips-1467462559)[排名电脑厂商](http://lifehacker.com/computer-manufacturers-ranked-how-to-pick-a-laptop-tha-1467145338)[定制了我们的 PC](http://lifehacker.com/top-10-ways-to-customize-your-desktop-1465184659)， [学会了如何操作一个房间](http://lifehacker.com/how-i-became-the-kind-of-person-who-can-work-a-room-1467569726) 。这里回顾一下。
 

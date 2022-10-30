@@ -1,6 +1,6 @@
 # 你最喜欢的个人理财书籍是什么？
 
-> 原文:[https://life hacker . com/tell-us-what-s-your favorite-personal-finance-book-1625801219](https://lifehacker.com/tell-us-what-s-your-favorite-personal-finance-book-1625801219)
+> 原文：<https://lifehacker.com/tell-us-what-s-your-favorite-personal-finance-book-1625801219>
 
 如果你是一个金融迷，你可能听说过*金钱大变身*、*你的钱或你的生活*或*我会教你变得富有*。我们中的大多数人都有一本书，它激励我们去整理自己的理财习惯。我们想知道:你的是什么？
 

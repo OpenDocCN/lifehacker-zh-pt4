@@ -1,6 +1,6 @@
 # 如何确保你的网络中立评论的重要性
 
-> 原文:[https://gizmodo . com/how-to-assure-your-net-neutral-comment-will-matte-1634907060](https://gizmodo.com/how-to-make-sure-your-net-neutrality-comment-will-matte-1634907060)
+> 原文：<https://gizmodo.com/how-to-make-sure-your-net-neutrality-comment-will-matte-1634907060>
 
 如果你赞成一个中立的互联网——一个平等分配给所有人，而不是优先分配给任何付费者的互联网——你还有几个小时来做些事情。至少，要以官方的方式做点什么，通过 [向 FCC](http://gizmodo.com/how-to-yell-at-the-fcc-about-how-much-you-hate-its-net-1576943170) 提交评论，敦促该机构不要推翻网络中立。以下是如何大喊让别人听到你的声音。
 

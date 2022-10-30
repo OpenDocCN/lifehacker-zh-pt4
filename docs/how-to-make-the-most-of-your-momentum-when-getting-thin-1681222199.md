@@ -1,6 +1,6 @@
 # 如何在完成任务时充分利用你的动力
 
-> 原文:[https://life hacker . com/how-to-make-most-your-momentum-when-thin-1681222199](https://lifehacker.com/how-to-make-the-most-of-your-momentum-when-getting-thin-1681222199)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-your-momentum-when-getting-thin-1681222199>
 
 动力是你生产力的关键力量。就是这个原因，有时候你可以毫不费力地工作，而另一些时候却感觉像在拔牙。你可以安排好你的一天，这样你就可以积聚动力，有策略地度过难关。
 

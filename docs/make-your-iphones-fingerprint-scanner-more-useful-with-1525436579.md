@@ -1,6 +1,6 @@
 # 通过这些调整，让你的 iPhone 指纹扫描仪更有用
 
-> 原文:[https://life hacker . com/make-your-iphone-fingerprint-scanner-more-used-with-1525436579](https://lifehacker.com/make-your-iphones-fingerprint-scanner-more-useful-with-1525436579)
+> 原文：<https://lifehacker.com/make-your-iphones-fingerprint-scanner-more-useful-with-1525436579>
 
 iPhone 5s 指纹扫描仪，又名触控 ID，是一个方便的小功能，让你只需用手指触摸即可解锁手机。不幸的是，这就是它所做的一切，但一些越狱的调整使它使用起来更棒。
 

@@ -1,6 +1,6 @@
 # 驯服猛犸象:为什么你应该停止关心别人的想法
 
-> 原文:[https://life hacker . com/taming-the-mammoth-why-you-should-stop-care-what-oth-1628033209](https://lifehacker.com/taming-the-mammoth-why-you-should-stop-caring-what-oth-1628033209)
+> 原文：<https://lifehacker.com/taming-the-mammoth-why-you-should-stop-caring-what-oth-1628033209>
 
 这是人类普遍经历的一部分:一种对他人如何看待你的非理性且无益的执念。但是，通过一点思考和视角，你可以学会控制你的自我意识偏执，更好地表达你真实的自我。
 

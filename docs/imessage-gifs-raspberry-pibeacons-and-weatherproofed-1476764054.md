@@ -1,6 +1,6 @@
 # iMessage GIFs、覆盆子色 piBeacons 和防风雨装备
 
-> 原文:[https://life hacker . com/imessage-gifs-raspberry-pi beacons-and-weathered-1476764054](https://lifehacker.com/imessage-gifs-raspberry-pibeacons-and-weatherproofed-1476764054)
+> 原文：<https://lifehacker.com/imessage-gifs-raspberry-pibeacons-and-weatherproofed-1476764054>
 
 读者们提供了在苹果 iMessage 中发送 gif 的最佳技巧，从树莓 Pi 中构建 iBeacon，以及为自己的帆布和牛仔装备防风雨。
 

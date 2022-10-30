@@ -1,6 +1,6 @@
 # 我如何教导自己不要成为令人难以忍受的万事通
 
-> 原文:[https://life hacker . com/how-I-teached-yourself-to-be-an-unless-know-it-a-1718124149](https://lifehacker.com/how-i-taught-myself-not-to-be-an-insufferable-know-it-a-1718124149)
+> 原文：<https://lifehacker.com/how-i-taught-myself-not-to-be-an-insufferable-know-it-a-1718124149>
 
 从 NPR 的最新广播中提取的随机花絮、事实和谈话要点一直是我的谈话燃料。但是如果你不小心的话，这些东西会让你变成一个令人难以忍受的知识分子万事通，这会让人们不想和你说话。以下是我如何学会控制它的。
 

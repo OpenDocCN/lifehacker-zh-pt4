@@ -1,6 +1,6 @@
 # 如何用 Windows 和大图滚动自己的蒸汽机
 
-> 原文:[https://life hacker . com/how-to-roll-your-own-steam-machine-with-windows-and-big-1510663145](https://lifehacker.com/how-to-roll-your-own-steam-machine-with-windows-and-big-1510663145)
+> 原文：<https://lifehacker.com/how-to-roll-your-own-steam-machine-with-windows-and-big-1510663145>
 
 自从 Valve 推出 SteamOS 以来，PC 游戏 [社区](http://i.imgur.com/PPanWZP.png) 一直渴望看到运行 Steam 的视频游戏主机会是什么样子。不幸的是，beta 还没有准备好迎接黄金时间。不过有一个特点:大图模式。
 

@@ -1,6 +1,6 @@
 # 支持公益事业的 10 大轻松方式
 
-> 原文:[https://life hacker . com/top-10-effortless-ways-to-support-a-good-cause-1663783823](https://lifehacker.com/top-10-effortless-ways-to-support-a-good-cause-1663783823)
+> 原文：<https://lifehacker.com/top-10-effortless-ways-to-support-a-good-cause-1663783823>
 
 即使是最小的行动也能产生很大的影响。把你可能正在做的事情——从购物到旅行——变成改善他人生活的善行。
 

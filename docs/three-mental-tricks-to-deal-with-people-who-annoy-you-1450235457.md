@@ -1,6 +1,6 @@
 # 对付惹恼你的人的三个心理技巧
 
-> 原文:[https://life hacker . com/three-mental-tricks-to-deal-frong-you-1450235457](https://lifehacker.com/three-mental-tricks-to-deal-with-people-who-annoy-you-1450235457)
+> 原文：<https://lifehacker.com/three-mental-tricks-to-deal-with-people-who-annoy-you-1450235457>
 
 一些我们每天都在与之斗争、吞噬我们并导致压力和愤怒的事情:讨厌的人。你知道那些人。他们插队，在办公室或餐厅对你无礼，在交通中插队，大声谈论令人讨厌的事情，在你试图集中注意力时大声播放音乐，打断你，等等。
 

@@ -1,6 +1,6 @@
 # 如何发现照片中模糊的信息
 
-> 原文:[https://life hacker . com/how-to-cover-furted-information-in-photos-1648562658](https://lifehacker.com/how-to-uncover-blurred-information-in-photographs-1648562658)
+> 原文：<https://lifehacker.com/how-to-uncover-blurred-information-in-photographs-1648562658>
 
 当你在线分享图片时，模糊或像素化账号等敏感信息是一种常见的做法，但你的信息可能没有你想象的那么安全。这需要一些工作，但有一些方法来揭示这一敏感文本。
 

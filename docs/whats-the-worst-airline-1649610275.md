@@ -1,6 +1,6 @@
 # 最差的航空公司是哪家？
 
-> 原文:[https://lifehacker.com/whats-the-worst-airline-1649610275](https://lifehacker.com/whats-the-worst-airline-1649610275)
+> 原文：<https://lifehacker.com/whats-the-worst-airline-1649610275>
 
 不算费用、频繁的延误、拥挤的座位、难吃的食物和昂贵的机票，坐飞机已经够糟糕的了。我们已经在过去的 [中谈论了一些伟大的航空公司](http://lifehacker.com/five-best-airlines-for-frequent-fliers-536456448) ，但是像往常一样，对于邪恶的一周，这一次我们想要最差的*。你认为哪些航空公司是最差的？*
 

@@ -1,6 +1,6 @@
 # 所有提供免费无线网络的全国连锁店
 
-> 原文:[https://life hacker . com/all-the-national-chains-the-offer-wi-fi-1646148637](https://lifehacker.com/all-the-national-chains-that-offer-free-wi-fi-1646148637)
+> 原文：<https://lifehacker.com/all-the-national-chains-that-offer-free-wi-fi-1646148637>
 
 有时候，你只需要在穿过城镇时快速获取一些免费 Wi-Fi。你可能知道附近的咖啡店提供 Wi-Fi，但是很多零售商和餐馆也提供 Wi-Fi——你只需要知道去哪里找。
 

@@ -1,6 +1,6 @@
 # 如何判断你的补充剂是否安全
 
-> 原文:[https://life hacker . com/how-to-figure-if-your-supplements-safe-1685494324](https://lifehacker.com/how-to-figure-out-if-your-supplements-are-safe-1685494324)
+> 原文：<https://lifehacker.com/how-to-figure-out-if-your-supplements-are-safe-1685494324>
 
 补充剂不像药物一样受到监管。它们的制造商不必证明它们是安全或有效的。让我们来谈谈使用补充剂的一些陷阱，以及如何提高你获得一种药物的机会，这种药物应该发挥它的作用。
 

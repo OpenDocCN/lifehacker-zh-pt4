@@ -1,6 +1,6 @@
 # 安卓棉花糖的所有新功能
 
-> 原文:[https://life hacker . com/all-the-new-features-of-Android-m-1707454646](https://lifehacker.com/all-the-new-features-of-android-m-1707454646)
+> 原文：<https://lifehacker.com/all-the-new-features-of-android-m-1707454646>
 
 今天，谷歌公布了最新版本 Android 的开发者预览版。像往常一样，这个新版本 Android M 将在今年晚些时候推出。不过，那些拥有某些 Nexus 设备的用户可以从今天开始下载预览版。下面是你可以期待的下一个版本的 Android。
 

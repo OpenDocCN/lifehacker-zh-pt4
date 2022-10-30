@@ -1,6 +1,6 @@
 # 行为倍增器:可以导致成功的四个因素
 
-> 原文:[https://life hacker . com/behavior-multipliers-four-factors-that-can-lead-to-suc-1674960789](https://lifehacker.com/behavior-multipliers-four-factors-that-can-lead-to-suc-1674960789)
+> 原文：<https://lifehacker.com/behavior-multipliers-four-factors-that-can-lead-to-suc-1674960789>
 
 我们不断追求实现更多和更快的工作是一个陷阱。我们如此沉迷于目标，以至于忘记考虑那些有助于或阻碍我们成功的因素。这里有四个行为倍增器，可以帮助你朝着目标前进。
 

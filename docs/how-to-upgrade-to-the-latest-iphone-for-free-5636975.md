@@ -1,6 +1,6 @@
 # 如何免费升级到最新的 iPhone
 
-> 原文:[https://life hacker . com/how-to-upgrade-to-the-latest-iphone-for-free-5636975](https://lifehacker.com/how-to-upgrade-to-the-latest-iphone-for-free-5636975)
+> 原文：<https://lifehacker.com/how-to-upgrade-to-the-latest-iphone-for-free-5636975>
 
 升级到最新的 iPhone 硬件意味着要支付 200-400 美元的合同费用。如果你想升级，但没有现金，下面是如何卖掉你的旧 iPhone 来支付新 iPhone 的费用。
 

@@ -1,6 +1,6 @@
 # 极客友好的日间徒步旅行包
 
-> 原文:[https://life hacker . com/the-geek-friendly-day-hike-bag-1711425923](https://lifehacker.com/the-geek-friendly-day-hike-bag-1711425923)
+> 原文：<https://lifehacker.com/the-geek-friendly-day-hike-bag-1711425923>
 
 为一日游做准备需要在你需要的和你想要的之间取得平衡。《生活黑客》读者 Random Michelle 用她的包达到了平衡。
 

@@ -1,6 +1,6 @@
 # 我是 How-To Geek 的洛厄尔·赫丁斯，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Lowell-heddings-of-how-to-geek-and the-how-I-wor-1704205841](https://lifehacker.com/im-lowell-heddings-of-how-to-geek-and-this-is-how-i-wor-1704205841)
+> 原文：<https://lifehacker.com/im-lowell-heddings-of-how-to-geek-and-this-is-how-i-wor-1704205841>
 
 如果你长期阅读 Lifehacker，那么你可能也熟悉。Lowell Heddings 几年前开始分享他自己的技术建议和操作指南，此前他对其他地方发现的黯淡信息感到沮丧，我们经常引用他的工作。
 

@@ -1,6 +1,6 @@
 # iOS 8 的 10 大秘密功能
 
-> 原文:[https://life hacker . com/top-10-secret-features-of-IOs-8-1635558327](https://lifehacker.com/top-10-secret-features-of-ios-8-1635558327)
+> 原文：<https://lifehacker.com/top-10-secret-features-of-ios-8-1635558327>
 
 每次苹果发布新版本的 iOS，他们都会包含一些他们通常不会在新闻发布会 中提到的 [很酷的隐藏功能。今年也不例外。以下是 iOS 8 中 10 个最好的秘密功能。](https://lifehacker.com/all-the-new-stuff-in-ios-8-1584893352)
 

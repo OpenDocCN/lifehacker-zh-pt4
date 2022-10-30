@@ -1,6 +1,6 @@
 # 白色冬季主屏幕
 
-> 原文:[https://life hacker . com/the-white-winter-home-screen-1685549256](https://lifehacker.com/the-white-winter-home-screen-1685549256)
+> 原文：<https://lifehacker.com/the-white-winter-home-screen-1685549256>
 
 有些地方你可能看不出来，但我们现在正处于隆冬。如果你需要窗外的提醒，这个宁静的白色主屏幕会让你感受到冬天的寒意。
 

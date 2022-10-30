@@ -1,6 +1,6 @@
 # 乐高玩具是完美的电缆支架
 
-> 原文:[https://life hacker . com/Lego-figures-make-perfect-cable-holders-1586830454](https://lifehacker.com/lego-figures-make-perfect-cable-holders-1586830454)
+> 原文：<https://lifehacker.com/lego-figures-make-perfect-cable-holders-1586830454>
 
 谁知道乐高将他们的人物的手设计得完美无缺，可以握住苹果闪电和其他类型的电缆？在你的桌子上贴上一块乐高积木，附上乐高模型，瞧，一个巧妙的绳索捕捉解决方案。
 

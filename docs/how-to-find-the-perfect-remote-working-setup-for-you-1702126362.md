@@ -1,6 +1,6 @@
 # 如何找到最适合你的远程工作设置
 
-> 原文:[https://life hacker . com/how-to-find-the-perfect-remote-working-setup-for-you-1702126362](https://lifehacker.com/how-to-find-the-perfect-remote-working-setup-for-you-1702126362)
+> 原文：<https://lifehacker.com/how-to-find-the-perfect-remote-working-setup-for-you-1702126362>
 
 自从我开始远程工作以来，我变得更有效率，学会了更快地完成工作，并且更善于区分工作的优先级。我也学到了更多关于我如何工作，以及什么时候我工作得最好。
 

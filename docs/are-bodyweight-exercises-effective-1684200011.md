@@ -1,6 +1,6 @@
 # 体重练习有效吗？
 
-> 原文:[https://life hacker . com/are-body weight-exercises-effective-1684200011](https://lifehacker.com/are-bodyweight-exercises-effective-1684200011)
+> 原文：<https://lifehacker.com/are-bodyweight-exercises-effective-1684200011>
 
 亲爱的 Lifehacker，
 我喜欢 [在没有额外设备的情况下进行锻炼的想法](https://lifehacker.com/how-to-get-a-complete-workout-with-nothing-but-your-bod-5839197) ，但有些人告诉我，这不足以有效地真正锻炼肌肉。这是真的吗？体重练习有效吗？

@@ -1,6 +1,6 @@
 # 最好的机械键盘是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-mechanical-keyboard-1476387804](https://lifehacker.com/whats-the-best-mechanical-keyboard-1476387804)
+> 原文：<https://lifehacker.com/whats-the-best-mechanical-keyboard-1476387804>
 
 键盘就是键盘，对吧？不完全是。机械键盘——或者每个键都有单独开关的键盘——非常受欢迎，无论是在那些还记得过去计算机时代的人当中，还是在今天想要更好的打字体验的人当中。我们已经讨论了为什么你可能想要一个机械键盘——现在我们想知道你认为哪些是最好的。
 

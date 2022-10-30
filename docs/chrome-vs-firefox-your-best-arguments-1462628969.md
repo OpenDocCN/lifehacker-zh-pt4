@@ -1,6 +1,6 @@
 # Chrome vs. Firefox:你最好的论据
 
-> 原文:[https://life hacker . com/chrome-vs-Firefox-your-best-arguments-1462628969](https://lifehacker.com/chrome-vs-firefox-your-best-arguments-1462628969)
+> 原文：<https://lifehacker.com/chrome-vs-firefox-your-best-arguments-1462628969>
 
 在过去，网络浏览器并没有那么重要。现在它们是我们生活中不可或缺的一部分。虽然我们可以继续使用以前的系统默认设置，但现在热情的用户像支持操作系统一样热情地支持他们的浏览器。我们选择了两个最受欢迎的浏览器——Chrome 和 Firefox——让你证明哪一个更好。这是你说的。
 

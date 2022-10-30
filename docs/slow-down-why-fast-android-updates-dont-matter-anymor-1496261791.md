@@ -1,6 +1,6 @@
 # 慢下来:为什么快速的 Android 更新不再重要
 
-> 原文:[https://life hacker . com/slow-down-why-fast-Android-updates-dont-matter-any mor-1496261791](https://lifehacker.com/slow-down-why-fast-android-updates-dont-matter-anymor-1496261791)
+> 原文：<https://lifehacker.com/slow-down-why-fast-android-updates-dont-matter-anymor-1496261791>
 
 自 G1 时代以来，Android 更新就被视为新功能和软件改进的圣杯。但现在可能是时候停止沉迷于最新的 0.1 版操作系统了。
 

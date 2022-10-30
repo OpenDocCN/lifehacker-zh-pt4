@@ -1,6 +1,6 @@
 # 我们需要消除对精神疾病的误解
 
-> 原文:[https://life hacker . com/the-misconcepts-about-mental-disease-we-need-unle-1711647132](https://lifehacker.com/the-misconceptions-about-mental-illness-we-need-to-unle-1711647132)
+> 原文：<https://lifehacker.com/the-misconceptions-about-mental-illness-we-need-to-unle-1711647132>
 
 精神疾病不像鼻窦感染。你不能只是等待或者吃一片药就让一切都消失。我们的大脑复杂而神秘，精神疾病也不例外。这导致了许多误解，使恢复变得更加困难。不管你是不是患者，这里有一些你应该知道的事情。
 

@@ -1,6 +1,6 @@
 # Android Wear 实际上有用吗？
 
-> 原文:[https://life hacker . com/is-Android-wear-actually-useful-1632388855](https://lifehacker.com/is-android-wear-actually-useful-1632388855)
+> 原文：<https://lifehacker.com/is-android-wear-actually-useful-1632388855>
 
 亲爱的 Lifehacker，
 Android Wear 有什么好？我不喜欢 [和其他智能手表](http://lifehacker.com/what-can-i-do-with-a-smartwatch-and-should-i-get-one-513197351) ，但是 Android Wear 看起来很酷。不过，你真的能用它做些有用的事情吗？我认为它们看起来不错，但我不确定杀手级的新功能是什么。

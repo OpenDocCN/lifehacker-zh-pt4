@@ -1,6 +1,6 @@
 # 侧边栏均衡器桌面
 
-> 原文:[https://life hacker . com/the-sidebar-equalizer-desktop-1699063535](https://lifehacker.com/the-sidebar-equalizer-desktop-1699063535)
+> 原文：<https://lifehacker.com/the-sidebar-equalizer-desktop-1699063535>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-RpWJVaWe340&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-RpWJVaWe340&start=0) 
 

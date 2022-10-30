@@ -1,6 +1,6 @@
 # 如何将平板电脑变成提高工作效率的第二块屏幕
 
-> 原文:[https://life hacker . com/how-to-turn-your-table t to-a-productivity-boosting-se-5869452](https://lifehacker.com/how-to-turn-your-tablet-into-a-productivity-boosting-se-5869452)
+> 原文：<https://lifehacker.com/how-to-turn-your-tablet-into-a-productivity-boosting-se-5869452>
 
 平板电脑是很好的娱乐设备，但它们并不总是对完成工作有用。如果你希望你的平板电脑不仅仅是一个有趣的小玩具，那么正确的应用程序、态度和配置就非常重要。以下是如何将平板电脑变成一个方便、高效的工具。
 

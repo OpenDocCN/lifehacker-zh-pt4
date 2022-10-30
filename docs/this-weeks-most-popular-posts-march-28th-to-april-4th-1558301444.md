@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:3 月 28 日至 4 月 4 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-3 月 28 日至 4 月 4 日-1558301444](https://lifehacker.com/this-weeks-most-popular-posts-march-28th-to-april-4th-1558301444)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-march-28th-to-april-4th-1558301444>
 
 本周我们 [定制了我们的安卓手机](http://lifehacker.com/five-best-android-home-screen-replacements-1554069893)[让我们的老板爱不释手](http://lifehacker.com/top-10-ways-to-make-your-boss-love-you-1552997316)[探索了命令行](http://lifehacker.com/the-best-tools-hidden-in-windows-command-line-1553193077)[了解了一些即将到来的 Windows 更新](http://lifehacker.com/microsoft-is-bringing-the-start-menu-back-to-windows-8-1557023798) 。这里回顾一下。
 

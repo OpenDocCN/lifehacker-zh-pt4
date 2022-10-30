@@ -1,6 +1,6 @@
 # 我是 Zappos 实验室的主任威尔·扬，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-will-young-director-of-zappos-labs-and-this-is-how-1663679074](https://lifehacker.com/im-will-young-director-of-zappos-labs-and-this-is-how-1663679074)
+> 原文：<https://lifehacker.com/im-will-young-director-of-zappos-labs-and-this-is-how-1663679074>
 
 当然，Zappos 可能是你在网上浏览大量鞋子的目的地，但除此之外还有更多。在旧金山的研发单位 Zappos Labs ，他们正在探索网上零售的未来。
 

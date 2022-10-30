@@ -1,6 +1,6 @@
 # 利用物理学的力量让冬季驾驶变得更容易
 
-> 原文:[https://life hacker . com/harness-the-power of-physics-to-make-winter-driving-eas-1511623108](https://lifehacker.com/harness-the-power-of-physics-to-make-winter-driving-eas-1511623108)
+> 原文：<https://lifehacker.com/harness-the-power-of-physics-to-make-winter-driving-eas-1511623108>
 
 冬天已经开始了它的正面进攻，道路再次证明是一个危险的挑战。当道路结冰时，最好的办法是呆在家里取暖，但你可能会发现自己不得不开车。如果是这种情况，它有助于了解冰如何影响你的车辆。
 

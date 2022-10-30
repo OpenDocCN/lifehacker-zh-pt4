@@ -1,6 +1,6 @@
 # 如何让你的日常生活更像度假
 
-> 原文:[https://life hacker . com/how-to-make your ' s daily life-feel-more-like vacation-1710511933](https://lifehacker.com/how-to-make-your-everyday-life-feel-more-like-vacation-1710511933)
+> 原文：<https://lifehacker.com/how-to-make-your-everyday-life-feel-more-like-vacation-1710511933>
 
 上个月，我度过了一个愉快的两周假期。我很兴奋，但即使在旅行开始不久，我也害怕回来的糟糕感觉。这不是最好的态度，但是当假期过得太快时，很容易变得焦虑。不知不觉中，你又陷入了离开前的困境。这一次，我希望事情有所不同。
 

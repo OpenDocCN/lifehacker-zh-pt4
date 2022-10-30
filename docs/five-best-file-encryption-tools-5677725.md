@@ -1,6 +1,6 @@
 # 五个最好的文件加密工具
 
-> 原文:[https://life hacker . com/five-best-file-encryption-tools-5677725](https://lifehacker.com/five-best-file-encryption-tools-5677725)
+> 原文：<https://lifehacker.com/five-best-file-encryption-tools-5677725>
 
 保证你个人数据的安全并不一定很难——只要你把敏感的东西加密并且在你的控制之下。这就是为什么本周我们来看看五个最好的文件加密工具，你可以用它们来加密你的本地数据，这样只有你才有密钥。
 

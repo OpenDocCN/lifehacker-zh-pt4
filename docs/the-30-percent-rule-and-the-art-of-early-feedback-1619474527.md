@@ -1,6 +1,6 @@
 # 30%规则和早期反馈的艺术
 
-> 原文:[https://life hacker . com/the-30 %- rule-and-art-of-early-feedback-1619474527](https://lifehacker.com/the-30-percent-rule-and-the-art-of-early-feedback-1619474527)
+> 原文：<https://lifehacker.com/the-30-percent-rule-and-the-art-of-early-feedback-1619474527>
 
 如果你像大多数人一样，当你的工作未完成时，你可能会在寻求建设性反馈方面遇到麻烦。你知道你可以花时间润色你的最终产品，但是你的完美主义真的允许你成长、改进，最重要的是，交付最好的产品吗？
 

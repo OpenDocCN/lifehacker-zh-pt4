@@ -1,6 +1,6 @@
 # 52 个世界上流传最广的神话和误解被揭穿
 
-> 原文:[https://gizmodo . com/52-of-the-world ' s-most-discovery-and-misception-1656550980](https://gizmodo.com/52-of-the-worlds-most-widespread-myths-and-misconceptio-1656550980)
+> 原文：<https://gizmodo.com/52-of-the-worlds-most-widespread-myths-and-misconceptio-1656550980>
 
 掉一便士不会要你的命，酒精不会让你暖和，吞下的口香糖也不需要七年才能消化。这些只是这本简明的常见神话和误解汇编中被揭穿的五十多个谣言中的三个。
 

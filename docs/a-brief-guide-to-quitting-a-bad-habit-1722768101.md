@@ -1,6 +1,6 @@
 # 戒除坏习惯的简要指南
 
-> 原文:[https://life hacker . com/a-brief-guide-to-戒掉坏习惯-1722768101](https://lifehacker.com/a-brief-guide-to-quitting-a-bad-habit-1722768101)
+> 原文：<https://lifehacker.com/a-brief-guide-to-quitting-a-bad-habit-1722768101>
 
 我们中没有多少人没有想要戒掉的坏习惯:吸烟、甜食、购物、咬指甲、色情、过度查看电话或社交媒体，以及其他分心的事情。问题是，面对过去一次又一次失败的证据，当我们试图放弃时，我们认为自己没有毅力。
 

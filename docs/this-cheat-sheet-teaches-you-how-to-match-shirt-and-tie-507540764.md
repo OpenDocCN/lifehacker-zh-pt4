@@ -1,6 +1,6 @@
 # 这张小抄教你如何搭配衬衫和领带图案
 
-> 原文:[https://life hacker . com/this-cheat-sheet-教你如何搭配衬衫和领带-507540764](https://lifehacker.com/this-cheat-sheet-teaches-you-how-to-match-shirt-and-tie-507540764)
+> 原文：<https://lifehacker.com/this-cheat-sheet-teaches-you-how-to-match-shirt-and-tie-507540764>
 
 学习如何搭配你的衬衫和领带，让它们搭配得更好，这可能是一门艺术，但你可以学学。这张来自男鞋设计公司 Beckett Simonon 的信息图向你展示了如何搭配最危险的衬衫和领带:有图案的衬衫和领带。
 

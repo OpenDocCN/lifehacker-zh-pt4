@@ -1,6 +1,6 @@
 # drop 桌面
 
-> 原文:[https://lifehacker.com/the-milkdrop-desktop-1665426902](https://lifehacker.com/the-milkdrop-desktop-1665426902)
+> 原文：<https://lifehacker.com/the-milkdrop-desktop-1665426902>
 
 Flickr 用户 [LostWatson](https://www.flickr.com/photos/azeron1786/) 的桌面超现实而美丽，但也井井有条。边上的一个简单的启动器提供了对他的应用程序的访问，剩下的就是整洁和清晰了。这是他用来设置这一切的。
 

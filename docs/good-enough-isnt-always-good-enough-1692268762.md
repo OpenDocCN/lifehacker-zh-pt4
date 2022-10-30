@@ -1,6 +1,6 @@
 # “足够好”并不总是足够好
 
-> 原文:[https://life hacker . com/good-enough-not-always-good-enough-1692268762](https://lifehacker.com/good-enough-isnt-always-good-enough-1692268762)
+> 原文：<https://lifehacker.com/good-enough-isnt-always-good-enough-1692268762>
 
 曾几何时，完美主义是优秀工作的标志，但世界上真正高效的人已经学会最好满足于“足够好”当你做小决定的时候，比如选择买哪支牙刷，这没问题。作为一种生活方式的选择，让你无法变得伟大的是垃圾。
 

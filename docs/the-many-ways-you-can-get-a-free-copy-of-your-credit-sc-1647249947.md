@@ -1,6 +1,6 @@
 # 许多方法可以让你得到一份免费的信用评分
 
-> 原文:[https://life hacker . com/the-many-way-you-can-get-a-free-copy-of-you-credit-sc-1647249947](https://lifehacker.com/the-many-ways-you-can-get-a-free-copy-of-your-credit-sc-1647249947)
+> 原文：<https://lifehacker.com/the-many-ways-you-can-get-a-free-copy-of-your-credit-sc-1647249947>
 
 记录你的信用评分是很重要的。而且越来越多的公司开始提供免费访问，这让人们很容易跟上。这里有几个免费获取你的信用评分的选择。
 

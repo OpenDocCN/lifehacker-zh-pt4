@@ -1,6 +1,6 @@
 # 对转基因食品最大的担忧其实并不是转基因生物
 
-> 原文:[https://life hacker . com/the-biggest-concerns-about-GMO-food-arent-really-about-1702906290](https://lifehacker.com/the-biggest-concerns-about-gmo-food-arent-really-about-1702906290)
+> 原文：<https://lifehacker.com/the-biggest-concerns-about-gmo-food-arent-really-about-1702906290>
 
 从墨西哥卷饼到 T1 食品宝贝 T2 T3，每个人都反对转基因成分，转基因食品标签法在一些州取得了进展。但是对转基因生物的激光聚焦是被误导的，因为人们提出的关于它们的大多数担忧*并不是真的关于转基因生物*。
 

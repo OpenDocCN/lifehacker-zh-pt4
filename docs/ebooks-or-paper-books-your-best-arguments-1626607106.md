@@ -1,6 +1,6 @@
 # 电子书还是纸质书:你最好的论据
 
-> 原文:[https://life hacker . com/ebooks-or-paper-books-your-best-arguments-1626607106](https://lifehacker.com/ebooks-or-paper-books-your-best-arguments-1626607106)
+> 原文：<https://lifehacker.com/ebooks-or-paper-books-your-best-arguments-1626607106>
 
 随着手机、平板电脑和电子阅读器的发展，电子书已经成为一种流行的阅读标准。尽管如此，还是有一些老式纸质书的感觉。我们 [问你](https://lifehacker.com/which-is-better-ebooks-or-paper-books-1625005600) 哪一个更好，为什么，这里是我们听到的一些最好的论点。
 

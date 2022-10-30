@@ -1,6 +1,6 @@
 # 用这些分形壁纸跨越数学和艺术之间的界限
 
-> 原文:[https://life hacker . com/straddle-the-line-of-math-and-art-with these-fract-1592845442](https://lifehacker.com/straddle-the-line-between-math-and-art-with-these-fract-1592845442)
+> 原文：<https://lifehacker.com/straddle-the-line-between-math-and-art-with-these-fract-1592845442>
 
 分形是一种美丽的现象，当重复的图案用视觉表现出来时就会出现。除了是迷人的数学概念，它们还可以制作一些精彩的壁纸。
 

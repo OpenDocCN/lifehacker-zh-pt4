@@ -1,6 +1,6 @@
 # 从亚马逊订购所有东西真的更便宜吗？
 
-> 原文:[https://life hacker . com/is-it-actually-to-order-everything-from-Amazon-1451086140](https://lifehacker.com/is-it-actually-cheaper-to-order-everything-from-amazon-1451086140)
+> 原文：<https://lifehacker.com/is-it-actually-cheaper-to-order-everything-from-amazon-1451086140>
 
 亚马逊几乎是廉价小工具、书籍、音乐、食物和几乎所有其他东西的首选之地。但是我们想看看它和其他商店相比到底便宜多少。所以，我们统计了一些购物清单并进行比较。
 

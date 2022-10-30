@@ -1,6 +1,6 @@
 # 最好的远程桌面工具是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-remote-desktop-tool-1506973784](https://lifehacker.com/whats-the-best-remote-desktop-tool-1506973784)
+> 原文：<https://lifehacker.com/whats-the-best-remote-desktop-tool-1506973784>
 
 当你需要在不在家的时候访问你的计算机，或者在不去别人家的情况下对他们的计算机进行故障诊断时，一个好的远程桌面工具是救命稻草。我们之前最喜欢的 [之一](https://lifehacker.com/five-best-remote-desktop-tools-31055777)【LogMeIn】[即将溢价](http://lifehacker.com/remote-desktop-tool-logmein-is-no-longer-free-1505850872) ，所以是时候谈谈替代品了。本周我们想听听你会选择哪种工具。
 

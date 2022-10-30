@@ -1,6 +1,6 @@
 # 你可以克服的 10 大约会和恋爱挑战
 
-> 原文:[https://life hacker . com/top-10-relationship-challenges-you-can-comprise-1562347466](https://lifehacker.com/top-10-relationship-challenges-you-can-overcome-1562347466)
+> 原文：<https://lifehacker.com/top-10-relationship-challenges-you-can-overcome-1562347466>
 
 不管你是第一次约会结婚、同居还是异地恋，我们都需要一些恋爱建议。以下是我们多年来遇到的 10 种棘手的人际关系状况，以及如何应对它们。
 

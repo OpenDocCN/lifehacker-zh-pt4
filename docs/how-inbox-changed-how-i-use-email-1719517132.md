@@ -1,6 +1,6 @@
 # 谷歌收件箱如何改变我使用电子邮件的方式
 
-> 原文:[https://life hacker . com/how-inbox-changed-how-I-use-email-1719517132](https://lifehacker.com/how-inbox-changed-how-i-use-email-1719517132)
+> 原文：<https://lifehacker.com/how-inbox-changed-how-i-use-email-1719517132>
 
 谷歌在发布 [收件箱](https://lifehacker.com/how-googles-new-inbox-works-and-changes-how-you-approa-1652303148) 的时候分化了 Gmail 人群。对一些人来说，这是令人困惑和无益的。然而，对于像我一样的其他人来说，收件箱是一股清新的空气。以下是它如何改变了我的工作流程，以及为什么我认为值得一试。
 

@@ -1,6 +1,6 @@
 # 我如何安全地将敏感的税务文件发送给我的报税人？
 
-> 原文:[https://life hacker . com/how-can-I-securely-sensitive-tax-docs-to-my-tax-pr-5784478](https://lifehacker.com/how-can-i-securely-send-sensitive-tax-docs-to-my-tax-pr-5784478)
+> 原文：<https://lifehacker.com/how-can-i-securely-send-sensitive-tax-docs-to-my-tax-pr-5784478>
 
 亲爱的 Lifehacker，
 纳税季正在如火如荼地进行，我准备将我的文件发送给我的报税员，我想知道:在这个数字时代，我如何安全地(并且自由地)将我的税务文件发送给我的注册会计师？

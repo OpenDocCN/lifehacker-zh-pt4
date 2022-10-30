@@ -1,6 +1,6 @@
 # 你不知道可以用慢炖锅做出的美味菜肴
 
-> 原文:[https://life hacker . com/delicious-disks-you-not-know-you-can-make-in-a-sl-1506535684](https://lifehacker.com/delicious-dishes-you-didnt-know-you-could-make-in-a-sl-1506535684)
+> 原文：<https://lifehacker.com/delicious-dishes-you-didnt-know-you-could-make-in-a-sl-1506535684>
 
 你可能听说过慢炖锅，以及它们如何在厨房里为你节省时间和金钱。大多数人用它们来慢炖汤、炖菜和肉汤，这很好——但是你知道你可以用慢炖锅做芝士蛋糕吗？烧烤排骨呢？让我们来谈谈一些意想不到的，美味的，令人惊讶的慢烹饪友好的饭菜。
 

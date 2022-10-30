@@ -1,6 +1,6 @@
 # 苹果在 WWDC 2015 上宣布的所有真正重要的事情
 
-> 原文:[https://life hacker . com/everything-apple-announced-at-wwdc-2015-that-actually-m-1709861705](https://lifehacker.com/everything-apple-announced-at-wwdc-2015-that-actually-m-1709861705)
+> 原文：<https://lifehacker.com/everything-apple-announced-at-wwdc-2015-that-actually-m-1709861705>
 
 苹果今天宣布了各种东西，包括他们新的流媒体音乐服务，iOS 9，OS X El Capitan 和 watchOS 2。这是一个很长的会议，所以让我们为你总结一下。
 

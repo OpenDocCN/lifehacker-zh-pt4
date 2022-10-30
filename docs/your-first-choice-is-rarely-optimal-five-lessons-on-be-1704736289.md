@@ -1,6 +1,6 @@
 # 你的第一选择很少是最佳的:关于犯错的五堂课
 
-> 原文:[https://life hacker . com/your-first-choice-is-less-optimal-five-lessons-on-be-1704736289](https://lifehacker.com/your-first-choice-is-rarely-optimal-five-lessons-on-be-1704736289)
+> 原文：<https://lifehacker.com/your-first-choice-is-rarely-optimal-five-lessons-on-be-1704736289>
 
 当我们在生活中做出重大决定时，我们对自己非常苛刻。无论是关于一段关系 [还是一份工作](https://lifehacker.com/why-there-are-no-right-or-wrong-career-moves-1704232930) ，当我们试图决定一件复杂而多面的事情时，犯错是没关系的。事实上，你的第一选择通常是错误的。
 

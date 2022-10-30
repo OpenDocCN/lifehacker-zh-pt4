@@ -1,6 +1,6 @@
 # 你能马上处理的最常见的两分钟邮件
 
-> 原文:[https://life hacker . com/the-most-common-two-minute-emails-you-can-deal-with-rig-1575888009](https://lifehacker.com/the-most-common-two-minute-emails-you-can-deal-with-rig-1575888009)
+> 原文：<https://lifehacker.com/the-most-common-two-minute-emails-you-can-deal-with-rig-1575888009>
 
 根据 [GTD 方法论](https://lifehacker.com/productivity-101-a-primer-to-the-getting-things-done-1551880955) ，如果一件事花了你不到两分钟，你应该立即去做——再多一分钟，这件事就会列入你的待办事项清单。以下是一些最常见的两分钟邮件，你可以从它们的主题行中发现。
 

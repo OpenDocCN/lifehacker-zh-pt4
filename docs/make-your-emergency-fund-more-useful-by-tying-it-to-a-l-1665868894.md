@@ -1,6 +1,6 @@
 # 将你的应急基金与长期目标联系起来，让它更有用
 
-> 原文:[https://life hacker . com/make-your-emergency-fund-by-tie-to-a-l-1665868894](https://lifehacker.com/make-your-emergency-fund-more-useful-by-tying-it-to-a-l-1665868894)
+> 原文：<https://lifehacker.com/make-your-emergency-fund-more-useful-by-tying-it-to-a-l-1665868894>
 
 你的应急基金应该在意外的紧急情况下帮助你摆脱困境。然而，一旦你攒下了 3 到 6 个月的开销(不管专家们现在怎么推荐，都是 T1，T2，T3)，这些钱看起来就像是被闲置在那里积灰了。
 

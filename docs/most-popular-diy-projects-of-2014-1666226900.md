@@ -1,6 +1,6 @@
 # 2014 年最受欢迎的 DIY 项目
 
-> 原文:[https://life hacker . com/most-popular-DIY-projects-of-of-2014-1666226900](https://lifehacker.com/most-popular-diy-projects-of-2014-1666226900)
+> 原文：<https://lifehacker.com/most-popular-diy-projects-of-2014-1666226900>
 
 我们喜欢 Lifehacker 的好的 DIY 项目，但是如果你现在没有计划一个项目，它们很容易被错过。从电脑到家庭，这些都是我们今年最受欢迎的 DIY 项目。
 

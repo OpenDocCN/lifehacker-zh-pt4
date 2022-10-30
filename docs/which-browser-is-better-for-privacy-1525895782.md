@@ -1,6 +1,6 @@
 # 哪个浏览器的隐私性比较好？
 
-> 原文:[https://life hacker . com/哪个浏览器更适合保护隐私-1525895782](https://lifehacker.com/which-browser-is-better-for-privacy-1525895782)
+> 原文：<https://lifehacker.com/which-browser-is-better-for-privacy-1525895782>
 
 亲爱的 Lifehacker，
 用火狐 [获取广告](https://blog.mozilla.org/advancingcontent/2014/02/11/publisher-transformation-with-users-at-the-center/) 和 Chrome 扩展 [刺探我](https://lifehacker.com/many-browser-extensions-have-become-adware-or-malware-1505117457) ，真的有一款浏览器在隐私方面比其他的好吗？如果我用 Opera 或 Safari 之类的东西来代替，有关系吗？我的浏览器是否在监视我在做什么并向我报告？

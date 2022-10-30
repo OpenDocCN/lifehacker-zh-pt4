@@ -1,6 +1,6 @@
 # 我 20 多岁时学到的 10 条最重要的人生经验
 
-> 原文:[https://life hacker . com/10-of-the-most-the-life-lessons-my-1547298543](https://lifehacker.com/10-of-the-most-important-life-lessons-i-learned-from-my-1547298543)
+> 原文：<https://lifehacker.com/10-of-the-most-important-life-lessons-i-learned-from-my-1547298543>
 
 在我 20 岁生日的时候，我喝醉了，在一些老太太的前草坪上撒尿。一个警察看见了我，拦住了我。幸运的是，那晚我说服自己不去坐牢。我已经有逮捕记录了，但他懒得去查。我的 20 多岁开始时轰轰烈烈。
 

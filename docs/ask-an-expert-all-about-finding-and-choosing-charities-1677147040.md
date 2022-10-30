@@ -1,6 +1,6 @@
 # 问专家:寻找和选择慈善机构
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-finding-and-choose-charities-1677147040](https://lifehacker.com/ask-an-expert-all-about-finding-and-choosing-charities-1677147040)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-finding-and-choosing-charities-1677147040>
 
 留出一些钱给慈善机构是一件高尚的事情，但是你怎么知道哪些慈善机构值得你的钱呢？你是花钱买了一个腕带，还是你的钱真的要派上用场？一个慈善组织的主管在这里讨论如何寻找和审查慈善机构。
 

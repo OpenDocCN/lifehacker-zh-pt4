@@ -1,6 +1,6 @@
 # 从任何地方使用您的计算机:远程控制您的 PC 指南
 
-> 原文:[https://life hacker . com/use-your-computer-from-anywhere-a-guide-to-remote-cont-5902654](https://lifehacker.com/use-your-computer-from-anywhere-a-guide-to-remote-cont-5902654)
+> 原文：<https://lifehacker.com/use-your-computer-from-anywhere-a-guide-to-remote-cont-5902654>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-RdSUUGpmwTU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-RdSUUGpmwTU&start=0) 
 

@@ -1,6 +1,6 @@
 # 我是 Ayah Bdeir，littleBits 的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-ayah-bde IR-CEO-of-little bits-and-this-is-how-I-wo-1560981644](https://lifehacker.com/im-ayah-bdeir-ceo-of-littlebits-and-this-is-how-i-wo-1560981644)
+> 原文：<https://lifehacker.com/im-ayah-bdeir-ceo-of-littlebits-and-this-is-how-i-wo-1560981644>
 
 对我这样的人来说，与电子产品打交道可能是令人生畏的——我不知道烙铁和胶枪，我也肯定不知道如何阅读电路图。幸运的是，还有 [小比特](http://littlebits.cc/) 。littleBits 是开源的电子模块，像玩具一样扣在一起，使学习过程变得有趣和简单。littleBits 后面是 Ayah Bdeir。Ayah 是一名工程师、艺术家，也是麻省理工学院媒体实验室的校友，他创建了这家公司，让所有年龄和背景的人都能接触到电子产品。我们请 Ayah 分享她如何管理她萌芽中的电子帝国的一些技巧。
 

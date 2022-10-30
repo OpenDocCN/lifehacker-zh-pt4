@@ -1,6 +1,6 @@
 # 旅行时如何在食物上省钱
 
-> 原文:[https://life hacker . com/how-to-save-money on-food-while traveling-1633353468](https://lifehacker.com/how-to-save-money-on-food-while-traveling-1633353468)
+> 原文：<https://lifehacker.com/how-to-save-money-on-food-while-traveling-1633353468>
 
 食物是旅行中最大的开销之一，也是你可以削减成本的主要领域之一。有时在一顿难忘的饭上多花几块钱是值得的，但并不是每顿饭都属于这一类。这里有五种方法可以在旅行中节省食物开支。
 

@@ -1,6 +1,6 @@
 # 您应该立即启用的基本 Android 安全功能
 
-> 原文:[https://life hacker . com/the-essential-Android-security-features-you-should-enab-1609559324](https://lifehacker.com/the-essential-android-security-features-you-should-enab-1609559324)
+> 原文：<https://lifehacker.com/the-essential-android-security-features-you-should-enab-1609559324>
 
 你的手机可能是你拥有的最私人的设备。你随时都带着它，它可以访问你大部分最敏感的数据。以下是如何使用谷歌提供的基本工具来保证它的安全。
 

@@ -1,6 +1,6 @@
 # 有了这些免费的云存储空间，我可以做哪些很酷的事情？
 
-> 原文:[https://life hacker . com/what-cool-things-I-can-do-all-this-free-cloud-stor-5911022](https://lifehacker.com/what-cool-things-can-i-do-with-all-this-free-cloud-stor-5911022)
+> 原文：<https://lifehacker.com/what-cool-things-can-i-do-with-all-this-free-cloud-stor-5911022>
 
 亲爱的 Lifehacker，
 每当我看到免费云存储的报价时，我都很感兴趣。我有超过 8GB 的 Dropbox 空间，5GB 在 Google Drive 上，20GB 在 Amazon Cloud Drive 上，50GB 在 box 上，7GB 在微软的 SkyDrive 上——我想利用所有的*。有什么建议吗？*

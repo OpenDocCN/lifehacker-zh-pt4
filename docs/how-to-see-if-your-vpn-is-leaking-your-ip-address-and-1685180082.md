@@ -1,6 +1,6 @@
 # 如何查看您的 VPN 是否泄露了您的 IP 地址(以及如何阻止它)
 
-> 原文:[https://life hacker . com/how-to-see-if-your-VPN-is-leakage-your-IP-address-and-1685180082](https://lifehacker.com/how-to-see-if-your-vpn-is-leaking-your-ip-address-and-1685180082)
+> 原文：<https://lifehacker.com/how-to-see-if-your-vpn-is-leaking-your-ip-address-and-1685180082>
 
 VPN 在安全性方面很棒，但是许多人使用 VPN 的一个重要原因是掩盖或改变他们的 IP 地址。这可以让您避开基于位置的内容限制，或者检查您的提供商是否正在限制您的连接。不幸的是，一个新的安全漏洞会暴露你的真实 IP 地址，即使你使用的是 VPN，这也很容易被利用。这就是它的工作原理，以及你能做些什么。
 

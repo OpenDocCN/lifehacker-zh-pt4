@@ -1,6 +1,6 @@
 # 学习编码的最佳资源
 
-> 原文:[https://life hacker . com/the-best-resources-to-learn-to-code-1517844722](https://lifehacker.com/the-best-resources-to-learn-to-code-1517844722)
+> 原文：<https://lifehacker.com/the-best-resources-to-learn-to-code-1517844722>
 
 我们已经讨论过 [最好的编程语言入门](https://lifehacker.com/five-best-programming-languages-for-first-time-learners-1494256243) 、 [为什么要](http://lifehacker.com/how-i-taught-myself-to-code-in-eight-weeks-511615189) ( [和不应该](http://lifehacker.com/dont-learn-to-code-learn-to-work-with-technology-1488581331) )学习编码，甚至还重点介绍了 [一些很棒的入门工具](http://lifehacker.com/learn-to-code-the-full-beginners-guide-5744113)，但是说实话；它们都只是冰山一角，尤其是如果你想学习一些特定的东西。让我们列出学习编码的最佳资源，从一般到具体。
 

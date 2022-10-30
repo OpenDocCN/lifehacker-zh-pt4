@@ -1,6 +1,6 @@
 # 请教专家:提升你与 Nerdlove 博士的约会水平
 
-> 原文:[https://life hacker . com/ask-an-expert-leveling-up-your-date-game-with-dr-ne-1654018947](https://lifehacker.com/ask-an-expert-leveling-up-your-dating-game-with-dr-ne-1654018947)
+> 原文：<https://lifehacker.com/ask-an-expert-leveling-up-your-dating-game-with-dr-ne-1654018947>
 
 你的爱情生活是 DOA 吗？跟哈里斯·欧玛利打个招呼，也就是所谓的 Nerdlove 博士。《好医生》向我们这些人——书呆子、呆子、呆子等——提供爱情、性和约会方面的建议，他们可能更喜欢扮演万智牌，而不是真正去参加聚会。
 

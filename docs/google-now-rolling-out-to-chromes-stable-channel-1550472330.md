@@ -1,6 +1,6 @@
 # 谷歌现在推出 Chrome，已经退出测试
 
-> 原文:[https://life hacker . com/Google-now-rolling-out-to-chromes-stable-channel-1550472330](https://lifehacker.com/google-now-rolling-out-to-chromes-stable-channel-1550472330)
+> 原文：<https://lifehacker.com/google-now-rolling-out-to-chromes-stable-channel-1550472330>
 
 Windows/OS X:如果你一直在使用 Chrome beta 版 [或 dev channel](https://lifehacker.com/google-now-comes-to-desktop-in-chrome-dev-channel-1514843013) ，你就可以在你的浏览器中享受 Google Now 卡的好处。现在，稳定频道的用户也可以享受这一乐趣了。
 

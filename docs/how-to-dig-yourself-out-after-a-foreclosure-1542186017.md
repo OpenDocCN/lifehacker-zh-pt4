@@ -1,6 +1,6 @@
 # 如何在丧失抵押品赎回权后摆脱困境
 
-> 原文:[https://life hacker . com/how-to-dig-out-after a-foreclosure-1542186017](https://lifehacker.com/how-to-dig-yourself-out-after-a-foreclosure-1542186017)
+> 原文：<https://lifehacker.com/how-to-dig-yourself-out-after-a-foreclosure-1542186017>
 
 取消抵押品赎回权是令人沮丧的经历，但有可能从中恢复过来。通过为这些挫折做准备来管理财务后果。
 

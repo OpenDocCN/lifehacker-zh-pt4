@@ -1,6 +1,6 @@
 # 停止预定视频游戏
 
-> 原文:[https://kotaku.com/stop-preordering-video-games-1713802537](https://kotaku.com/stop-preordering-video-games-1713802537)
+> 原文：<https://kotaku.com/stop-preordering-video-games-1713802537>
 
 你看，似乎到处都有 [一款新的电子游戏坏了](http://kotaku.com/new-video-games-shouldnt-be-so-broken-1658570535#_ga=1.186114025.1374784816.1416946327) 。你的时间和金钱应该得到更好的回报。
 

@@ -1,6 +1,6 @@
 # 让你的办公室看起来比实际更干净的十个简单方法
 
-> 原文:[https://life hacker . com/ten-simple-ways-make your office-look-clean-than-I-1624564242](https://lifehacker.com/ten-simple-ways-to-make-your-office-look-cleaner-than-i-1624564242)
+> 原文：<https://lifehacker.com/ten-simple-ways-to-make-your-office-look-cleaner-than-i-1624564242>
 
 你的办公室是你出门在外的家，保持办公室整洁对你的日常工作生活非常重要。如果你能每天打扫卫生，那当然很好，但是简单地给人一种事情井井有条的感觉可以让你看起来不像一个十足的邋遢鬼。
 

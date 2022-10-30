@@ -1,6 +1,6 @@
 # 如何摆脱指责游戏，开始解决你的问题
 
-> 原文:[https://life hacker . com/how-to-move-past-the-fall-game-and-start-fixing-your-1683469613](https://lifehacker.com/how-to-move-past-the-blame-game-and-start-fixing-your-1683469613)
+> 原文：<https://lifehacker.com/how-to-move-past-the-blame-game-and-start-fixing-your-1683469613>
 
 把你的问题归咎于别人(或某事)是很容易的。你不能控制一切，这个世界总会想办法让你的生活变得更艰难。但是这就是责备的问题:它不能解决任何问题。
 

@@ -1,6 +1,6 @@
 # 练习自我同情来改善你对自己的感觉
 
-> 原文:[https://life hacker . com/practice-self-sipathy-to-improve-how-how-you-feel-on-1612232018](https://lifehacker.com/practice-self-compassion-to-improve-how-you-feel-about-1612232018)
+> 原文：<https://lifehacker.com/practice-self-compassion-to-improve-how-you-feel-about-1612232018>
 
 最近我一直在思考自尊，以及你如何永远不会拥有太多的自尊(至少我是这么认为的)。我想更多地了解自尊是如何起作用的，以及当它越来越低时如何提升它。我惊讶地发现，自尊并不像我想象的那样简单——更重要的是自怜。
 

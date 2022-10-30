@@ -1,6 +1,6 @@
 # Quirky 的新空调装置让你最笨的能源猪变聪明
 
-> 原文:[https://gizmodo . com/quirkys-new-a-c-unit-smartens-up-your-dumb-energy-h-1546937658](https://gizmodo.com/quirkys-new-a-c-unit-smartens-up-your-dumbest-energy-h-1546937658)
+> 原文：<https://gizmodo.com/quirkys-new-a-c-unit-smartens-up-your-dumbest-energy-h-1546937658>
 
 这是 Aros，这是 Quirky 和 GE 今天推出的一款 Wi-Fi 联网空调，面向节能意识强的消费者。这是迄今为止 Quirky 制造的最大、最复杂的产品，它旨在帮助解决真正普遍存在的问题:自 20 世纪 70 年代以来几乎没有改变的窗户空调装置。
 

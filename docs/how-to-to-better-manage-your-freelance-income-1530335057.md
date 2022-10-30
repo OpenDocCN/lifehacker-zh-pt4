@@ -1,6 +1,6 @@
 # 如何更好地管理你的自由职业收入
 
-> 原文:[https://life hacker . com/how-to-better-manage-your freelance-1530335057](https://lifehacker.com/how-to-to-better-manage-your-freelance-income-1530335057)
+> 原文：<https://lifehacker.com/how-to-to-better-manage-your-freelance-income-1530335057>
 
 自由职业是有益的，但它不适合心脏虚弱的人。是的，你可以做你喜欢的工作，并且(大部分)按照你自己的方式去做。你也可以扮演你可能不太喜欢的角色，比如营销人员、销售人员和簿记员，其中一些 [我们已经在](https://lifehacker.com/things-you-should-expect-if-you-start-freelancing-and-h-5889901) 之前谈过[。自由职业者面临的最大挑战之一是管理不稳定的收入。](http://lifehacker.com/what-do-i-need-to-do-now-that-im-making-some-legit-mone-5895507)
 

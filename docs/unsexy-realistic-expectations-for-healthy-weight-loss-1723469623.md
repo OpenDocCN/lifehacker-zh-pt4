@@ -1,6 +1,6 @@
 # 对健康减肥的不性感、现实的期望
 
-> 原文:[https://life hacker . com/unsexy-realistic-expectations-for-health-weight-losing-1723469623](https://lifehacker.com/unsexy-realistic-expectations-for-healthy-weight-loss-1723469623)
+> 原文：<https://lifehacker.com/unsexy-realistic-expectations-for-healthy-weight-loss-1723469623>
 
 如果你热衷于减肥，想加入一个项目，如果这个项目前面有以下任何一个词，就拿着电话:“快速”，“快速”，以及任何其他“快”的同义词。减肥*可以*发生的很快，但一般来说，不应该。
 

@@ -1,6 +1,6 @@
 # Android 的最佳短信替代品
 
-> 原文:[https://life hacker . com/the-best-text-messaging-replacement-for-Android-5858078](https://lifehacker.com/the-best-text-messaging-replacement-for-android-5858078)
+> 原文：<https://lifehacker.com/the-best-text-messaging-replacement-for-android-5858078>
 
 自从我们上次看到 Android 短信替代品已经有一段时间了。我们之前的选择是谷歌语音，但随着该应用程序被纳入 Hangouts，似乎是时候进行更新了。对于专门的短信用户来说，Handcent 短信似乎拿走了蛋糕。
 

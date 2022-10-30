@@ -1,6 +1,6 @@
 # Nexus 播放器评论:安卓电视还没准备好进入黄金时段
 
-> 原文:[https://gizmodo . com/nexus-player-review-Android-TV-not-ready-for-prime Tim-1654020445](https://gizmodo.com/nexus-player-review-android-tv-isnt-ready-for-primetim-1654020445)
+> 原文：<https://gizmodo.com/nexus-player-review-android-tv-isnt-ready-for-primetim-1654020445>
 
 安卓电视令人兴奋。太美了。这个想法有道理。你也许应该避开，直到谷歌把它的狗屎在一起。在此之前，100 美元的 Nexus 播放器并不划算。
 

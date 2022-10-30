@@ -1,6 +1,6 @@
 # 纽约市最好的免费活动
 
-> 原文:[https://life hacker . com/the-best-free-things-to-do-in-new York-city-1643611988](https://lifehacker.com/the-best-free-things-to-do-in-new-york-city-1643611988)
+> 原文：<https://lifehacker.com/the-best-free-things-to-do-in-new-york-city-1643611988>
 
 不管你是在旅游中还是在城市生活中遇到过，大多数人都知道至少可以做一些有趣且免费的事情。在本帖中，让我们关注旅行者的主要目的地，纽约市。你在纽约做过哪些免费活动？
 

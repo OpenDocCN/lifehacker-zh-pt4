@@ -1,6 +1,6 @@
 # 请教专家:出国旅行时如何理财
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-managing-money-while travel-1717473043](https://lifehacker.com/ask-an-expert-all-about-managing-money-while-traveling-1717473043)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-managing-money-while-traveling-1717473043>
 
 当你终于休假出国时，什么是购物的最佳方式，又不会增加过高的费用？兑换你的钱，带一叠现金，或者找一张适合你的信用卡？来帮助我们的是来自 [NerdWallet](http://www.nerdwallet.com/) 的朋友。
 

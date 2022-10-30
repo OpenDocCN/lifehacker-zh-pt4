@@ -1,6 +1,6 @@
 # 九月最好买的东西
 
-> 原文:[https://life hacker . com/the-best-things-to-buy-in-940424](https://lifehacker.com/the-best-things-to-buy-in-september-5940424)
+> 原文：<https://lifehacker.com/the-best-things-to-buy-in-september-5940424>
 
 夏天可能正在慢慢接近尾声，但这并不意味着九月就不再精彩。通过这个月的大交易来抚慰你夏天的悲伤。
 

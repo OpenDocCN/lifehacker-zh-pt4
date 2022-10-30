@@ -1,6 +1,6 @@
 # 如何和孩子一起旅行，让每个人都开心
 
-> 原文:[https://life hacker . com/how-to-travel with your-kids-and-keep-every one-happy-1695901835](https://lifehacker.com/how-to-travel-with-your-kids-and-keep-everyone-happy-1695901835)
+> 原文：<https://lifehacker.com/how-to-travel-with-your-kids-and-keep-everyone-happy-1695901835>
 
 你能给你的孩子的最好的经历之一就是去新的、不同的地方旅行。他们会像人一样成长，同时与你一起创造持久的记忆。以下是你如何提升下一次家庭旅行的方法。
 

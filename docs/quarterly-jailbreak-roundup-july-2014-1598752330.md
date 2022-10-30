@@ -1,6 +1,6 @@
 # 你的季度越狱摘要，2014 年 7 月
 
-> 原文:[https://life hacker . com/quarterly-jail break-round up-July-2014-1598752330](https://lifehacker.com/quarterly-jailbreak-roundup-july-2014-1598752330)
+> 原文：<https://lifehacker.com/quarterly-jailbreak-roundup-july-2014-1598752330>
 
 随着 [最近发布了 iOS 7.1.2](https://lifehacker.com/ios-7-1-1-untethered-jailbreak-released-1594866825) 的越狱，越狱又回到了风口浪尖。在过去的几个月里，已经产生了一些伟大的应用程序，这里是我们最喜欢的一些。
 

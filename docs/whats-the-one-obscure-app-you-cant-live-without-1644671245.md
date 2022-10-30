@@ -1,6 +1,6 @@
 # 你离不开的一个不起眼的应用是什么？
 
-> 原文:[https://life hacker . com/whats-one-obscent-app-你不能没有-1644671245](https://lifehacker.com/whats-the-one-obscure-app-you-cant-live-without-1644671245)
+> 原文：<https://lifehacker.com/whats-the-one-obscure-app-you-cant-live-without-1644671245>
 
 我们都知道并喜欢 Dropbox、Evernote 和 Gmail 等服务。但如果说 Lifehacker 有什么我们喜欢的东西，那就是那些让生活变得更轻松的小而不为人知的应用程序。
 

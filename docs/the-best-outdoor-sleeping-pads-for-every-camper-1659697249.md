@@ -1,6 +1,6 @@
 # 每个露营者的最佳睡垫
 
-> 原文:[https://gizmodo . com/the-best-outdoor-sleep-pads-for-ever-camper-1659697249](https://gizmodo.com/the-best-outdoor-sleeping-pads-for-every-camper-1659697249)
+> 原文：<https://gizmodo.com/the-best-outdoor-sleeping-pads-for-every-camper-1659697249>
 
 信不信由你，现在户外睡垫比你在家里的床更舒服。所有这些舒适都可以装在一个比你的水瓶还小的包里。 [得益于新材料和粘合技术](https://gizmodo.com/everything-you-ever-wanted-to-know-about-outdoor-sleep-1658866916) ，你的老款童子军睡卷彻底过时了。那么你应该买什么呢？
 

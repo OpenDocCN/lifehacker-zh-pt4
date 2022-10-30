@@ -1,6 +1,6 @@
 # 我们如何工作，2014 年:安迪·奥林的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-2014-Andy-orins-gear-and-productivity-ti-1520628327](https://lifehacker.com/how-we-work-2014-andy-orins-gear-and-productivity-ti-1520628327)
+> 原文：<https://lifehacker.com/how-we-work-2014-andy-orins-gear-and-productivity-ti-1520628327>
 
 每周我们都会强调一些我们最喜欢的生活黑客英雄是如何工作的，但是现在轮到我们来说说我们自己的习惯和装备。我是安迪，Lifehacker 花名册上的最新成员，我每天都在帮助团队寻找故事，清除错误，并跟踪其他线索。这是我的工作方式。很明显他们把我留到了情人节前夜，因为我很可爱。
 

@@ -1,6 +1,6 @@
 # 如何为超宽屏游戏(和工作)设置三显示器
 
-> 原文:[https://life hacker . com/how-to-set-up-three-monitors-for-super-wide-gami-1680863770](https://lifehacker.com/how-to-set-up-triple-monitors-for-super-widescreen-gami-1680863770)
+> 原文：<https://lifehacker.com/how-to-set-up-triple-monitors-for-super-widescreen-gami-1680863770>
 
 使用两个以上的显示器曾经是那些拥有最大 PC 建设预算的人的奢侈品。如今，大型高分辨率显示器价格适中，显卡的功能也比以往更强大。如果同时在三台显示器上玩游戏(或工作)的想法吸引了你，以下是实现这一想法的方法。
 

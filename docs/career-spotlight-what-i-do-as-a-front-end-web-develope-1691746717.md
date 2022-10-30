@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名前端 Web 开发人员，我做些什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-front-end-we b-develop-1691746717](https://lifehacker.com/career-spotlight-what-i-do-as-a-front-end-web-develope-1691746717)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-front-end-web-develope-1691746717>
 
 如果没有 web 开发人员和设计人员创建我们每天走过的互联网页面，web 将会是一片手工编码的 HTML 和“正在构建中”的 gif 的荒地。前端开发人员的工作是创建和实现我们最喜欢的出版物和网站的熟悉布局。
 

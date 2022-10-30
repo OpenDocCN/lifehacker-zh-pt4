@@ -1,6 +1,6 @@
 # 通过这个 30 秒的瑜伽动作，获得更好的睡眠，促进消化
 
-> 原文:[https://life hacker . com/get-better-sleep-and-improve-digestion-with this-30-sec-1560833835](https://lifehacker.com/get-better-sleep-and-improve-digestion-with-this-30-sec-1560833835)
+> 原文：<https://lifehacker.com/get-better-sleep-and-improve-digestion-with-this-30-sec-1560833835>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-P2Ief_QdEao&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-P2Ief_QdEao&start=0) 
 

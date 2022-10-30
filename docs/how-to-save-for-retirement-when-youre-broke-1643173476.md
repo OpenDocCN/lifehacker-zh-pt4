@@ -1,6 +1,6 @@
 # 当你破产时，如何为退休储蓄
 
-> 原文:[https://life hacker . com/how-to-save for the retirement-when you-break-1643173476](https://lifehacker.com/how-to-save-for-retirement-when-youre-broke-1643173476)
+> 原文：<https://lifehacker.com/how-to-save-for-retirement-when-youre-broke-1643173476>
 
 你破产了。这让你痛不欲生。不是因为你想出去给自己买一堆垃圾，而是因为你有更大的金融梦想。你希望能够拯救。你想每年为个人退休帐户或 401k 提供充足的资金。你肯定不想在你的黄金时代靠拉面生活。那你是做什么的？
 

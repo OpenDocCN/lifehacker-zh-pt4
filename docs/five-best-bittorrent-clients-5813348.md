@@ -1,6 +1,6 @@
 # 五个最好的 BitTorrent 客户端
 
-> 原文:[https://lifehacker.com/five-best-bittorrent-clients-5813348](https://lifehacker.com/five-best-bittorrent-clients-5813348)
+> 原文：<https://lifehacker.com/five-best-bittorrent-clients-5813348>
 
 BitTorrent 仍然是传输大文件的好方法，但是它的方便和效率取决于你用来播种和下载它们的应用程序。本周，我们将根据您的提名，来看看五个最好的 BitTorrent 客户端。
 

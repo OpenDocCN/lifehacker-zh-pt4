@@ -1,6 +1,6 @@
 # 受伤后如何恢复跑步
 
-> 原文:[https://life hacker . com/how-to-return-to-running-after-a-injury-1553063140](https://lifehacker.com/how-to-return-to-running-after-an-injury-1553063140)
+> 原文：<https://lifehacker.com/how-to-return-to-running-after-an-injury-1553063140>
 
 不幸的是，跑步受伤的情况很多，但是很难让一个跑步者长时间倒下。不出所料，我听到的最常见的问题之一是，“*受伤后我如何恢复跑步？*
 

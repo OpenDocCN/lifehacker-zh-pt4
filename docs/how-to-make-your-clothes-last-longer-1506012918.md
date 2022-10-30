@@ -1,6 +1,6 @@
 # 如何让你的衣服更耐穿
 
-> 原文:[https://life hacker . com/how-to-make-your-clothes-last-longer-1506012918](https://lifehacker.com/how-to-make-your-clothes-last-longer-1506012918)
+> 原文：<https://lifehacker.com/how-to-make-your-clothes-last-longer-1506012918>
 
 如果你把便宜的衣服带回家，却不小心对待它们，你很可能不得不马上换掉它们。然而，如果你适当地护理你的衣服，它们会穿得更久，从长远来看，这将为你节省更多的钱。
 

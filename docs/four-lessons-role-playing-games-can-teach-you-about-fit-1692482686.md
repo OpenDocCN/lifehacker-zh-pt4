@@ -1,6 +1,6 @@
 # 角色扮演游戏能教会你健身的四课
 
-> 原文:[https://life hacker . com/four-lessons-role-playing-games-can-teach-you-about-fit-1692482686](https://lifehacker.com/four-lessons-role-playing-games-can-teach-you-about-fit-1692482686)
+> 原文：<https://lifehacker.com/four-lessons-role-playing-games-can-teach-you-about-fit-1692482686>
 
 在大多数人的心目中，游戏玩家与他们渴望成为的肌肉发达、身材健美的运动员相去甚远...可能是因为电子游戏经常被指责为造就了一代电视迷。但事实上，有许多健康的游戏玩家，他们中的许多人在谈论他们如何变得健康时会引用他们所知道和喜爱的 RPG 的相似之处。
 

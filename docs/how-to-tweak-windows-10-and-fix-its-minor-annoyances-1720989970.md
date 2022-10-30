@@ -1,6 +1,6 @@
 # 如何调整 Windows 10 并解决它的小问题
 
-> 原文:[https://life hacker . com/how-to-tweak-windows-10-and-fix-its-minor-anxions-1720989970](https://lifehacker.com/how-to-tweak-windows-10-and-fix-its-minor-annoyances-1720989970)
+> 原文：<https://lifehacker.com/how-to-tweak-windows-10-and-fix-its-minor-annoyances-1720989970>
 
 Windows 10 解决了 Windows 8 遗留下来的许多问题，但它也有一些自己的问题——尽管大多数问题可能都不大。以下是如何调整操作系统的一些新功能和修复它的小怪癖。
 

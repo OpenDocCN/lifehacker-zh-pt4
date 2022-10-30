@@ -1,6 +1,6 @@
 # 问一个专家:如何在没有设备的情况下进行锻炼
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-get-a-workout-without-equi-1645654311](https://lifehacker.com/ask-an-expert-all-about-getting-a-workout-without-equi-1645654311)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-getting-a-workout-without-equi-1645654311>
 
 每个人都想拥有健康的身体——但是很容易找到借口推迟锻炼。也许你觉得你没有合适的设备，只是不想花时间和金钱去寻找它。但是如果你真的不需要任何装备来锻炼呢？
 

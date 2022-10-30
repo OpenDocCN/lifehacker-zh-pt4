@@ -1,6 +1,6 @@
 # 让你的爱车再用一年的十个建议
 
-> 原文:[https://jalopnik . com/ten-tips-让你的爱车再活一年-1493099996](https://jalopnik.com/ten-tips-for-keeping-your-car-alive-for-another-year-1493099996)
+> 原文：<https://jalopnik.com/ten-tips-for-keeping-your-car-alive-for-another-year-1493099996>
 
 作为一个不得不与一辆 29 年前的意大利车打交道的人，我可以向你保证，我在 2013 年学到了很多关于如何让我的车保持活力的知识。有了这十条建议，2014 年将会带来更多的四轮冒险。
 

@@ -1,6 +1,6 @@
 # 以下是 Windows 10 的外观和感觉
 
-> 原文:[https://life hacker . com/heres-what-windows-10-looks-and-feel-like-1641369982](https://lifehacker.com/heres-what-windows-10-looks-and-feels-like-1641369982)
+> 原文：<https://lifehacker.com/heres-what-windows-10-looks-and-feels-like-1641369982>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-PVDl3b1DqE0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-PVDl3b1DqE0&start=0) 
 

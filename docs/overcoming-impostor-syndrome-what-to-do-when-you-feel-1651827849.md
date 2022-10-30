@@ -1,6 +1,6 @@
 # 克服冒名顶替综合症:当你觉得自己是个骗子时该怎么办
 
-> 原文:[https://life hacker . com/oversizing-impostor-syndrome-what-do-what-when-you-feel-1651827849](https://lifehacker.com/overcoming-impostor-syndrome-what-to-do-when-you-feel-1651827849)
+> 原文：<https://lifehacker.com/overcoming-impostor-syndrome-what-to-do-when-you-feel-1651827849>
 
 每个人在职业生涯的某个时刻都会感觉到:我是个骗子，每个人都将发现这一点。质疑自己的资格并暂停是健康的，但之后你需要找到前进的方法并重拾信心。
 

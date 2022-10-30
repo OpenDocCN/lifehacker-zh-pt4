@@ -1,6 +1,6 @@
 # 实际上，我喜欢我笔记本电脑的触摸屏
 
-> 原文:[https://life hacker . com/I-actually-really-like-my-laptops-touch-screen-1723991050](https://lifehacker.com/i-actually-really-like-my-laptops-touch-screen-1723991050)
+> 原文：<https://lifehacker.com/i-actually-really-like-my-laptops-touch-screen-1723991050>
 
 当 Windows 8 问世时，触摸屏笔记本电脑变得非常普遍，这让大多数技术爱好者很恼火。毕竟，它们看起来像是一个不必要的配件:当你有一个触控板时，为什么要触摸屏幕？但我尝试了触觉投入，并慢慢爱上了我的触摸屏。
 

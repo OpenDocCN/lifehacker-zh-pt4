@@ -1,6 +1,6 @@
 # 在食物中使用被遗忘的蔬菜条的三种方法
 
-> 原文:[https://life hacker . com/three-ways-to-use-these-forgotten-tops-in-you-1705921147](https://lifehacker.com/three-ways-to-use-those-forgotten-vegetable-tops-in-you-1705921147)
+> 原文：<https://lifehacker.com/three-ways-to-use-those-forgotten-vegetable-tops-in-you-1705921147>
 
 上次我在超市买胡萝卜，收银员问我要不要把顶部扯掉。“几乎每个人都同意，”他告诉我。那太糟糕了，因为许多蔬菜陀螺既完全安全又好吃。这里有三个值得尝试的准备。
 

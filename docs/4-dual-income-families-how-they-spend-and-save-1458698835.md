@@ -1,6 +1,6 @@
 # 4 双收入家庭:他们如何消费和储蓄
 
-> 原文:[https://life hacker . com/4-双职工家庭-如何消费和储蓄-1458698835](https://lifehacker.com/4-dual-income-families-how-they-spend-and-save-1458698835)
+> 原文：<https://lifehacker.com/4-dual-income-families-how-they-spend-and-save-1458698835>
 
 有一个“养家糊口的人”和一个“家庭主妇”的家庭当然仍然存在，但它们越来越少了。根据美国劳工部 T3 的数据，1996 年至 2006 年间，美国双收入家庭的数量增加了 31%。事实上，在有孩子的家庭中，59%的父母都工作，2012 年来自 [劳动统计局](http://www.bls.gov/news.release/famee.nr0.htm) 的数据显示。换句话说，两个成年人养家糊口是新的标准。
 

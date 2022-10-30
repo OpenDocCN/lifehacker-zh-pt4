@@ -1,6 +1,6 @@
 # 如何停止过度思考一切，找到内心的平静
 
-> 原文:[https://life hacker . com/how-to-stop-over-thinking-everything-and-find-the-peace-of-m-1609850688](https://lifehacker.com/how-to-stop-overthinking-everything-and-find-peace-of-m-1609850688)
+> 原文：<https://lifehacker.com/how-to-stop-overthinking-everything-and-find-peace-of-m-1609850688>
 
 我们都过度思考生活的方方面面。无论是决定、遗憾、自我价值，还是对未来的普遍担忧，我们经常被困在自己的头脑中，感觉没有出路。以下是如何停止过度思考一切，继续前进。
 

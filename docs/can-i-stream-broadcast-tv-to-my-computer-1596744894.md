@@ -1,6 +1,6 @@
 # 如何将广播电视流传输到我的计算机？
 
-> 原文:[https://life hacker . com/can-I-stream-broadcast-TV-to-my-computer-1596744894](https://lifehacker.com/can-i-stream-broadcast-tv-to-my-computer-1596744894)
+> 原文：<https://lifehacker.com/can-i-stream-broadcast-tv-to-my-computer-1596744894>
 
 亲爱的 Lifehacker，
 我不想为有线电视付费，我喜欢免费的无线电视。我计划使用 Aereo 将我最喜欢的节目传输到我的电脑和平板电脑上，但最高法院否决了它们。有没有另一种方法可以合法地随身携带广播电视，或者在房子对面观看？

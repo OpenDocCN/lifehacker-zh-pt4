@@ -1,6 +1,6 @@
 # 如何在电影院逃避谈话
 
-> 原文:[https://life hacker . com/how-to-get-away-with-talking-in-the-movie-theater-1453118757](https://lifehacker.com/how-to-get-away-with-talking-at-the-movie-theater-1453118757)
+> 原文：<https://lifehacker.com/how-to-get-away-with-talking-at-the-movie-theater-1453118757>
 
 在你抓起你的火把和干草叉之前，让我们承认两个基本事实:在电影院说话会让你在一个非常特殊的地狱等级 中赢得一个位置。不过，在适当的情况下， [也是非常有趣的](http://youtu.be/UVo0dyjnWYo) 。虽然听起来很疯狂，但这两种想法可以和平共处。
 

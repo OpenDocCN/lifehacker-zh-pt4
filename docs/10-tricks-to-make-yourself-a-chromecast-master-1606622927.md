@@ -1,6 +1,6 @@
 # 让自己成为 Chromecast 大师的 10 个诀窍
 
-> 原文:[https://gizmodo . com/10-制作自己的 chrome cast-master-1606622927](https://gizmodo.com/10-tricks-to-make-yourself-a-chromecast-master-1606622927)
+> 原文：<https://gizmodo.com/10-tricks-to-make-yourself-a-chromecast-master-1606622927>
 
 从谷歌给自己买了一个超级便宜的流媒体加密狗？还是想着捡一个？这里有 10 个鲜为人知的技巧和提示，你可以用来从 Chromecast 中获得更多，并释放其隐藏的潜力。
 

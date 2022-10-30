@@ -1,6 +1,6 @@
 # 不仅仅是艺术和手工艺:如何有效地使用 Pinterest
 
-> 原文:[https://life hacker . com/not-just-for-arts-and-crafts-how-to-use-Pinterest-prod-1605986102](https://lifehacker.com/not-just-for-arts-and-crafts-how-to-use-pinterest-prod-1605986102)
+> 原文：<https://lifehacker.com/not-just-for-arts-and-crafts-how-to-use-pinterest-prod-1605986102>
 
 Pinterest 因总是发布漂亮的东西而不做太多事情而出名。然而，正如活跃用户会告诉你的，它实际上对组织信息、寻找灵感和完成真正的工作很有帮助。尤其是在创意项目上。以下是方法。
 

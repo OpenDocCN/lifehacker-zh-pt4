@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:我会永远孤独吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-am-I-going-to-be-forever-alone-1567151112](https://kotaku.com/ask-dr-nerdlove-am-i-going-to-be-forever-alone-1567151112)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-am-i-going-to-be-forever-alone-1567151112>
 
 怎么了，互联网？欢迎来到最新一期的 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是一个约会建议专栏，可以理解为什么艾萨克·牛顿爵士是太空中最致命的狗娘养的。
 

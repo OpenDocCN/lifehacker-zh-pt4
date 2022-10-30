@@ -1,6 +1,6 @@
 # 最(也是最不)可靠的硬盘品牌
 
-> 原文:[https://life hacker . com/the-most-and-less-reliable-hard-drive-brands-1505797966](https://lifehacker.com/the-most-and-least-reliable-hard-drive-brands-1505797966)
+> 原文：<https://lifehacker.com/the-most-and-least-reliable-hard-drive-brands-1505797966>
 
 Backblaze 为其在线备份服务使用了 25，000 个硬盘驱动器。这提供了一些有趣的信息，例如 [硬盘可能持续多长时间](https://lifehacker.com/how-long-your-hard-drive-is-likely-to-last-1462918832) 以及 [企业和消费者硬盘之间的可靠性差异](http://lifehacker.com/why-enterprise-hard-drives-might-not-be-worth-the-cost-1476333889) 。今天，Backblaze 透露了哪些驱动器制造商最可靠。
 

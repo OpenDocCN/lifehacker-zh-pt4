@@ -1,6 +1,6 @@
 # 漂亮的地图工作空间
 
-> 原文:[https://lifehacker.com/the-pretty-map-workspace-1652375989](https://lifehacker.com/the-pretty-map-workspace-1652375989)
+> 原文：<https://lifehacker.com/the-pretty-map-workspace-1652375989>
 
 地图不仅仅是功能性的物品，它们是美丽和灵感的源泉。今天的专题工作空间突出地图。
 

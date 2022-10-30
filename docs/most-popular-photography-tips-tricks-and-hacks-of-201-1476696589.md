@@ -1,6 +1,6 @@
 # 2013 年最受欢迎的摄影技巧、诀窍和窍门
 
-> 原文:[https://life hacker . com/most-popular-photography-tips-tricks-and-hacks-of-201-1476696589](https://lifehacker.com/most-popular-photography-tips-tricks-and-hacks-of-201-1476696589)
+> 原文：<https://lifehacker.com/most-popular-photography-tips-tricks-and-hacks-of-201-1476696589>
 
 对于摄影来说，这是一个伟大的一年，在你拍摄和编辑的时候，有很多帖子可以帮助你在相机后面，在相机前面。让我们回顾一下 2013 年最受欢迎的摄影技巧、窍门和窍门。
 

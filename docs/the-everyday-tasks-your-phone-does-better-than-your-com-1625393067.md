@@ -1,6 +1,6 @@
 # 你的手机比你的电脑做得更好
 
-> 原文:[https://life hacker . com/the-daily-tasks-your-phone-do-better-your-com-1625393067](https://lifehacker.com/the-everyday-tasks-your-phone-does-better-than-your-com-1625393067)
+> 原文：<https://lifehacker.com/the-everyday-tasks-your-phone-does-better-than-your-com-1625393067>
 
 我们早就知道 [你的智能手机是比你的电脑更好的电脑](http://lifehacker.com/your-smartphone-is-a-better-pc-than-your-pc-ever-was-or-5681573) 。它不能取代你的电脑所做的一切，但有些事情实际上更适合在你的手机上做，而不是在你的电脑上。
 

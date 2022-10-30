@@ -1,6 +1,6 @@
 # 如何退出一个社会承诺(不成为一个混蛋)
 
-> 原文:[https://life hacker . com/how-to-back-out-of-a-social-commitment-without-a-1657113535](https://lifehacker.com/how-to-back-out-of-a-social-commitment-without-being-a-1657113535)
+> 原文：<https://lifehacker.com/how-to-back-out-of-a-social-commitment-without-being-a-1657113535>
 
 无论你已经和某人约好了，必须去工作，或者被邀请去某个地方并期待着出现，你有时只是需要一个出口。不管是什么，取消计划并不总是坏事。尽管你很想变得完美，但你不可能做到，有时你只需要给自己一个喘息的机会，对 [说不](https://lifehacker.com/how-people-pleasers-can-learn-to-say-no-more-often-1524324151) 。
 

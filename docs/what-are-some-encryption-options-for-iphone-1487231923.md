@@ -1,6 +1,6 @@
 # iPhone 有哪些加密选项？
 
-> 原文:[https://life hacker . com/what-are-some-encryption-options-for-iphone-1487231923](https://lifehacker.com/what-are-some-encryption-options-for-iphone-1487231923)
+> 原文：<https://lifehacker.com/what-are-some-encryption-options-for-iphone-1487231923>
 
 你可以在 iPhone 上用你的标准邮件应用或应用商店的应用加密电子邮件，不需要越狱。苹果专家在 [*栈交换*](http://apple.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=apple-97) *提供一些小技巧。*
 

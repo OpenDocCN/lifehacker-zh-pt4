@@ -1,6 +1,6 @@
 # 为什么我们如此自以为是:为自恋品质辩护
 
-> 原文:[https://life hacker . com/why-were-so-full-we ' s-full-in-defense-of-自恋者-1654913123](https://lifehacker.com/why-were-so-full-of-ourselves-in-defense-of-narcissist-1654913123)
+> 原文：<https://lifehacker.com/why-were-so-full-of-ourselves-in-defense-of-narcissist-1654913123>
 
 “自恋者”和以自我为中心之间有着巨大的区别，尽管你并不知道它被当作一种侮辱。即便如此，有点自我中心不仅仅是一件好事，对我们的心理健康也是必要的。当然，有一条线，但是让我们来谈谈这条线在哪里，以及你如何能把你的内观转向外面的世界。
 

@@ -1,6 +1,6 @@
 # 倾斜的工作空间
 
-> 原文:[https://lifehacker.com/the-reclining-workspace-1697771571](https://lifehacker.com/the-reclining-workspace-1697771571)
+> 原文：<https://lifehacker.com/the-reclining-workspace-1697771571>
 
 一些证据表明，斜靠在办公桌前是一个比 90 度角坐着更好的选择(尽管我 [发现这很有挑战性](https://lifehacker.com/should-i-sit-stand-run-or-recline-at-my-desk-1573660576) )。这个工作区有一张桌子，可以放在躺椅上使用，也可以作为站立式桌子使用。
 

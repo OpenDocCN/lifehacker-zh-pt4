@@ -1,6 +1,6 @@
 # 几封手写的信如何帮助我的事业
 
-> 原文:[https://life hacker . com/how-hand-letters-can-help-your-career-1686823583](https://lifehacker.com/how-handwritten-letters-can-help-your-career-1686823583)
+> 原文：<https://lifehacker.com/how-handwritten-letters-can-help-your-career-1686823583>
 
 花点时间给某人写封信——不要求任何东西或请求任何帮助——实际上是建立职业关系的好方法。这是一种令人惊讶又迷人的让自己引人注目的方式，哪怕只是打个招呼。
 

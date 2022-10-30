@@ -1,6 +1,6 @@
 # 新 iTunes 12.0 中的所有变化
 
-> 原文:[https://gizmodo . com/everything-thas-changed-in-the-new-itunes-12-0-1608469764](https://gizmodo.com/everything-thats-changed-in-the-new-itunes-12-0-1608469764)
+> 原文：<https://gizmodo.com/everything-thats-changed-in-the-new-itunes-12-0-1608469764>
 
 苹果 [刚刚发布了](http://9to5mac.com/2014/07/21/apple-seeds-revamped-itunes-12-and-os-x-yosemite-preview-4-to-developers/) 最新版本的 OS X Yosemite，包括一个全新的 iTunes。只是有点反高潮。12.0 版本确实看起来很像 11.3 版本，也就是你电脑上可能有的版本。但是它还是有一些可爱的小东西。
 

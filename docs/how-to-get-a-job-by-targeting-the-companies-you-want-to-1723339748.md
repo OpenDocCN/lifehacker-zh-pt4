@@ -1,6 +1,6 @@
 # 如何针对你想去的公司找到工作
 
-> 原文:[https://life hacker . com/how-to-get-a-job by-targeting-the-companies-you-want-to 1723339748](https://lifehacker.com/how-to-get-a-job-by-targeting-the-companies-you-want-to-1723339748)
+> 原文：<https://lifehacker.com/how-to-get-a-job-by-targeting-the-companies-you-want-to-1723339748>
 
 努力找工作会让你感到无助。你最多能做的就是向尽可能多的公司提交简历，对吗？不完全是。事实上，事先对一家公司做足功课会让你更有可能找到工作。
 

@@ -1,6 +1,6 @@
 # 如何选择合适的 DIY 工作服以获得舒适和保护
 
-> 原文:[https://life hacker . com/how-to-choose-proper-DIY-work wear-for-comfort-and-prote-1680834360](https://lifehacker.com/how-to-choose-proper-diy-workwear-for-comfort-and-prote-1680834360)
+> 原文：<https://lifehacker.com/how-to-choose-proper-diy-workwear-for-comfort-and-prote-1680834360>
 
 破旧的牛仔裤和旧 t 恤不再是你在家里工作或建造自己动手的项目时唯一的服装选择。合适的工作服比标准服装耐用、舒适、安全。以下是你挑选工作服时应该注意的事项。
 

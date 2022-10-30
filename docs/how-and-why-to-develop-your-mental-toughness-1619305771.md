@@ -1,6 +1,6 @@
 # 如何(以及为什么)培养你的心理韧性
 
-> 原文:[https://life hacker . com/how-and-why-to-develop your mental-toughness-1619305771](https://lifehacker.com/how-and-why-to-develop-your-mental-toughness-1619305771)
+> 原文：<https://lifehacker.com/how-and-why-to-develop-your-mental-toughness-1619305771>
 
 培养你的心理韧性可以帮助你在情绪上更有弹性，推动你走得更远更努力，并打造盔甲来抵御生活射向你的子弹。然而，仅仅“变得更强硬”并不容易。这里有一些策略可以让你坚强面对生活中的艰难困苦。
 

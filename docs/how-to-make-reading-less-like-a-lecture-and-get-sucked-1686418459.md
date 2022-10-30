@@ -1,6 +1,6 @@
 # 如何让阅读不那么像讲课，每次都被“吸进去”
 
-> 原文:[https://life hacker . com/how-to-make-less-reading-like-a-lecture-and-get-sucked-1686418459](https://lifehacker.com/how-to-make-reading-less-like-a-lecture-and-get-sucked-1686418459)
+> 原文：<https://lifehacker.com/how-to-make-reading-less-like-a-lecture-and-get-sucked-1686418459>
 
 阅读是非常有益的，但是强迫自己阅读会让它变成一件苦差事。一个更可持续的解决方案是增强阅读体验，更好地阅读——这样你就能记住你所读的内容，并且更喜欢阅读。以下是你如何让阅读更有成就感的方法。
 

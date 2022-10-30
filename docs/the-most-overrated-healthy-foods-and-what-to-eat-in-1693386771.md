@@ -1,6 +1,6 @@
 # 最被高估的“健康”食物(以及吃什么)
 
-> 原文:[https://life hacker . com/1693386771](https://lifehacker.com/the-most-overrated-healthy-foods-and-what-to-eat-in-1693386771)
+> 原文：<https://lifehacker.com/the-most-overrated-healthy-foods-and-what-to-eat-in-1693386771>
 
 有时候，一种食物基于健康主张而变得流行，事实证明，这种食物并不能真正支持健康。以下是一些不那么超级的超级食物——并建议一些更健康、更便宜或两者兼而有之的替代品。
 

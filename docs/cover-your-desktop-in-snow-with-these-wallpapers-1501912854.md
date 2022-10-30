@@ -1,6 +1,6 @@
 # 用这些壁纸覆盖你的桌面
 
-> 原文:[https://life hacker . com/cover-your-desktop-in-snow-with these-wallpapers-1501912854](https://lifehacker.com/cover-your-desktop-in-snow-with-these-wallpapers-1501912854)
+> 原文：<https://lifehacker.com/cover-your-desktop-in-snow-with-these-wallpapers-1501912854>
 
 宝贝，外面很冷，所以在接下来的三个月里，蜷缩在你的电脑前，用这些壁纸来享受冬天吧。
 

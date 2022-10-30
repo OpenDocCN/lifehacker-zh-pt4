@@ -1,6 +1,6 @@
 # Nexus 5:一款纯粹的谷歌梦想手机，非常划算
 
-> 原文:[https://gizmodo . com/nexus-5-a-pure-Google-dream-phone-thas-nally-1445522531](https://gizmodo.com/nexus-5-a-pure-google-dream-phone-thats-ridiculously-1445522531)
+> 原文：<https://gizmodo.com/nexus-5-a-pure-google-dream-phone-thats-ridiculously-1445522531>
 
 由于[无休无止的](http://gizmodo.com/another-leaked-nexus-5-shows-off-its-giant-screen-and-g-1330680111) [泄露](http://gizmodo.com/heres-a-closer-look-at-what-the-nexus-5-might-look-lik-1430767315) ，我们在过去的几周里发现了关于 Nexus 5 的一切。今天，谷歌终于披露了这个可怕的秘密，很少有惊喜。以下是你需要知道的。
 

@@ -1,6 +1,6 @@
 # 以下是你周围环境中真正的辐射危险
 
-> 原文:[https://gizmodo . com/here-are-the-true-the-radiation-dangers-in-your-environment-1723239205](https://gizmodo.com/here-are-the-true-radiation-dangers-in-your-environment-1723239205)
+> 原文：<https://gizmodo.com/here-are-the-true-radiation-dangers-in-your-environment-1723239205>
 
 人们害怕自己一直暴露在辐射中，无论是来自遥远的核事故还是紧贴头部的移动设备。一般来说，他们是错的。以下是你身边世界上最具放射性的物体，以及哪些会导致健康问题的真相。
 

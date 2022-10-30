@@ -1,6 +1,6 @@
 # 请教专家:关于游泳和健身
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-swimming and fitness-1597944880](https://lifehacker.com/ask-an-expert-all-about-swimming-and-fitness-1597944880)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-swimming-and-fitness-1597944880>
 
 如果你想既锻炼身体又不应对夏天的炎热，没有比去游泳更好的方法了。游泳给你一个全面的身体锻炼，可以帮助你保持健康和减肥，同时可能有一些乐趣。
 

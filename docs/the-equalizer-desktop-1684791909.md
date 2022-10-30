@@ -1,6 +1,6 @@
 # 均衡器桌面
 
-> 原文:[https://lifehacker.com/the-equalizer-desktop-1684791909](https://lifehacker.com/the-equalizer-desktop-1684791909)
+> 原文：<https://lifehacker.com/the-equalizer-desktop-1684791909>
 
 Flickr 用户 [伊丽莎白](https://www.flickr.com/photos/lareina1045/) 有一个非常漂亮的桌面，可以把她的音乐放在最前面和最中心。另外，它真的很容易设置。她是这样做的。
 

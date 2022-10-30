@@ -1,6 +1,6 @@
 # 如何假装它，直到你不欺骗它
 
-> 原文:[https://life hacker . com/how-to-fake-it-until-you-make-it-without-believe-1688994828](https://lifehacker.com/how-to-fake-it-till-you-make-it-without-being-deceitful-1688994828)
+> 原文：<https://lifehacker.com/how-to-fake-it-till-you-make-it-without-being-deceitful-1688994828>
 
 说到前进，我们都必须时不时地争取一份有挑战性的工作或项目。但是让别人在你身上冒险可能很难，尤其是在规避风险的环境中。有些人尝试“假装直到你成功”的方法，但是你应该假装多少呢？
 

@@ -1,6 +1,6 @@
 # 如何自信地购买你女朋友想穿的内衣
 
-> 原文:[https://life hacker . com/how-to-confidentially-buy-your-friend-will-wa-1691827450](https://lifehacker.com/how-to-confidently-buy-lingerie-your-girlfriend-will-wa-1691827450)
+> 原文：<https://lifehacker.com/how-to-confidently-buy-lingerie-your-girlfriend-will-wa-1691827450>
 
 所以你想给你的女朋友买一些内衣，但你不想成为那个在维多利亚的秘密看丁字裤的令人毛骨悚然的家伙。购买内衣可能看起来令人生畏，但事实并非如此。另外，看到你的女人穿着你买的那件小衣服，你会觉得很值得。以下是正确的做法。
 

@@ -1,6 +1,6 @@
 # 社交媒体如何影响你的大脑和身体
 
-> 原文:[https://life hacker . com/how-social-media-affects-your-brain-and-body-1632186378](https://lifehacker.com/how-social-media-affects-your-brain-and-body-1632186378)
+> 原文：<https://lifehacker.com/how-social-media-affects-your-brain-and-body-1632186378>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-HffWFd_6bJ0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-HffWFd_6bJ0&start=0) 
 

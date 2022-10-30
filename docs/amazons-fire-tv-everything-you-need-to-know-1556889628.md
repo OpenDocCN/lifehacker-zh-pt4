@@ -1,6 +1,6 @@
 # Fire TV:关于亚马逊 100 美元流媒体盒子你需要知道的一切
 
-> 原文:[https://gizmodo . com/amazons-fire-TV-everything-you-need-to-know-1556889628](https://gizmodo.com/amazons-fire-tv-everything-you-need-to-know-1556889628)
+> 原文：<https://gizmodo.com/amazons-fire-tv-everything-you-need-to-know-1556889628>
 
 亚马逊已经开始进入流媒体派对，宣布推出名为 Fire TV 的 100 美元新设备，以满足你今天在爆米花香味的纽约活动中的所有电视观看需求。这是你需要知道的一切。
 

@@ -1,6 +1,6 @@
 # 戒掉对 GPS 的依赖，真正找到自己的路
 
-> 原文:[https://life hacker . com/weane-your-your-your-GPS-dependency-and-really-find-5858349](https://lifehacker.com/wean-yourself-off-your-gps-dependency-and-actually-find-5858349)
+> 原文：<https://lifehacker.com/wean-yourself-off-your-gps-dependency-and-actually-find-5858349>
 
 我刚搬到一个新的城市，我的生死取决于手机的 GPS。但结果是，我意识到我仍然对这个城市的布局一无所知，也不能在没有 GPS 导航的情况下简单地开车去我朋友家——我去过那里很多次了。如果你也同样缺乏方向感，你想对你的城市有一个更直观的了解，这里有几件事你可以做，让自己摆脱对 GPS 的依赖，真正了解周围的路。
 

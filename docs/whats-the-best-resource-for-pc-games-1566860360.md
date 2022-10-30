@@ -1,6 +1,6 @@
 # PC 游戏最好的资源是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-resource-for-PC-games-1566860360](https://lifehacker.com/whats-the-best-resource-for-pc-games-1566860360)
+> 原文：<https://lifehacker.com/whats-the-best-resource-for-pc-games-1566860360>
 
 当你准备购买或下载一个新的电脑游戏时，你有大量的选择，从显而易见的到独立的。当然，你可能会去有比赛的地方，但是哪个是最好的呢？本周，我们想谈谈获得电脑游戏的最佳地点。
 

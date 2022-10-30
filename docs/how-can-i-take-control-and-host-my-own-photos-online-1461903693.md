@@ -1,6 +1,6 @@
 # 我如何在网上掌控和保存自己的照片？
 
-> 原文:[https://life hacker . com/how-can-I-take-control-and-host-my-own-photos-online-1461903693](https://lifehacker.com/how-can-i-take-control-and-host-my-own-photos-online-1461903693)
+> 原文：<https://lifehacker.com/how-can-i-take-control-and-host-my-own-photos-online-1461903693>
 
 亲爱的 Lifehacker，我想和朋友们分享我的照片，但我宁愿创建自己的作品集和画廊，也不愿让 Facebooks、雅虎和谷歌为我托管它们。如何控制自己的照片，自己托管？
 

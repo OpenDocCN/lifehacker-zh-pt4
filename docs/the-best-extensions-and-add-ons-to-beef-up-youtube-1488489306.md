@@ -1,6 +1,6 @@
 # 增强 YouTube 的最佳扩展和插件
 
-> 原文:[https://life hacker . com/the-best-extensions-and-add-ons-to-beef-up-YouTube-1488489306](https://lifehacker.com/the-best-extensions-and-add-ons-to-beef-up-youtube-1488489306)
+> 原文：<https://lifehacker.com/the-best-extensions-and-add-ons-to-beef-up-youtube-1488489306>
 
 YouTube 是一个非常棒的视频流媒体服务。无疑是最大的。这并不意味着没有改进的余地。这里有一些让 YouTube 变得更好的最好方法。
 

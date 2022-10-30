@@ -1,6 +1,6 @@
 # 低聚岛桌面
 
-> 原文:[https://life hacker . com/the-low-poly-island-desktop-1683253694](https://lifehacker.com/the-low-poly-island-desktop-1683253694)
+> 原文：<https://lifehacker.com/the-low-poly-island-desktop-1683253694>
 
 读者 [赛法利](http://saifalisunesara.kinja.com/) 的桌面看起来像是像素化幻想游戏中的东西，我们很喜欢它。部分壁纸和一些有用的部件，它也很容易设置。他是这样做的。
 

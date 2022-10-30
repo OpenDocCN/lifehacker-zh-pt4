@@ -1,6 +1,6 @@
 # 工具学校:随机轨道打磨机是一种电动工具时间机器
 
-> 原文:[https://life hacker . com/tool-school-the-random-orbit-sander-is-a-power-tool-ti-1710296935](https://lifehacker.com/tool-school-the-random-orbit-sander-is-a-power-tool-ti-1710296935)
+> 原文：<https://lifehacker.com/tool-school-the-random-orbit-sander-is-a-power-tool-ti-1710296935>
 
 打磨是每个人最不喜欢的 DIY 工作，但这是不可避免的。在你的下一个项目中使用随机轨道打磨机，这样你就可以节省打磨的时间和精力。
 

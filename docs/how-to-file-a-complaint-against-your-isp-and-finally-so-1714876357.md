@@ -1,6 +1,6 @@
 # 如何投诉你的 ISP 并最终解决你的问题
 
-> 原文:[https://life hacker . com/how-to-file-a-complaint-against-your-ISP-and-finally-so-1714876357](https://lifehacker.com/how-to-file-a-complaint-against-your-isp-and-finally-so-1714876357)
+> 原文：<https://lifehacker.com/how-to-file-a-complaint-against-your-isp-and-finally-so-1714876357>
 
 近 [每个人都讨厌他们的互联网提供商](http://www.cnet.com/news/cable-providers-isps-rank-dead-last-for-customer-service/) 。如果您的 ISP 有问题，并且呼叫客户服务失败，您现在有另一个选择:向 FCC 投诉。现在，这比以往任何时候都更能有效地解决你的问题。下面是怎么做的。
 

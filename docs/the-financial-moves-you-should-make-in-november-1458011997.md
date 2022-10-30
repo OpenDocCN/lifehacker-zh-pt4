@@ -1,6 +1,6 @@
 # 十一月你应该采取的财务行动
 
-> 原文:[https://life hacker . com/the-financial-moves-you-should-make-in-1458011997](https://lifehacker.com/the-financial-moves-you-should-make-in-november-1458011997)
+> 原文：<https://lifehacker.com/the-financial-moves-you-should-make-in-november-1458011997>
 
 你能相信这一年就要结束了吗？随着新的一年即将到来，是时候开始为 2014 年底的财务做准备了。这意味着做年终信用检查，为假日购物做预算，如果你或你的孩子还在上学的话，完成财政援助文件。
 

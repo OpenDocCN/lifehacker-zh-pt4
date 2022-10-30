@@ -1,6 +1,6 @@
 # 职业聚焦:我作为云开发人员做了什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-cloud-developer-1689176710](https://lifehacker.com/career-spotlight-what-i-do-as-a-cloud-developer-1689176710)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-cloud-developer-1689176710>
 
 “云”是一个常见的计算术语，有多种用途；你可以把你的音乐储存在云中，或者托管一个网站。但这并不意味着只有一台服务器托管你的网站，相反，过去的单个服务器正在被虚拟机所取代。是云。
 

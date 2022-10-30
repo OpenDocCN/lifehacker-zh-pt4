@@ -1,6 +1,6 @@
 # 软件开发和相机组合包
 
-> 原文:[https://life hacker . com/the-software-development-and-camera-combo-bag-1640320377](https://lifehacker.com/the-software-development-and-camera-combo-bag-1640320377)
+> 原文：<https://lifehacker.com/the-software-development-and-camera-combo-bag-1640320377>
 
 如今，准备行李很少是为一项任务做准备。举个例子，软件开发者兼摄影师迪恩·普特尼需要一个能同时处理两项工作的包。
 

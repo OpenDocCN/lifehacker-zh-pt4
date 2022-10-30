@@ -1,6 +1,6 @@
 # 赠送一个更有条理的办公室
 
-> 原文:[https://life hacker . com/give-the-gift-of-a-more-organized-office-1666806665](https://lifehacker.com/give-the-gift-of-a-more-organized-office-1666806665)
+> 原文：<https://lifehacker.com/give-the-gift-of-a-more-organized-office-1666806665>
 
 一个小小的组织可以走很长的路，还有什么比一个压力更小、更有组织的工作日更好的礼物呢？无论你是为办公室假日聚会、喜欢的同事还是为自己的家庭办公室购物，这些礼物点子都会帮你搞定。
 

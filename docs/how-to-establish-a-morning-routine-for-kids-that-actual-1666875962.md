@@ -1,6 +1,6 @@
 # 如何为孩子建立一个有效的晨间惯例
 
-> 原文:[https://life hacker . com/how-to-establish-a morning-routine-for-kids-the-actual-1666875962](https://lifehacker.com/how-to-establish-a-morning-routine-for-kids-that-actual-1666875962)
+> 原文：<https://lifehacker.com/how-to-establish-a-morning-routine-for-kids-that-actual-1666875962>
 
 在太阳升起之前就让整个家庭起床、穿衣、吃饭、出门很容易导致灾难(或者至少是一两次崩溃！).但不一定非要这样。如果你设定了常规并做了一些准备，你家人的早晨将会一帆风顺。
 

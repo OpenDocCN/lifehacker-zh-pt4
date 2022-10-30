@@ -1,6 +1,6 @@
 # 你在找工作时应该注意的危险信号
 
-> 原文:[https://life hacker . com/the-red-flags-you-should-out-in-you-job-s-1699837172](https://lifehacker.com/the-red-flags-you-should-look-out-for-during-your-job-s-1699837172)
+> 原文：<https://lifehacker.com/the-red-flags-you-should-look-out-for-during-your-job-s-1699837172>
 
 就像公司必须从糟糕的候选人中筛选出好的候选人一样，你需要能够区分好的公司和职位，以及那些只会浪费你时间的公司和职位。以下是工作描述和面试中的一些危险信号，可以提醒你一份潜在的糟糕工作。
 

@@ -1,6 +1,6 @@
 # 点击此处观看谷歌 I/O 2015 主题演讲
 
-> 原文:[https://life hacker . com/watch-the-Google-I-o-2015-keynote-here-1707436409](https://lifehacker.com/watch-the-google-i-o-2015-keynote-here-1707436409)
+> 原文：<https://lifehacker.com/watch-the-google-i-o-2015-keynote-here-1707436409>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-7V-fIGMDsmE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-7V-fIGMDsmE&start=0) 
 

@@ -1,6 +1,6 @@
 # 如何把我的待办事项变成一个故事来增强我的记忆和动力
 
-> 原文:[https://life hacker . com/how-turning-my-to-dos to-story-boosted-my-memory-an-5897418](https://lifehacker.com/how-turning-my-to-dos-into-a-story-boosted-my-memory-an-5897418)
+> 原文：<https://lifehacker.com/how-turning-my-to-dos-into-a-story-boosted-my-memory-an-5897418>
 
 我们都创造故事来解释一天中发生的事情。故事是帮助我们理解世界的工具。但是未来呢？如果你把你的待办事项清单变成一个故事，作为第二天的彩排，会发生什么？就我个人而言，它不仅帮助我完成了任务，还增强了我的记忆力，使我能够永远抛弃复杂的待办事项和日程表。
 

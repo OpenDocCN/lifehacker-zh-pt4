@@ -1,6 +1,6 @@
 # 未接来电、伸脖子和亚马逊剧透
 
-> 原文:[https://life hacker . com/missed-calls-neck-strengs-and-Amazon-prime-剧透-1537349774](https://lifehacker.com/missed-calls-neck-stretches-and-amazon-prime-spoilers-1537349774)
+> 原文：<https://lifehacker.com/missed-calls-neck-stretches-and-amazon-prime-spoilers-1537349774>
 
 读者提供了他们的最佳建议，即不要错过太多重要的电话，一套方便的颈部练习，以及在亚马逊 Prime 电视/电影描述中阻止剧透。
 

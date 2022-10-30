@@ -1,6 +1,6 @@
 # GravityBox 在一个可定制的包中添加了大量对 Android 的调整
 
-> 原文:[https://life hacker . com/gravity box-adds-on-of-tweaks-to-Android-in-one-custo-1502250290](https://lifehacker.com/gravitybox-adds-a-ton-of-tweaks-to-android-in-one-custo-1502250290)
+> 原文：<https://lifehacker.com/gravitybox-adds-a-ton-of-tweaks-to-android-in-one-custo-1502250290>
 
 Android ( [根源](https://lifehacker.com/everything-you-need-to-know-about-rooting-your-android-5789397) ): [闪烁 rom](http://lifehacker.com/five-best-android-roms-5915093)是定制你的 Android 体验的一个很好的方式，但是如果你不想 [处理 ROMming 过程](http://lifehacker.com/this-database-of-android-roms-helps-you-choose-the-best-1449794780) ，GravityBox 对普通 Android 进行了大量的调整。
 

@@ -1,6 +1,6 @@
 # 阿尔弗雷德轻松无鼠标计算初学者指南
 
-> 原文:[https://life hacker . com/a-初学者-无鼠标计算指南-与-alfred-1596198655](https://lifehacker.com/a-beginners-guide-to-mouseless-computing-with-alfred-1596198655)
+> 原文：<https://lifehacker.com/a-beginners-guide-to-mouseless-computing-with-alfred-1596198655>
 
 曾经想要在不离开键盘的情况下控制你的 Mac 吗？阿尔弗雷德是一个应用程序启动器和实用工具，使这成为可能。只需一点点设置和专业知识，您就可以使用 Alfred 在任何地方搜索任何内容、移动文件、控制软件等等，而无需将手从键盘上拿开。
 

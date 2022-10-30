@@ -1,6 +1,6 @@
 # 追踪假日购物交易的最佳应用和网站
 
-> 原文:[https://life hacker . com/the-best-apps-and-sites-for-tracking-holiday-shopping-d-1468320281](https://lifehacker.com/the-best-apps-and-sites-for-tracking-holiday-shopping-d-1468320281)
+> 原文：<https://lifehacker.com/the-best-apps-and-sites-for-tracking-holiday-shopping-d-1468320281>
 
 假日购物季即将来临，用不了多久，每个人和他们的母亲(尤其是他们的母亲)都会 [努力在所有东西上找到最划算的](https://lifehacker.com/how-to-quickly-tell-if-a-deal-is-really-a-deal-on-black-5862155) 。这里有一些最有用的工具，可以帮你找到最划算的交易。
 

@@ -1,6 +1,6 @@
 # 职业聚焦:我作为餐厅经理的工作
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-a-restaurant-manager-1677151822](https://lifehacker.com/career-spotlight-what-i-do-as-a-restaurant-manager-1677151822)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-restaurant-manager-1677151822>
 
 经营一家好餐馆实际上是一种旋转盘子的行为。你需要管理原料的供应，安排所有员工，准备设施等等，所有这些都要在餐馆开门营业之前完成。餐厅经理的一天生活到底是怎样的？
 

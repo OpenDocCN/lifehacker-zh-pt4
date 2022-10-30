@@ -1,6 +1,6 @@
 # 可能破坏任何谈判的四个常见错误
 
-> 原文:[https://life hacker . com/four-common-errors-that-can-default-any-negotiation-1668899157](https://lifehacker.com/four-common-mistakes-that-can-derail-any-negotiation-1668899157)
+> 原文：<https://lifehacker.com/four-common-mistakes-that-can-derail-any-negotiation-1668899157>
 
 无论你是在 [为一辆车](https://lifehacker.com/the-best-techniques-for-negotiating-with-car-dealership-1649443251) 的交易讨价还价，还是试图 [获得你想要的薪水](http://lifehacker.com/how-to-negotiate-your-salary-1566202988) ，在各种情况下，你都会发现自己在为你想要的东西——或者你不想给的东西——讨价还价。如果你记住这些常见的错误，你就能提高你的谈判技巧并取得成功。
 

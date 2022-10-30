@@ -1,6 +1,6 @@
 # 当你得到一台新电脑时你应该做的重要事情
 
-> 原文:[https://life hacker . com/the-important-things-you-should-do-when-you-get-a-new-c-1559946098](https://lifehacker.com/the-important-things-you-should-do-when-you-get-a-new-c-1559946098)
+> 原文：<https://lifehacker.com/the-important-things-you-should-do-when-you-get-a-new-c-1559946098>
 
 你刚刚得到一台新电脑。不错！你可能会很兴奋地打开盒子， [设置好](http://lifehacker.com/how-to-set-up-and-get-to-know-your-new-pc-mac-android-5870892) ，但是有一些无聊但重要的任务会让你以后不再失望甚至心碎(更不用说钱了)。这里有几件事是你在购买新电脑时应该做的。
 

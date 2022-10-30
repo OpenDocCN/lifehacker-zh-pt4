@@ -1,6 +1,6 @@
 # 最好的站立式书桌地垫是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-standing-desk-floor-mat-1718100332](https://lifehacker.com/whats-the-best-standing-desk-floor-mat-1718100332)
+> 原文：<https://lifehacker.com/whats-the-best-standing-desk-floor-mat-1718100332>
 
 当你选择立式办公桌时，你需要一个抗疲劳垫，让你的脚在长时间站立工作时保持舒适。本周，我们希望了解你相信哪些垫子能让你在站立时保持舒适，无论是几个小时还是一整天。
 

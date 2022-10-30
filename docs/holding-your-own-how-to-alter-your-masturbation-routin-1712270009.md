@@ -1,6 +1,6 @@
 # 如何改变你的手淫习惯以获得更好的性生活
 
-> 原文:[https://life hacker . com/holding-your-own-how-alter-your-自慰-routin-1712270009](https://lifehacker.com/holding-your-own-how-to-alter-your-masturbation-routin-1712270009)
+> 原文：<https://lifehacker.com/holding-your-own-how-to-alter-your-masturbation-routin-1712270009>
 
 手淫很有趣，但是当它开始阻碍你的性生活时，是时候改变它了。如果你有勃起困难，早泄问题，或高潮问题，这里有一些简单的方法来调整你的自慰习惯和解决你的表现问题。
 

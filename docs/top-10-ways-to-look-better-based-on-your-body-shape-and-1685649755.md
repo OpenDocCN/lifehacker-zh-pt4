@@ -1,6 +1,6 @@
 # 根据你的体形和脸型，让自己看起来更好的十大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-look-better-based-on-your-body-shape-and-1685649755](https://lifehacker.com/top-10-ways-to-look-better-based-on-your-body-shape-and-1685649755)
+> 原文：<https://lifehacker.com/top-10-ways-to-look-better-based-on-your-body-shape-and-1685649755>
 
 我们的脸型和体型可以帮助我们选择最合适的发型、服装和配饰。这里有十个小贴士可以帮助你突出自己的最佳特征。
 

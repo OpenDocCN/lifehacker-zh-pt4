@@ -1,6 +1,6 @@
 # 变得更好:改善生产力哲学
 
-> 原文:[https://life hacker . com/get-better-at-getting-better-the-kaizen-productivity-p-1672205148](https://lifehacker.com/get-better-at-getting-better-the-kaizen-productivity-p-1672205148)
+> 原文：<https://lifehacker.com/get-better-at-getting-better-the-kaizen-productivity-p-1672205148>
 
 大多数生产力方法给你工具，以有组织的方式处理特定的项目或待办事项。Kaizen，大致翻译为“好的改变”，是一种日本的生产力哲学，帮助你组织你所做的一切。简而言之，它意味着“持续不断的改进”，是一种你可以在任何地方、任何工作中应用的心态。
 

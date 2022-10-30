@@ -1,6 +1,6 @@
 # 如何在互联网上获得可靠的医学信息
 
-> 原文:[https://life hacker . com/how-to-get-reliable-medical-information-on-the-internet-5946540](https://lifehacker.com/how-to-get-reliable-medical-information-on-the-internet-5946540)
+> 原文：<https://lifehacker.com/how-to-get-reliable-medical-information-on-the-internet-5946540>
 
 现在我们有了互联网，生病似乎压力更大了。你可以研究自己的症状，但不可避免的是，你会陷入一个疾病的兔子洞，这种可能性很小，每次搜索都会发现一种威胁生命的疾病。有可能获得可靠、有用的信息，对其进行适当的审查，甚至获得专家意见，所有这些都在网上进行。以下是方法。
 

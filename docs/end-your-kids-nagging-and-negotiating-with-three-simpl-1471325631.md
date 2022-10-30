@@ -1,6 +1,6 @@
 # 用三个简单的词结束孩子的唠叨和谈判
 
-> 原文:[https://life hacker . com/end-your-kids-arbiting-and-negotiating-with-three-simple-1471325631](https://lifehacker.com/end-your-kids-nagging-and-negotiating-with-three-simpl-1471325631)
+> 原文：<https://lifehacker.com/end-your-kids-nagging-and-negotiating-with-three-simpl-1471325631>
 
 当孩子们想要什么的时候，他们会问的..然后问...一直问直到你屈服。你可以教他们忘掉这种烦人的谈判策略，只需说三个字:“问了又答了。”
 

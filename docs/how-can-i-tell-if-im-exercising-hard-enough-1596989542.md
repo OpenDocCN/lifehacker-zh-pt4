@@ -1,6 +1,6 @@
 # 我怎么知道我锻炼的够不够努力？
 
-> 原文:[https://life hacker . com/how-can-I-tell-if-im-exercised-hard-success-1596989542](https://lifehacker.com/how-can-i-tell-if-im-exercising-hard-enough-1596989542)
+> 原文：<https://lifehacker.com/how-can-i-tell-if-im-exercising-hard-enough-1596989542>
 
 亲爱的生活黑客，我已经锻炼了一段时间，但我从来不确定我是否真的足够努力。我怎么知道？
 

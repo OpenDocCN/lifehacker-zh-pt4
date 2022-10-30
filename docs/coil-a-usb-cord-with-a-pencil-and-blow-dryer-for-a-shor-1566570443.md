@@ -1,6 +1,6 @@
 # 用铅笔缠绕 USB 线，用吹风机吹干较短的线缆
 
-> 原文:[https://life hacker . com/coil-a-USB-cord-with-a-pencil-and-blow-dryer-for-shor-1566570443](https://lifehacker.com/coil-a-usb-cord-with-a-pencil-and-blow-dryer-for-a-shor-1566570443)
+> 原文：<https://lifehacker.com/coil-a-usb-cord-with-a-pencil-and-blow-dryer-for-a-shor-1566570443>
 
 成卷的电缆比纠缠在一起的长电线更容易管理。如果这就是你想要的 USB 连接线，那么 Instructables 用户 pizzidave 有一个快速的方法来做到这一点，只需一支铅笔，胶带和吹风机。
 

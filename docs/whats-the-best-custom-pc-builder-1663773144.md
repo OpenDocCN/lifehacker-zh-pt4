@@ -1,6 +1,6 @@
 # 最好的定制 PC 制造商是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-custom-PC-builder-1663773144](https://lifehacker.com/whats-the-best-custom-pc-builder-1663773144)
+> 原文：<https://lifehacker.com/whats-the-best-custom-pc-builder-1663773144>
 
 建造自己的电脑是你能承担的最有趣和最私人的项目之一。 [我们已经向你展示了](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) ，并提供了 [特定的构建让你开始](http://lifehacker.com/the-best-pcs-you-can-build-for-300-600-and-1200-5840963) 。但是，如果你没有时间或兴趣，有定制的，精品电脑制造商会为你组装一个高性能的钻机，价格合适。本周我们想知道哪些是最好的。
 

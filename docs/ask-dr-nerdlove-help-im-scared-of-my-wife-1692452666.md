@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:救命，我害怕我的妻子
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-help-im-beat-of-my-wife-1692452666](https://kotaku.com/ask-dr-nerdlove-help-im-scared-of-my-wife-1692452666)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-help-im-scared-of-my-wife-1692452666>
 
 你好，互联网！欢迎来到 [《向 NerdLove 博士提问》](http://kotaku.com/askdrnerdlove) ，这是唯一一个从多恩水上花园直播给你的约会专栏。
 

@@ -1,6 +1,6 @@
 # 如何度过大学阶段，像成年人一样喝酒
 
-> 原文:[https://life hacker . com/how-to-get-past-the-college-phase-and-drink-alcohol-lik-1721979269](https://lifehacker.com/how-to-get-past-the-college-phase-and-drink-alcohol-lik-1721979269)
+> 原文：<https://lifehacker.com/how-to-get-past-the-college-phase-and-drink-alcohol-lik-1721979269>
 
 拥有一个活跃的社交圈可以为你的职业带来一大堆好处。作为一个成年人，社交生活经常会涉及到酒精。如果你是饮酒界的新手，或者你在大学时代只知道 gerbombs 和桶架，以下是如何像成年人一样进入饮酒界的方法。
 

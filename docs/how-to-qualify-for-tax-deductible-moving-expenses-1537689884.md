@@ -1,6 +1,6 @@
 # 如何申请可扣税的搬家费
 
-> 原文:[https://life hacker . com/how-to-qualify-for-tax-discreted-move-expenses-1537689884](https://lifehacker.com/how-to-qualify-for-tax-deductible-moving-expenses-1537689884)
+> 原文：<https://lifehacker.com/how-to-qualify-for-tax-deductible-moving-expenses-1537689884>
 
 没有人喜欢搬家的过程，但我们总有一天会搬家。你知道吗，如果你要搬家，或者在开始新工作的一年内已经搬家，你可以在你的纳税申报单上申请搬家费。
 

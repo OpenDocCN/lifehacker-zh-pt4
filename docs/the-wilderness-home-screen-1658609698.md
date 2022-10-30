@@ -1,6 +1,6 @@
 # 荒野主屏幕
 
-> 原文:[https://life hacker . com/the-wilderness-home-screen-1658609698](https://lifehacker.com/the-wilderness-home-screen-1658609698)
+> 原文：<https://lifehacker.com/the-wilderness-home-screen-1658609698>
 
 偶尔出去走走也无妨，对吧？嗯，也许明天吧。今天，你可以尝试这种名为“荒野”的主屏幕设计，它的特点是小而信息密集的小部件，周围是开阔、通风的户外图像。
 

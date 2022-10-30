@@ -1,6 +1,6 @@
 # 如何选择合适的慈善机构，让你的捐款最大化
 
-> 原文:[https://life hacker . com/how-to-pick-the-right-charity-and-maximize-your-donation-1508083063](https://lifehacker.com/how-to-pick-the-right-charity-and-maximize-your-donatio-1508083063)
+> 原文：<https://lifehacker.com/how-to-pick-the-right-charity-and-maximize-your-donatio-1508083063>
 
 拥有全面财务的一个重要方面是慈善。许多个人理财专家普遍认为，捐赠是良好理财的重要组成部分。然而，你的捐赠应该像你财务管理的其他方面一样——应该努力确保你的钱得到最大的价值。
 

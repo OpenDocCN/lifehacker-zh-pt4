@@ -1,6 +1,6 @@
 # 用谷歌推荐的这个简单公式改善你的简历
 
-> 原文:[https://life hacker . com/improve-your-resume-with this-simple-formula-re commende-1566107526](https://lifehacker.com/improve-your-resume-with-this-simple-formula-recommende-1566107526)
+> 原文：<https://lifehacker.com/improve-your-resume-with-this-simple-formula-recommende-1566107526>
 
 招聘人员看你简历的时间不会超过 [宝贵的几秒钟](http://lifehacker.com/recruiters-only-look-at-your-resume-for-an-average-of-s-5901056) ，但这并不意味着你不应该精心制作你的简历，以确保你有最好的机会找到工作。这里有一个来自谷歌人力资源主管的简单公式，可以帮助你把最好的信息写进简历。
 

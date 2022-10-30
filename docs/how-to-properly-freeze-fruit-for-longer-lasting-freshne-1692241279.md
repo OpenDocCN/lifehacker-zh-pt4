@@ -1,6 +1,6 @@
 # 如何正确冷冻水果以延长新鲜度
 
-> 原文:[https://life hacker . com/how-to-right-freeze-fruit-for-long-persist-fresh ne-1692241279](https://lifehacker.com/how-to-properly-freeze-fruit-for-longer-lasting-freshne-1692241279)
+> 原文：<https://lifehacker.com/how-to-properly-freeze-fruit-for-longer-lasting-freshne-1692241279>
 
 没有什么比直接食用成熟的新鲜水果更好的了，但是当那不可能的时候，做下一个最好的事情:冷冻你的水果。这很容易做到，也很经济，而且是一个显而易见的方法来延长放在你柜台上的任何甜食和新鲜食品的寿命。
 

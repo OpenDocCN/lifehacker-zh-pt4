@@ -1,6 +1,6 @@
 # 脸书宣布整洁，最小的新闻供稿设计
 
-> 原文:[https://life hacker . com/Facebook-announces-uncommitted-beautiful-news-feed-desi-1537975488](https://lifehacker.com/facebook-announces-uncluttered-prettier-news-feed-desi-1537975488)
+> 原文：<https://lifehacker.com/facebook-announces-uncluttered-prettier-news-feed-desi-1537975488>
 
 经过一年的深思熟虑，脸书最终选定了我们大多数人每天都会看到的新闻源的新设计。他们没有添加更多大多数人不关心的功能和东西，而是决定回归基础，简化一切。
 

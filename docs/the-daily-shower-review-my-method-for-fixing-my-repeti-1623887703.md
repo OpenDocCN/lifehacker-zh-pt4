@@ -1,6 +1,6 @@
 # 每日淋浴回顾:我修正重复错误的方法
 
-> 原文:[https://life hacker . com/the-daily-shower-review-my-method-for-fixing-my-repeti-1623887703](https://lifehacker.com/the-daily-shower-review-my-method-for-fixing-my-repeti-1623887703)
+> 原文：<https://lifehacker.com/the-daily-shower-review-my-method-for-fixing-my-repeti-1623887703>
 
 我们都会犯错。这是人类的一部分。很有可能，我们大多数人已经多次重复一个错误。为了解决这些复发问题，我想出了一个方法，我称之为每日淋浴回顾。
 

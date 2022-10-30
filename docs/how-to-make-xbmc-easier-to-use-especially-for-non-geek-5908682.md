@@ -1,6 +1,6 @@
 # 如何让 XBMC 更容易使用(特别是非极客)
 
-> 原文:[https://life hacker . com/how-to-make-xbmc-easy-to-use-but-for-non-geek-5908682](https://lifehacker.com/how-to-make-xbmc-easier-to-use-especially-for-non-geek-5908682)
+> 原文：<https://lifehacker.com/how-to-make-xbmc-easier-to-use-especially-for-non-geek-5908682>
 
 所以你用 XBMC 创建了一个无所不能的媒体中心，但是对于你不太懂技术的朋友和家人来说，使用起来太难了。这里有一些方法可以让你的家庭影院电脑变得简单，让你四岁的孩子也能使用。
 

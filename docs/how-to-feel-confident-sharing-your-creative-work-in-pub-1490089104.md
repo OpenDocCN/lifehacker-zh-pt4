@@ -1,6 +1,6 @@
 # 如何自信地在公共场合分享你的创意作品
 
-> 原文:[https://life hacker . com/how-to-feel-confidential-share-your-creative-work-in-pub-1490089104](https://lifehacker.com/how-to-feel-confident-sharing-your-creative-work-in-pub-1490089104)
+> 原文：<https://lifehacker.com/how-to-feel-confident-sharing-your-creative-work-in-pub-1490089104>
 
 将你自己的一个想法或你创作的一件艺术品公之于众是你做过的最艰难的事情之一。这里有一个强大而简单的过程，可以快速建立你的自信。
 

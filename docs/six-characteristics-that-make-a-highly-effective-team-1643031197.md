@@ -1,6 +1,6 @@
 # 高效团队的六大特征
 
-> 原文:[https://life hacker . com/six-characters-that-make-a-high-effective-team-1643031197](https://lifehacker.com/six-characteristics-that-make-a-highly-effective-team-1643031197)
+> 原文：<https://lifehacker.com/six-characteristics-that-make-a-highly-effective-team-1643031197>
 
 伟大的团队不会凭空出现。那些像拼图一样组合在一起的团队是努力工作和深思熟虑的领导的结果。但是，在组建一个高效团队时，你需要寻找的东西到底是什么？
 

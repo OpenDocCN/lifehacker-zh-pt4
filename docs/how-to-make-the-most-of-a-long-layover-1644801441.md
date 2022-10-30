@@ -1,6 +1,6 @@
 # 如何充分利用漫长的中途停留
 
-> 原文:[https://life hacker . com/how-to-make-the-most-a-long-layout-1644801441](https://lifehacker.com/how-to-make-the-most-of-a-long-layover-1644801441)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-a-long-layover-1644801441>
 
 长时间的中途停留很难说是理想的，但有时这是无法避免的。这里有一些方法可以让你下一次漫长的中途停留稍微好一点。
 

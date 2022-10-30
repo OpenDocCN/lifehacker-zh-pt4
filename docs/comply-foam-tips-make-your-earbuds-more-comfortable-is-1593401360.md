@@ -1,6 +1,6 @@
 # 符合泡沫提示让您的耳塞更舒适，隔离噪音
 
-> 原文:[https://life hacker . com/comply-foam-tips-make-your-earbuds-more-comfort-is-1593401360](https://lifehacker.com/comply-foam-tips-make-your-earbuds-more-comfortable-is-1593401360)
+> 原文：<https://lifehacker.com/comply-foam-tips-make-your-earbuds-more-comfortable-is-1593401360>
 
 大多数耳塞 使用硅胶耳塞头，效果还不错，但并不总是给你最好的密封——这意味着外部噪音仍会钻进来(低音响应会受到影响)。符合记忆泡沫提示是一个很好的选择，有几个警告。
 

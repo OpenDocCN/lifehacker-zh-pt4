@@ -1,6 +1,6 @@
 # 不要担心一切会杀死你
 
-> 原文:[https://life hacker . com/quit-warning-everything-is-to-kill-you-FFS-1698404508](https://lifehacker.com/quit-worrying-everything-is-going-to-kill-you-ffs-1698404508)
+> 原文：<https://lifehacker.com/quit-worrying-everything-is-going-to-kill-you-ffs-1698404508>
 
 似乎每周都有一篇新文章赞美红酒的延年益寿功效，警告煎鸡蛋的危险，或者吹捧西藏野生蘑菇(或其他什么)的神奇超级食物性质。但这就是为什么围绕这些研究来改变你的生活是徒劳的。
 

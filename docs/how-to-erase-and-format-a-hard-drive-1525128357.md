@@ -1,6 +1,6 @@
 # 如何擦除和格式化硬盘
 
-> 原文:[https://life hacker . com/how-to-erase-and-format-a-hard-drive-1525128357](https://lifehacker.com/how-to-erase-and-format-a-hard-drive-1525128357)
+> 原文：<https://lifehacker.com/how-to-erase-and-format-a-hard-drive-1525128357>
 
 格式化硬盘是一个令人讨厌的项目从头开始的最佳方式。你肯定会想在卖掉你的机器之前做这件事，但这也是你在安装新的外置硬盘或打算在你的台式电脑中安装新硬盘时要采取的步骤之一。
 

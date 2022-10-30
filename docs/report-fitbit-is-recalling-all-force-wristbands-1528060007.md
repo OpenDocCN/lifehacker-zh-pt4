@@ -1,6 +1,6 @@
 # Fitbit 正在召回所有 Force 腕带
 
-> 原文:[https://gizmodo . com/report-fitbit-is-recall-all-force-腕带-1528060007](https://gizmodo.com/report-fitbit-is-recalling-all-force-wristbands-1528060007)
+> 原文：<https://gizmodo.com/report-fitbit-is-recalling-all-force-wristbands-1528060007>
 
 Fitbit 今天宣布将召回其新的 [Force](https://gizmodo.com/fitbit-force-review-a-health-tracker-youd-actually-ke-1454962288) 型号，此前用户抱怨在佩戴它时出现皮疹和烧伤。Fitbit 首席执行官詹姆斯·帕克表示，召回是出于“充分的谨慎”
 

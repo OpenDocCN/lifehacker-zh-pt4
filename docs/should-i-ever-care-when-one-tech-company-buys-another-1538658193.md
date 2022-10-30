@@ -1,6 +1,6 @@
 # 当一家科技公司收购另一家时，我应该在意吗？
 
-> 原文:[https://life hacker . com/should-I-ever-care-when-one-tech-company-buy-other-1538658193](https://lifehacker.com/should-i-ever-care-when-one-tech-company-buys-another-1538658193)
+> 原文：<https://lifehacker.com/should-i-ever-care-when-one-tech-company-buys-another-1538658193>
 
 亲爱的生活黑客，我似乎每天都听到一些科技公司收购另一家公司的消息。我应该关心这种情况何时发生吗？它可能对我有影响吗？
 

@@ -1,6 +1,6 @@
 # 你最常念错的单词
 
-> 原文:[https://life hacker . com/the-most-common-words-you-possible-mispunching-1586326249](https://lifehacker.com/the-most-common-words-youre-probably-mispronouncing-1586326249)
+> 原文：<https://lifehacker.com/the-most-common-words-youre-probably-mispronouncing-1586326249>
 
 除非你已经查过或听过你读过的每个单词的发音，否则很可能至少有一些单词你读错了。让我们来看看和分享最可怕的。
 

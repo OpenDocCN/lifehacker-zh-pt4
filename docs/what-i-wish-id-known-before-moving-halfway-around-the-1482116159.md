@@ -1,6 +1,6 @@
 # 我希望在环游世界之前知道的事情
 
-> 原文:[https://life hacker . com/what-I-wish-id-known-before-move-half-around-the-1482116159](https://lifehacker.com/what-i-wish-id-known-before-moving-halfway-around-the-1482116159)
+> 原文：<https://lifehacker.com/what-i-wish-id-known-before-moving-halfway-around-the-1482116159>
 
 去年，我和丈夫辞掉了工作，卖掉了所有的东西，举家搬到了地球的另一端。我们想点击“重置”在家里，我们的生活变得出奇的可预测。所以我们决定赌上我们生活中一切舒适安定的东西，来一次冒险。
 

@@ -1,6 +1,6 @@
 # 你做过最邪恶的事是什么？
 
-> 原文:[https://life hacker . com/what-the-most-evil-thing-you even-done-1453644285](https://lifehacker.com/whats-the-most-evil-thing-youve-ever-done-1453644285)
+> 原文：<https://lifehacker.com/whats-the-most-evil-thing-youve-ever-done-1453644285>
 
 在 Lifehacker 这里是 [邪恶周](http://lifehacker.com/tag/evil-week) ，我们已经向你展示了如何在影院[中用](http://lifehacker.com/why-you-should-think-less-like-a-superhero-and-more-lik-1453537125) 的方式思考。但是有一个问题我们很好奇。你做过最邪恶的事是什么？这是你展示自己阴暗面的机会。我们不会(多)评价。
 

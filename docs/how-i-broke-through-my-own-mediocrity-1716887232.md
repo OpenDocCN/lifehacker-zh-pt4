@@ -1,6 +1,6 @@
 # 我如何突破自己的平庸
 
-> 原文:[https://life hacker . com/how-I-break-through-my-own-average-1716887232](https://lifehacker.com/how-i-broke-through-my-own-mediocrity-1716887232)
+> 原文：<https://lifehacker.com/how-i-broke-through-my-own-mediocrity-1716887232>
 
 我相当平庸。我不好意思承认。我甚至没有讽刺或自嘲。我从没做过什么引人注目的事，“哇！这家伙成功进入外太空了！或者……这家伙有一本畅销小说！或者……要是谷歌也想到这一点就好了！”
 

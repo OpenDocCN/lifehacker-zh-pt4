@@ -1,6 +1,6 @@
 # 你应该从文章中删掉的无用的单词和短语
 
-> 原文:[https://life hacker . com/the-useful-words-and-phrase-you-1690952835](https://lifehacker.com/the-useless-words-and-phrases-you-should-strike-from-yo-1690952835)
+> 原文：<https://lifehacker.com/the-useless-words-and-phrases-you-should-strike-from-yo-1690952835>
 
 *过往历史。最终结局。不用说了。*无论你是在起草一封电子邮件还是下一本*《纽约时报》*畅销书，都要警惕那些多余或无用的单词和短语，它们会让你的写作变得乏味或无力。
 

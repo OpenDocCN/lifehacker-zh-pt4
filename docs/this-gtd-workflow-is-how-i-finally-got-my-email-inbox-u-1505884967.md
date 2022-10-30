@@ -1,6 +1,6 @@
 # 这个 GTD 的工作流程就是我最终控制我的电子邮件收件箱的方法
 
-> 原文:[https://life hacker . com/this-GTD-workflow-is-how-I-finally-get-my-email-inbox-u-1505884967](https://lifehacker.com/this-gtd-workflow-is-how-i-finally-got-my-email-inbox-u-1505884967)
+> 原文：<https://lifehacker.com/this-gtd-workflow-is-how-i-finally-got-my-email-inbox-u-1505884967>
 
 我要坦白:我讨厌电子邮件。我非常讨厌电子邮件堆积如山，有时甚至会掩盖那些真正重要的邮件。这个周末，当我从初创公司创始人安德烈亚斯·克林格那里复制了这个 GTD Gmail 设置后，一切都变了。
 

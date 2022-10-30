@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:12 月 13 日至 20 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-December-13-to-20-1486839020](https://lifehacker.com/this-weeks-most-popular-posts-december-13th-to-20th-1486839020)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-december-13th-to-20th-1486839020>
 
 本周我们 [发现了平板电脑的一些有价值的用途](https://lifehacker.com/top-10-worthwhile-uses-for-tablets-1480435110)[学到了没人教你的基本厨房技能](http://lifehacker.com/the-essential-kitchen-skills-no-one-taught-but-everyon-1485609388)[发现了最常见的语法错误](http://lifehacker.com/the-top-10-grammar-mistakes-to-avoid-making-1485787315)[探索了 Photoshop](http://lifehacker.com/five-best-photoshop-alternatives-1483312519) 的最佳替代品。这里回顾一下。
 

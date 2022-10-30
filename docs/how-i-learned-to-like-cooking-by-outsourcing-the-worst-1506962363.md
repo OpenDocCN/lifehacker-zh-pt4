@@ -1,6 +1,6 @@
 # 我是如何通过外包最糟糕的部分学会喜欢烹饪的
 
-> 原文:[https://life hacker . com/how-I-learn-to-like-cooking-by-outsourcing-the-worst-1506962363](https://lifehacker.com/how-i-learned-to-like-cooking-by-outsourcing-the-worst-1506962363)
+> 原文：<https://lifehacker.com/how-i-learned-to-like-cooking-by-outsourcing-the-worst-1506962363>
 
 多年来，我一直讨厌做饭。我讨厌花时间做一些值得吃的东西。为了找到我想要的食谱所做的研究。我讨厌在炉子前工作几个小时，结果却是一顿糟糕的加盐饭菜。最近想通了怎么把自己最不喜欢的部分外包出去，现在，做饭轻而易举。
 

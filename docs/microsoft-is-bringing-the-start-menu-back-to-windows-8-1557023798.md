@@ -1,6 +1,6 @@
 # 微软将开始菜单带回 Windows
 
-> 原文:[https://life hacker . com/Microsoft-is-bring-the-start-menu-back-to-windows-8-1557023798](https://lifehacker.com/microsoft-is-bringing-the-start-menu-back-to-windows-8-1557023798)
+> 原文：<https://lifehacker.com/microsoft-is-bringing-the-start-menu-back-to-windows-8-1557023798>
 
 Windows 8.1 即将升级，但微软也宣布了一个大家都在期待的 Windows 8 未来升级:桌面开始菜单的回归。
 

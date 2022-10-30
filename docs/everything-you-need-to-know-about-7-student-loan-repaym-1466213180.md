@@ -1,6 +1,6 @@
 # 你需要知道的关于 7 个学生贷款偿还计划的一切
 
-> 原文:[https://life hacker . com/everything-you-need-know-about-7-student-loan-return m-1466213180](https://lifehacker.com/everything-you-need-to-know-about-7-student-loan-repaym-1466213180)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-7-student-loan-repaym-1466213180>
 
 10 月，教育部开始联系那些努力偿还学生贷款的借款人，让他们了解他们可以选择的各种还款方式。虽然大多数借款人选择按照标准的 10 年计划偿还贷款，但其他选择，如基于收入的选择，可以使偿还学生贷款更容易，并降低违约风险。
 

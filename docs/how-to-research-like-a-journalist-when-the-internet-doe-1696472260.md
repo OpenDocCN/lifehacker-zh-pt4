@@ -1,6 +1,6 @@
 # 当互联网无法提供信息时，如何像记者一样进行研究
 
-> 原文:[https://life hacker . com/how-to-research-like-a-journalist-when-the-internet-doe-1696472260](https://lifehacker.com/how-to-research-like-a-journalist-when-the-internet-doe-1696472260)
+> 原文：<https://lifehacker.com/how-to-research-like-a-journalist-when-the-internet-doe-1696472260>
 
 互联网上充满了信息，但有时你寻找的东西需要不同的方法。无论你是在寻找公共记录、家谱，还是真正的旧档案，是时候像老派记者一样做一些线下挖掘了。以下是开始的方法。
 

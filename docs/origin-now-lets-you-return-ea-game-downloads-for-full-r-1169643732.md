@@ -1,6 +1,6 @@
 # 现在 Origin 至少在一件事上比 Steam 做得更好
 
-> 原文:[https://kotaku . com/origin-now-let-you-return-ea-game-downloads-for-full-r-1169643732](https://kotaku.com/origin-now-lets-you-return-ea-game-downloads-for-full-r-1169643732)
+> 原文：<https://kotaku.com/origin-now-lets-you-return-ea-game-downloads-for-full-r-1169643732>
 
 通常，如果你在网上购买软件，你会被它所困。但今天，EA 为《起源》 上的游戏制定了一项新政策:你可以在首次推出游戏的 24 小时内、购买游戏后的 7 天内或游戏发布后的前 7 天内全额退款。以先发生的为准。
 

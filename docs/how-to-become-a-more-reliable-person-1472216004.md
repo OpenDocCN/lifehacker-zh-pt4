@@ -1,6 +1,6 @@
 # 如何成为一个更可靠的人
 
-> 原文:[https://life hacker . com/how-to-be-a-more-reliable-person-1472216004](https://lifehacker.com/how-to-become-a-more-reliable-person-1472216004)
+> 原文：<https://lifehacker.com/how-to-become-a-more-reliable-person-1472216004>
 
 每个人的生活中都混杂着可靠和不可靠的人。可靠的人是那些当他们承诺某事时会一次又一次地出现的人。不可靠的人有时可能会过来，但你不能相信他们的话。
 

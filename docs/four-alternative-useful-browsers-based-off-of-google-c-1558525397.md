@@ -1,6 +1,6 @@
 # 基于谷歌 Chrome 的四种可选的有用浏览器
 
-> 原文:[https://life hacker . com/four-alternative-useful-browsers-based-off-of-Google-c-1558525397](https://lifehacker.com/four-alternative-useful-browsers-based-off-of-google-c-1558525397)
+> 原文：<https://lifehacker.com/four-alternative-useful-browsers-based-off-of-google-c-1558525397>
 
 Chrome 是目前最受欢迎的浏览器，但即使它有很大的扩展库，也不能一刀切。值得庆幸的是，Chrome 坚实的开源基础上有一个 web 浏览器辉煌的宝库——从针对安全意识的浏览器到多媒体爱好者。这里有四个基于 Chrome 的替代品值得一试。
 

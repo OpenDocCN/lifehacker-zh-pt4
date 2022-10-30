@@ -1,6 +1,6 @@
 # 父母 PSA——乘坐飞机时，汽车座椅应该放在包里
 
-> 原文:[https://jalopnik . com/parental-PSA-car-seats-been-in-bags-when-you-fly-1625433154](https://jalopnik.com/parental-psa-car-seats-belong-in-bags-when-you-fly-1625433154)
+> 原文：<https://jalopnik.com/parental-psa-car-seats-belong-in-bags-when-you-fly-1625433154>
 
 作为两个孩子的父亲和一个爬过数百架飞机货舱的人，请接受我的建议——在你孩子的汽车座椅或加高座椅掉到飞机下面之前，把它放在袋子里。如果你知道那里的情况，你就会明白，再也不会想它了。
 

@@ -1,6 +1,6 @@
 # NetfliXBMC 为 XBMC 带来了更好的遥控网飞
 
-> 原文:[https://life hacker . com/netflixbmc-brings-a-better-remote-controlled-网飞-t-1484237283](https://lifehacker.com/netflixbmc-brings-a-better-remote-controlled-netflix-t-1484237283)
+> 原文：<https://lifehacker.com/netflixbmc-brings-a-better-remote-controlled-netflix-t-1484237283>
 
 有了一台好的家庭影院电脑，你可以 [播放任何东西](https://lifehacker.com/create-a-kickass-seamless-play-everything-media-cente-5900626)——尽管网飞总是有点困难。一个名为 NetfliXBMC 的新 XBMC 插件使这一过程比以往任何时候都更加简单和高效。下面是如何设置它。
 

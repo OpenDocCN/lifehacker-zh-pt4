@@ -1,6 +1,6 @@
 # 深色木材和美丽的工艺品:艺术设计师的工作空间
 
-> 原文:[https://life hacker . com/dark-wood-and-beautiful-artifacts-the-art-designers-wo-1691960281](https://lifehacker.com/dark-wood-and-beautiful-artifacts-the-art-designers-wo-1691960281)
+> 原文：<https://lifehacker.com/dark-wood-and-beautiful-artifacts-the-art-designers-wo-1691960281>
 
 俄罗斯艺术总监/设计师 Vadim Sherbakov 有一个时尚的家庭办公室，混合了深色木材家具和古董外观的物品和文物。
 

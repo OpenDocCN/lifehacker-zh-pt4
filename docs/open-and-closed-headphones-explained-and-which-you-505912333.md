@@ -1,6 +1,6 @@
 # “开放式”和“封闭式”耳机的解释，以及你应该买哪个
 
-> 原文:[https://life hacker . com/open-and-closed-headphones-explained-and the-you-505912333](https://lifehacker.com/open-and-closed-headphones-explained-and-which-you-505912333)
+> 原文：<https://lifehacker.com/open-and-closed-headphones-explained-and-which-you-505912333>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-hyWn2HbCf1o&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-hyWn2HbCf1o&start=0) 
 

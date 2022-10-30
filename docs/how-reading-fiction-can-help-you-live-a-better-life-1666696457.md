@@ -1,6 +1,6 @@
 # 阅读小说如何帮助你过上更好的生活
 
-> 原文:[https://life hacker . com/how-reading-fiction-can-help-you-live-a better-life-1666696457](https://lifehacker.com/how-reading-fiction-can-help-you-live-a-better-life-1666696457)
+> 原文：<https://lifehacker.com/how-reading-fiction-can-help-you-live-a-better-life-1666696457>
 
 问一个文科专业的学生阅读小说的好处，他们会用各种各样的废话来取悦你，说它如何让你成为一个更好的人。随便问别人，他们都会给你一个目瞪口呆的眼神。然而，不管你是谁，阅读小说都有一些隐藏的好处。让我们来看看其中的一些。
 

@@ -1,6 +1,6 @@
 # 自由职业者时间管理指南
 
-> 原文:[https://life hacker . com/the-freelancers-guide-to-time-management-1627697425](https://lifehacker.com/the-freelancers-guide-to-time-management-1627697425)
+> 原文：<https://lifehacker.com/the-freelancers-guide-to-time-management-1627697425>
 
 时间管理对我们所有人来说都是一个挑战，但是在充分利用时间方面，我们自由职业者 面临着 [一系列独特的问题](http://lifehacker.com/things-you-should-expect-if-you-start-freelancing-and-h-5889901) 。我们不仅要应付项目，还要应付几个客户，同时还要努力寻找新的工作。这里有一些自由职业者和小企业主应该有的时间管理策略。
 

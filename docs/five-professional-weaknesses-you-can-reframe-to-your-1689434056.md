@@ -1,6 +1,6 @@
 # 你可以将五个职业“弱点”重新定义为你的优势
 
-> 原文:[https://life hacker . com/five-professional-vulnerability-you-can-reframe-to-your-1689434056](https://lifehacker.com/five-professional-weaknesses-you-can-reframe-to-your-1689434056)
+> 原文：<https://lifehacker.com/five-professional-weaknesses-you-can-reframe-to-your-1689434056>
 
 你职业生涯中的很多弱点都可以变成优势。关键是要知道如何向联系人和潜在雇主展示你的“弱点”。这里有五个常见的缺点，你可以重新定义并利用它们。
 

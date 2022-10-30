@@ -1,6 +1,6 @@
 # 如何为你的下一个 DIY 项目选择合适的画笔
 
-> 原文:[https://life hacker . com/how-to-choose the right-paint-brush for your next-DIY-p-1717963975](https://lifehacker.com/how-to-choose-the-right-paint-brush-for-your-next-diy-p-1717963975)
+> 原文：<https://lifehacker.com/how-to-choose-the-right-paint-brush-for-your-next-diy-p-1717963975>
 
 粉刷你的内墙是定制你的空间的一种简单而流行的方式 。任何人都可以做到这一点，但结果可能会因您使用的笔刷类型而异。在为你的下一个 DIY 绘画项目选择合适的画笔时，请记住以下几点。
 

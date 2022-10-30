@@ -1,6 +1,6 @@
 # YouTube 彻底检查评论，希望它们不那么可怕
 
-> 原文:[https://life hacker . com/YouTube-overseas-comments-with-better-moderation-and-c-1459745015](https://lifehacker.com/youtube-overhauls-comments-with-better-moderation-and-c-1459745015)
+> 原文：<https://lifehacker.com/youtube-overhauls-comments-with-better-moderation-and-c-1459745015>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-bVGp8Z8Yb28&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-bVGp8Z8Yb28&start=0) 
 

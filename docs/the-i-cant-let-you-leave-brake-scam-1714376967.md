@@ -1,6 +1,6 @@
 # “我不能让你离开”刹车骗局
 
-> 原文:[https://jalopnik . com/the-I-cant-let-you-leave-brake-scam-1714376967](https://jalopnik.com/the-i-cant-let-you-leave-brake-scam-1714376967)
+> 原文：<https://jalopnik.com/the-i-cant-let-you-leave-brake-scam-1714376967>
 
 与汽车法律打交道已经 23 年了，我听说过所有的骗局。比你想象的更经常出现的一个例子是，一家刹车店告诉顾客，“你的刹车太差了，法律上来说，我不能让你开这辆车，除非你把它修好。”
 

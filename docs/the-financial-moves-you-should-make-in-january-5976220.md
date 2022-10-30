@@ -1,6 +1,6 @@
 # 一月份你应该做的财务变动
 
-> 原文:[https://life hacker . com/the-financial-moves-you-should-make-in-January-5976220](https://lifehacker.com/the-financial-moves-you-should-make-in-january-5976220)
+> 原文：<https://lifehacker.com/the-financial-moves-you-should-make-in-january-5976220>
 
 倒计时已经结束，香槟酒杯已经空了——节日毛衣正在大打折扣。都 2015 年了！你知道这意味着什么吗？是时候开始实现你那些崇高的决心了。
 

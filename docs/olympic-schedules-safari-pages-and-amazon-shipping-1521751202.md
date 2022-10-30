@@ -1,6 +1,6 @@
 # 奥林匹克时刻表、Safari 页面和亚马逊运输
 
-> 原文:[https://life hacker . com/Olympic-schedules-safari-pages-and-Amazon-shipping-1521751202](https://lifehacker.com/olympic-schedules-safari-pages-and-amazon-shipping-1521751202)
+> 原文：<https://lifehacker.com/olympic-schedules-safari-pages-and-amazon-shipping-1521751202>
 
 读者提供了寻找奥运赛事、关闭 Safari 页面以及满足亚马逊免费送货要求的最佳技巧。
 

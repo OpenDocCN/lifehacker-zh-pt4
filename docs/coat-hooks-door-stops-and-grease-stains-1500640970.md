@@ -1,6 +1,6 @@
 # 衣帽钩、门挡和油渍
 
-> 原文:[https://life hacker . com/coat-hooks-door-stops-and-oil-stains-1500640970](https://lifehacker.com/coat-hooks-door-stops-and-grease-stains-1500640970)
+> 原文：<https://lifehacker.com/coat-hooks-door-stops-and-grease-stains-1500640970>
 
 读者们提供了他们的最佳建议，即席制作衣帽钩，自己制作摆动门挡，去除衣服上的油渍。
 

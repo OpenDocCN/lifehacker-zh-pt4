@@ -1,6 +1,6 @@
 # 如何在低收入的情况下操纵金融界
 
-> 原文:[https://life hacker . com/how-to-machine-the-financial-world-on-a-low-income-1588603354](https://lifehacker.com/how-to-maneuver-the-financial-world-on-a-low-income-1588603354)
+> 原文：<https://lifehacker.com/how-to-maneuver-the-financial-world-on-a-low-income-1588603354>
 
 由银行、金融顾问和货币服务组成的金融界有一个不幸的(如果预料到的话)偏见:它迎合有钱人。如果你没有赚很多钱，这里有一些如何照顾自己的方法，甚至可以得到一些你可能不知道的额外帮助。
 

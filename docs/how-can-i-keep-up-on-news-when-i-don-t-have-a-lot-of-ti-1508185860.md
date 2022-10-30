@@ -1,6 +1,6 @@
 # 当我没有很多时间的时候，我如何能跟上新闻？
 
-> 原文:[https://life hacker . com/how-can-keep-up-on-news-when-I-don-t-has-lot-of-ti-1508185860](https://lifehacker.com/how-can-i-keep-up-on-news-when-i-don-t-have-a-lot-of-ti-1508185860)
+> 原文：<https://lifehacker.com/how-can-i-keep-up-on-news-when-i-don-t-have-a-lot-of-ti-1508185860>
 
 亲爱的生活黑客，我喜欢关注时事，但我根本没有时间每天阅读每一篇新闻。当我没有很多时间的时候，你有什么建议让我保持关注新闻吗？
 

@@ -1,6 +1,6 @@
 # 新的 OneDrive 与其他云服务相比如何？
 
-> 原文:[https://life hacker . com/how-the-new-one drive-compare-to-other-cloud-servic-1529728733](https://lifehacker.com/how-does-the-new-onedrive-compare-to-other-cloud-servic-1529728733)
+> 原文：<https://lifehacker.com/how-does-the-new-onedrive-compare-to-other-cloud-servic-1529728733>
 
 亲爱的 Lifehacker，
 我从来没有仔细看过 SkyDrive，但人们告诉我它真的很好。新的 [OneDrive](http://onedrive.com/) 服务值得一看吗？比 Dropbox 或者 box 之类的东西好吗？还是只是换个名字？

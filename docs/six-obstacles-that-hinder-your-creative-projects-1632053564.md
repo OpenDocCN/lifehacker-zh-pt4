@@ -1,6 +1,6 @@
 # 阻碍你创造性项目的六个障碍
 
-> 原文:[https://life hacker . com/six-barriers-than-buffer-your ' s creative-projects-1632053564](https://lifehacker.com/six-obstacles-that-hinder-your-creative-projects-1632053564)
+> 原文：<https://lifehacker.com/six-obstacles-that-hinder-your-creative-projects-1632053564>
 
 我脑子里有很多想法。在很大程度上，那是他们呆的地方。即使你有很多伟大的想法，也有很多方法可以说服自己不去追求它们。以下是我自己的想法遇到的六个障碍，以及我是如何克服它们的。
 

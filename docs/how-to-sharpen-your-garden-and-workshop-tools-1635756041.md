@@ -1,6 +1,6 @@
 # 如何磨尖你的花园和车间工具
 
-> 原文:[https://life hacker . com/how-to-sharpen-your ' s garden-and-workshop-tools-1635756041](https://lifehacker.com/how-to-sharpen-your-garden-and-workshop-tools-1635756041)
+> 原文：<https://lifehacker.com/how-to-sharpen-your-garden-and-workshop-tools-1635756041>
 
 秋天是盘点你的园艺工具和其他带刀刃的工具的好时机，在季节到来之前让它们保持原始状态。像铲子、锄头、修枝剪、刀和凿子这样的磨刀工具，它们的工作方式会有很大的不同。这里有一些锐化最常用工具的技巧。
 

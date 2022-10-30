@@ -1,6 +1,6 @@
 # 这张信息图显示了参观美国国家公园的最佳时间
 
-> 原文:[https://life hacker . com/this-infograph-shows-the-best-time-to-visit-national-1707841623](https://lifehacker.com/this-infographic-shows-the-best-time-to-visit-national-1707841623)
+> 原文：<https://lifehacker.com/this-infographic-shows-the-best-time-to-visit-national-1707841623>
 
 国家公园是一个很好的暑假选择。问题是，公园在旺季会很拥挤。但是在淡季，你可能会遇到坏天气，不会有同样的经历。这张信息图告诉你参观 23 个国家公园的最佳时间，考虑了人群、天气和价格因素。
 

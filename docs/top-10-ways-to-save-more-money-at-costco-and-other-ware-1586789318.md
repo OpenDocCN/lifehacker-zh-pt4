@@ -1,6 +1,6 @@
 # 在好市多和其他仓储俱乐部省钱的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-save-more-money-at-Costco-and-other-ware-1586789318](https://lifehacker.com/top-10-ways-to-save-more-money-at-costco-and-other-ware-1586789318)
+> 原文：<https://lifehacker.com/top-10-ways-to-save-more-money-at-costco-and-other-ware-1586789318>
 
 数百万人经常在好市多、BJ 和山姆会员店购物，因为这里有其他地方没有的折扣。运用一些聪明的策略，在这些商店购物时，你可以让口袋里有更多的钱。
 

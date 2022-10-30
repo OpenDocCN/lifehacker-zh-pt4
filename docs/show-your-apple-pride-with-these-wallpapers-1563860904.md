@@ -1,6 +1,6 @@
 # 用这些壁纸展示你的苹果骄傲
 
-> 原文:[https://life hacker . com/show-your-apple-pride-with these-wallpapers-1563860904](https://lifehacker.com/show-your-apple-pride-with-these-wallpapers-1563860904)
+> 原文：<https://lifehacker.com/show-your-apple-pride-with-these-wallpapers-1563860904>
 
 好了 [窗户伙计](http://lifehacker.com/show-your-windows-pride-with-these-wallpapers-1561363807) ，让开。是时候让苹果阵营得到一些爱了。用这些苹果壁纸，在你 Macbook 上 Macbook 的同时，在你的 Macbook 上展示你对 Macbook 的喜爱。
 

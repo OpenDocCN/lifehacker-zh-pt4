@@ -1,6 +1,6 @@
 # 如何应对孩子的情绪崩溃并帮助他们成长
 
-> 原文:[https://life hacker . com/how-to-response-to-your-childs-emotional-meltdown-and-he-1706055407](https://lifehacker.com/how-to-respond-to-your-childs-emotional-meltdown-and-he-1706055407)
+> 原文：<https://lifehacker.com/how-to-respond-to-your-childs-emotional-meltdown-and-he-1706055407>
 
 看似随机的事情会让我们的孩子陷入彻底的情绪崩溃，你难道不惊讶吗？在最激动的时刻，我们做父母的也情绪高涨。
 那么，让这种情况降温并帮助你的孩子学会如何管理情绪的最好方法是什么呢？

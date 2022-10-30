@@ -1,6 +1,6 @@
 # 最值得订阅的信息丰富、健脑的播客
 
-> 原文:[https://life hacker . com/the-best-information-brain-boosting-podcast-worth-sub-1464783451](https://lifehacker.com/the-best-informative-brain-boosting-podcasts-worth-sub-1464783451)
+> 原文：<https://lifehacker.com/the-best-informative-brain-boosting-podcasts-worth-sub-1464783451>
 
 如果你正在锻炼，通勤，或者只是消磨一点时间，一个好的播客会是一个很好的伴侣。最好的是信息丰富的、有趣的、有用的，或者至少是看着或听着有趣的。下面就来说说哪些是最好的，为什么要订阅。
 

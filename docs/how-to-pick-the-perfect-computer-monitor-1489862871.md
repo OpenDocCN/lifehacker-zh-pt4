@@ -1,6 +1,6 @@
 # 如何挑选完美的电脑显示器
 
-> 原文:[https://life hacker . com/how-to-pick-the-perfect-computer-monitor-1489862871](https://lifehacker.com/how-to-pick-the-perfect-computer-monitor-1489862871)
+> 原文：<https://lifehacker.com/how-to-pick-the-perfect-computer-monitor-1489862871>
 
 当你在组装或购买电脑时，显示器并不总是优先考虑的对象。但是显示器就像其他硬件一样与众不同，毕竟——它们是你会整天盯着看的东西，所以它值得一点思考。以下是如何挑选合适的。
 

@@ -1,6 +1,6 @@
 # 我在 30 多岁重返约会池时学到了什么
 
-> 原文:[https://life hacker . com/what-ive-learned-return-to-the-dating-pool-in-my-30-s-1693706528](https://lifehacker.com/what-ive-learned-returning-to-the-dating-pool-in-my-30s-1693706528)
+> 原文：<https://lifehacker.com/what-ive-learned-returning-to-the-dating-pool-in-my-30s-1693706528>
 
 约会一直是一种奇怪的经历。有规则，但没人知道。有特殊的代码，但没有人有密码。然而，不知何故，除非你 20 多岁，否则事情会比以往任何时候都更奇怪。
 

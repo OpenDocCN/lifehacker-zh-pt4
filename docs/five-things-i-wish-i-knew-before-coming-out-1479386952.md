@@ -1,6 +1,6 @@
 # 出柜前我希望知道的六件事
 
-> 原文:[https://life hacker . com/five-things-I-wish-I-know-before-out-1479386952](https://lifehacker.com/five-things-i-wish-i-knew-before-coming-out-1479386952)
+> 原文：<https://lifehacker.com/five-things-i-wish-i-knew-before-coming-out-1479386952>
 
 出柜——也就是说，向他人透露你的非异性恋倾向——会引发从很棒到很糟糕的各种反应。每次你这样做的时候，你都有可能学到至少一件你希望事先知道的事情。给自己省点麻烦，从我的错误中吸取教训。
 

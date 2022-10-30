@@ -1,6 +1,6 @@
 # 你可能不知道 Xbox Live Gold 和 PlayStation Plus 的最佳福利
 
-> 原文:[https://life hacker . com/the-best-perks-of-Xbox-live-gold-and-PlayStation-plus-y-1676052998](https://lifehacker.com/the-best-perks-of-xbox-live-gold-and-playstation-plus-y-1676052998)
+> 原文：<https://lifehacker.com/the-best-perks-of-xbox-live-gold-and-playstation-plus-y-1676052998>
 
 无论你有 Xbox One 还是 PlayStation 4，如果你想和朋友一起玩在线游戏，你需要支付 Xbox Live Gold 或 PlayStation Plus 的费用。你甚至可以每月拿起它玩免费游戏。不过，该会员资格还有一些你可能不知道的额外福利。让我们看看他们。
 

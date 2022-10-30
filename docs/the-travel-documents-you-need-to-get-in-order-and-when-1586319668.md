@@ -1,6 +1,6 @@
 # 你需要准备的旅行文件，以及时间
 
-> 原文:[https://life hacker . com/the-travel-documents-you-need-to-get-in-order-when-1586319668](https://lifehacker.com/the-travel-documents-you-need-to-get-in-order-and-when-1586319668)
+> 原文：<https://lifehacker.com/the-travel-documents-you-need-to-get-in-order-and-when-1586319668>
 
 在你去机场之前，你需要确保你的旅行证件都准备好了。你最不希望的事情就是因为某些东西丢失或过期而被海关扣留，没有人喜欢接受“强化检查”以下是您需要随身携带的内容，以及如何确保它是最新的。
 

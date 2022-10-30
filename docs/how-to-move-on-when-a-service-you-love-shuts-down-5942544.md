@@ -1,6 +1,6 @@
 # 当你喜欢的服务关闭时，如何继续前进
 
-> 原文:[https://life hacker . com/how-to-move-on-when-a-service-you-love-shut-down-5942544](https://lifehacker.com/how-to-move-on-when-a-service-you-love-shuts-down-5942544)
+> 原文：<https://lifehacker.com/how-to-move-on-when-a-service-you-love-shuts-down-5942544>
 
 没有什么比你最喜欢的服务之一——你每天依赖的服务——宣布关闭更令人心碎的了。这是一种痛苦，但你不必只是接受它。这里告诉你如何找到一个不差的替代品。
 

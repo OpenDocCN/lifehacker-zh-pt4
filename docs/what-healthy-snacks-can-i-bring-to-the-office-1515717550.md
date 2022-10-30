@@ -1,6 +1,6 @@
 # 有哪些健康的零食可以带到办公室？
 
-> 原文:[https://life hacker . com/what-healthy-零食-can-I-bring-to-the-office-1515717550](https://lifehacker.com/what-healthy-snacks-can-i-bring-to-the-office-1515717550)
+> 原文：<https://lifehacker.com/what-healthy-snacks-can-i-bring-to-the-office-1515717550>
 
 亲爱的生活黑客，像大多数人一样，我有时会在早餐和午餐之间，或者在午餐和下班时间之间感到饥饿。我不想让自己挨饿，但我也不想只是撞上自动售货机，吃糖果和薯条。我可以啃什么东西，既不健康，又不需要厨房烹饪？
 

@@ -1,6 +1,6 @@
 # 五个最好的 Photoshop 替代品
 
-> 原文:[https://life hacker . com/five-best-Photoshop-alternatives-1483312519](https://lifehacker.com/five-best-photoshop-alternatives-1483312519)
+> 原文：<https://lifehacker.com/five-best-photoshop-alternatives-1483312519>
 
 Adobe Photoshop 是照片润饰、图像编辑甚至从头开始创建新图像的市场领导者。然而，对于大多数人的使用来说，它可能只是太多的功能需要涉猎，太多的钱需要花费，或者太复杂而无法使用。幸运的是，有很多强大的替代品，也有大量的功能。以下是五个最好的例子。
 

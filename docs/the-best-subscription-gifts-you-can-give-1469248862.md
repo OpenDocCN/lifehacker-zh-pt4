@@ -1,6 +1,6 @@
 # 你能给的最好的订阅礼物
 
-> 原文:[https://life hacker . com/the-best-subscription-gifts-you-can-gifts-gifts-1469248862](https://lifehacker.com/the-best-subscription-gifts-you-can-give-1469248862)
+> 原文：<https://lifehacker.com/the-best-subscription-gifts-you-can-give-1469248862>
 
 如果你正在寻找一些原创的东西作为礼物送给某人，考虑给他们订阅一些东西，最好是他们感兴趣的，愿意尝试的，或者甚至可能通常不会给自己买的东西。你给了人们一种探索他们喜欢的东西的方式，而没有在他们不喜欢的东西上花钱的风险。让我们列出一份礼物清单，当你要去购物的时候，你可以参考一下。
 

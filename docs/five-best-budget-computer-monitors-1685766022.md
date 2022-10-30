@@ -1,6 +1,6 @@
 # 五款最佳预算电脑显示器
 
-> 原文:[https://life hacker . com/five-best-budget-computer-monitors-1685766022](https://lifehacker.com/five-best-budget-computer-monitors-1685766022)
+> 原文：<https://lifehacker.com/five-best-budget-computer-monitors-1685766022>
 
 你不必倾家荡产来为你的电脑获得一个好的显示屏。大型高分辨率显示器比以往任何时候都更常见，也更实惠。本周我们来看看一些最好的电脑显示器，它们屏幕尺寸大，功能强，图像质量好，而且价格低廉。
 

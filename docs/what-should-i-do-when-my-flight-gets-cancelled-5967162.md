@@ -1,6 +1,6 @@
 # 当我的航班被取消的时候我应该做什么？
 
-> 原文:[https://life hacker . com/what-should-I-do-when-my-flight-gets-canceled-5967162](https://lifehacker.com/what-should-i-do-when-my-flight-gets-cancelled-5967162)
+> 原文：<https://lifehacker.com/what-should-i-do-when-my-flight-gets-cancelled-5967162>
 
 亲爱的 Lifehacker，
 假期我会去很多地方旅行，但过去我有过一些糟糕的经历，航班被延误或取消。我已经遵循了 [你的无压力旅行指南](https://lifehacker.com/the-start-to-finish-guide-to-a-perfect-stress-free-vac-5923155) ，但是当意外发生，我的航班被取消时，我该怎么办？

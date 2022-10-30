@@ -1,6 +1,6 @@
 # Chromebook Yosemite 桌面
 
-> 原文:[https://life hacker . com/the-chrome book-Yosemite-desktop-1713377169](https://lifehacker.com/the-chromebook-yosemite-desktop-1713377169)
+> 原文：<https://lifehacker.com/the-chromebook-yosemite-desktop-1713377169>
 
 保罗的桌面可能看起来像是 Mac，但实际上是在他的 Chromebook Pixel 上运行的。通过一点点定制和一些新图标，他把它变成了自己的，看起来很棒。这是他如何调整的。
 

@@ -1,6 +1,6 @@
 # 十大计算机灾难(以及如何应对)
 
-> 原文:[https://life hacker . com/top-10-computer-disasters-and-how-to-deal-to-deal-them-them-1701627195](https://lifehacker.com/top-10-computer-disasters-and-how-to-deal-with-them-1701627195)
+> 原文：<https://lifehacker.com/top-10-computer-disasters-and-how-to-deal-with-them-1701627195>
 
 使用电脑意味着偶尔要处理一些恼人的、可能是灾难性的问题，比如如果你的硬盘崩溃了，你的所有数据都会丢失。以下是十个最常见的电脑问题以及如何处理它们。
 

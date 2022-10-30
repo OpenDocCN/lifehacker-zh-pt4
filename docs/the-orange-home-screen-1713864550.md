@@ -1,6 +1,6 @@
 # 橙色主屏幕
 
-> 原文:[https://lifehacker.com/the-orange-home-screen-1713864550](https://lifehacker.com/the-orange-home-screen-1713864550)
+> 原文：<https://lifehacker.com/the-orange-home-screen-1713864550>
 
 每个人的饮食中都需要一点维生素 C。当然，你不会从这个主屏幕上看到任何东西，但也许大量使用黑底橙会提醒你喝更多的果汁。或者看更多的网飞原创节目。两者之一。
 

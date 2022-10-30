@@ -1,6 +1,6 @@
 # 如何抑制你的财务“渴望”
 
-> 原文:[https://life hacker . com/how-to-curb-your financial-cravings-1451325326](https://lifehacker.com/how-to-curb-your-financial-cravings-1451325326)
+> 原文：<https://lifehacker.com/how-to-curb-your-financial-cravings-1451325326>
 
 你想要它。你不能停止想它。你*必须*拥有它。你一直在访问关于它的网站。你发现它在网上出售，你的手指停留在按钮上。你在商店里看到它，你几乎舍不得把它拿起来拿在手里。不管那是什么，你都渴望得到它。你太想要它了，你几乎可以尝到它的味道。
 

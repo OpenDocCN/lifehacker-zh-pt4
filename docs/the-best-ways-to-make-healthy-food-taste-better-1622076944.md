@@ -1,6 +1,6 @@
 # 让健康食品味道更好的最佳方法
 
-> 原文:[https://life hacker . com/the-best-ways-to-make-healthy-food-taste-better-1622076944](https://lifehacker.com/the-best-ways-to-make-healthy-food-taste-better-1622076944)
+> 原文：<https://lifehacker.com/the-best-ways-to-make-healthy-food-taste-better-1622076944>
 
 为什么吃蔬菜是件苦差事，而没有人抱怨狼吞虎咽地吃冰淇淋，这是有原因的:味道。虽然有很多健康(又便宜)的食谱，但有时你的味蕾仍然需要刺激。这里有一些最好的方法，可以让艰难的事情变得简单，而不会破坏你的饮食。
 

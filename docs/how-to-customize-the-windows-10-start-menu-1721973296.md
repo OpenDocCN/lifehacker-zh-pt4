@@ -1,6 +1,6 @@
 # 如何自定义 Windows 10 开始菜单
 
-> 原文:[https://life hacker . com/how-to-customize-the-windows-10-start-menu-1721973296](https://lifehacker.com/how-to-customize-the-windows-10-start-menu-1721973296)
+> 原文：<https://lifehacker.com/how-to-customize-the-windows-10-start-menu-1721973296>
 
 在过去的几年里，Windows 开始菜单一直在我们面前晃来晃去，被拿走的次数多得我们都数不清，但它终于回来了——而且还带来了很多新的花样。有史以来第一次，开始菜单是非常可定制的，这意味着你可以让它完全按照你想要的方式工作。
 

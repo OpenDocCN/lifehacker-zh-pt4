@@ -1,6 +1,6 @@
 # 如何让你的平装书保持良好状态
 
-> 原文:[https://life hacker . com/how-to-keep-your-flacked-books-in-good-condition-1666998626](https://lifehacker.com/how-to-keep-your-paperback-books-in-good-condition-1666998626)
+> 原文：<https://lifehacker.com/how-to-keep-your-paperback-books-in-good-condition-1666998626>
 
 即使像 Kindle 这样的电子书阅读器很受欢迎，平装书仍然很棒。它们可能很脆弱，但是用正确的技巧，你可以让它们在未来的几年里保持良好的阅读状态。以下是方法。
 

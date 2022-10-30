@@ -1,6 +1,6 @@
 # 最好的价格跟踪工具是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-price-tracking-tool-1692243878](https://lifehacker.com/whats-the-best-price-tracking-tool-1692243878)
+> 原文：<https://lifehacker.com/whats-the-best-price-tracking-tool-1692243878>
 
 寻找便宜货并不一定很难。无论你是在寻找价格匹配的东西，还是在购买前坚持尽可能低的价格，都有大量的扩展和工具可以跟踪价格并告诉你何时出手。本周，我们想知道你认为哪些是最好的。
 

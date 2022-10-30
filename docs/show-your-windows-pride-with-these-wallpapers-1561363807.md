@@ -1,6 +1,6 @@
 # 用这些壁纸展示你的 Windows 骄傲
 
-> 原文:[https://life hacker . com/show-your-windows-pride-with these-wallpapers-1561363807](https://lifehacker.com/show-your-windows-pride-with-these-wallpapers-1561363807)
+> 原文：<https://lifehacker.com/show-your-windows-pride-with-these-wallpapers-1561363807>
 
 Windows 用户， [联合](http://lifehacker.com/show-your-windows-linux-and-android-pride-with-these-5822935) ！这个壁纸周三，让我们庆祝我们最喜欢的操作系统，无论你运行的是 8、7 还是 XP...虽然 [你可能应该停止运行 XP](http://lifehacker.com/how-to-move-on-after-windows-xp-without-giving-up-your-1556573928) 。
 

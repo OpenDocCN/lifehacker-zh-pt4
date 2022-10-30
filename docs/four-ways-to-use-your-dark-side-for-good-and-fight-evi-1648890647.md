@@ -1,6 +1,6 @@
 # 用你的阴暗面做好事的四种方法(并与他人的邪恶作斗争)
 
-> 原文:[https://life hacker . com/four-ways-to-use-your-dark-side-for-good-and-fight-EVI-1648890647](https://lifehacker.com/four-ways-to-use-your-dark-side-for-good-and-fight-evi-1648890647)
+> 原文：<https://lifehacker.com/four-ways-to-use-your-dark-side-for-good-and-fight-evi-1648890647>
 
 每个人都有黑暗的一面，但这不是一件坏事——你只需要知道如何利用。这样想吧:蝙蝠侠的愤怒问题比任何治疗师都能治愈的都多，但他引导这些问题让世界变得更美好。没有理由你不能这样做...你知道，减去数十亿美元和洞穴。
 

@@ -1,6 +1,6 @@
 # 提高跑步的四种可行方法
 
-> 原文:[https://life hacker . com/four-actionable-ways-to-start-improving-your-running-1646285696](https://lifehacker.com/four-actionable-ways-to-start-improving-your-running-1646285696)
+> 原文：<https://lifehacker.com/four-actionable-ways-to-start-improving-your-running-1646285696>
 
 跑步很容易陷入常规，从来没有真正想过改变，但你可能会错过改善的机会。今天，我想分享四种*可行的*方法来提高你的跑步水平。
 

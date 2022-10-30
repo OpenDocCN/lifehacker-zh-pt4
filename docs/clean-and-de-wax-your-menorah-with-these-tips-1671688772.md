@@ -1,6 +1,6 @@
 # 根据以下建议，清洁烛台并去除蜡
 
-> 原文:[https://life hacker . com/clean-and-de-wax-your-menorah-with these-tips-1671688772](https://lifehacker.com/clean-and-de-wax-your-menorah-with-these-tips-1671688772)
+> 原文：<https://lifehacker.com/clean-and-de-wax-your-menorah-with-these-tips-1671688772>
 
 如果你已经用了几年烛台，它很可能被蜡糊住了(除非你有一个油基的)。随着时间的推移，这个问题变得越来越严重，所以让今年成为你的烛台保持干净和新鲜的一年。
 

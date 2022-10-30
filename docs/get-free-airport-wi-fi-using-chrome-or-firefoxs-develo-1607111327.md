@@ -1,6 +1,6 @@
 # 使用 Chrome 或 Firefox 的开发工具获得免费的 Airport Wi-Fi
 
-> 原文:[https://life hacker . com/get-free-airport-wi-fi-using-chrome-or-Firefox s-develo-1607111327](https://lifehacker.com/get-free-airport-wi-fi-using-chrome-or-firefoxs-develo-1607111327)
+> 原文：<https://lifehacker.com/get-free-airport-wi-fi-using-chrome-or-firefoxs-develo-1607111327>
 
 有时间在机场消磨，上网是消磨时间的一个很好的方式——尽管可能很贵。但是有一些技巧可以让你免费上网，绕过那些付费墙。
 

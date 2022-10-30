@@ -1,6 +1,6 @@
 # 细菌性阴道病:你应该知道的一种非常常见的感染
 
-> 原文:[https://life hacker . com/bacterial-vaginosis-a-very-common-infection-you-should-1721734706](https://lifehacker.com/bacterial-vaginosis-a-very-common-infection-you-should-1721734706)
+> 原文：<https://lifehacker.com/bacterial-vaginosis-a-very-common-infection-you-should-1721734706>
 
 没有人喜欢考虑他们的生殖器会出什么问题(畏缩)，但细菌性阴道病是每个女性都应该知道的。先说说是什么，怎么保护自己，有了怎么办。
 

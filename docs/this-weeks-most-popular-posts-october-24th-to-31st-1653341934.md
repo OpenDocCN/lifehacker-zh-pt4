@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:10 月 24 日至 31 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-10 月 24 日至 31 日-1653341934](https://lifehacker.com/this-weeks-most-popular-posts-october-24th-to-31st-1653341934)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-october-24th-to-31st-1653341934>
 
 本周我们 [发现了 Chrome 地址栏](https://lifehacker.com/the-secret-powers-of-chromes-address-bar-1651920066) ， [学会了发现隐藏的手枪](http://lifehacker.com/know-how-to-spot-the-signs-of-a-hidden-handgun-1650351312) ， [利用了一些监狱里的生活窍门](http://lifehacker.com/7-macgyver-tricks-people-have-learned-in-prison-1649809460) ， [更有选择地从 Costco](http://lifehacker.com/four-more-things-you-shouldnt-buy-at-costco-1651514668) 购买。这里回顾一下。
 

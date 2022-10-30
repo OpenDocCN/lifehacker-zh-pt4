@@ -1,6 +1,6 @@
 # 最好的 Android Wear 应用
 
-> 原文:[https://life hacker . com/the-best-Android-wear-apps-1638552352](https://lifehacker.com/the-best-android-wear-apps-1638552352)
+> 原文：<https://lifehacker.com/the-best-android-wear-apps-1638552352>
 
 Android Wear 才推出几个月，我们才刚刚开始触及它的皮毛。然而，如果你是一个已经开始使用的早期用户，这里有一些最有用的应用程序可以帮助你开始使用。
 

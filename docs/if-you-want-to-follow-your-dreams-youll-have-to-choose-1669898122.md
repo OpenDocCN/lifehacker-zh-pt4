@@ -1,6 +1,6 @@
 # 如果你想追寻你的梦想，你必须选择一个焦点
 
-> 原文:[https://life hacker . com/if-you-want-to-follow-you-have-to-choose-1669898122](https://lifehacker.com/if-you-want-to-follow-your-dreams-youll-have-to-choose-1669898122)
+> 原文：<https://lifehacker.com/if-you-want-to-follow-your-dreams-youll-have-to-choose-1669898122>
 
 如果你不能通过 遵循这些想法，那么一打伟大的想法都是无用的。即使有无尽的野心，有太多的目标也会把你拉向太多的方向，让你很难真正完成任何事情。相反，你需要选择少量的目标并集中注意力。
 

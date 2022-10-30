@@ -1,6 +1,6 @@
 # 我不应该等这么久才去海外旅行
 
-> 原文:[https://life hacker . com/I-should-not-being-so-long-to-travel-overseas-1723782396](https://lifehacker.com/i-shouldnt-have-waited-so-long-to-travel-overseas-1723782396)
+> 原文：<https://lifehacker.com/i-shouldnt-have-waited-so-long-to-travel-overseas-1723782396>
 
 海外旅行是了解世界的一个很好的方式，但不管出于什么原因，我等到 30 多岁才开始第一次旅行。但我很高兴我这么做了:事实很快证明，我对这个世界的大多数假设都是错误的。
 

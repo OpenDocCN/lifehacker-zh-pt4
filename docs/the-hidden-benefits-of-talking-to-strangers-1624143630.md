@@ -1,6 +1,6 @@
 # 与陌生人交谈的潜在好处
 
-> 原文:[https://life hacker . com/the-hidden-benefits-of-talking-to-strangers-1624143630](https://lifehacker.com/the-hidden-benefits-of-talking-to-strangers-1624143630)
+> 原文：<https://lifehacker.com/the-hidden-benefits-of-talking-to-strangers-1624143630>
 
 我们从小就被告知不要和陌生人说话。虽然这在很多情况下都是很好的建议，但并不是完美的规则。有时候，偶尔和陌生人聊天会给你带来意想不到的好处。让我们来看看其中的一些。
 

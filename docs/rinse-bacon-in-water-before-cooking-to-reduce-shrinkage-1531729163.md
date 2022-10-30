@@ -1,6 +1,6 @@
 # 烹饪前用水冲洗培根，以减少 50%的收缩
 
-> 原文:[https://life hacker . com/rinse-bacon-in-water-in-cooking-to-reduce-shrink-1531729163](https://lifehacker.com/rinse-bacon-in-water-before-cooking-to-reduce-shrinkage-1531729163)
+> 原文：<https://lifehacker.com/rinse-bacon-in-water-before-cooking-to-reduce-shrinkage-1531729163>
 
 这听起来像是一件奇怪的事情，但我们谈论的是更少的培根收缩！在烹饪之前先冲洗一下你的熏肉，这样你就可以享用更长的熏肉条了。
 

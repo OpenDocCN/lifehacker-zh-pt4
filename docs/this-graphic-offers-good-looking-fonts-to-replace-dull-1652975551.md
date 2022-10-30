@@ -1,6 +1,6 @@
 # 这张图片提供了好看的字体来取代那些单调的、过度使用的字体
 
-> 原文:[https://life hacker . com/this-graphic-offers-good-looking-fonts-to-replace-dull-1652975551](https://lifehacker.com/this-graphic-offers-good-looking-fonts-to-replace-dull-1652975551)
+> 原文：<https://lifehacker.com/this-graphic-offers-good-looking-fonts-to-replace-dull-1652975551>
 
 每个人都知道不要使用漫画字体，但这并不是唯一一种在网络上被过度使用的字体。该图为一些网络上最流行的字体和字样提供了一些很好的替代方案，这样您就可以让您的网站、文档或演示文稿焕然一新。
 

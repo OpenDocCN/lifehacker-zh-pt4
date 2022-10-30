@@ -1,6 +1,6 @@
 # 避免(和删除)Windows 垃圾软件的完整指南
 
-> 原文:[https://life hacker . com/the-complete-guide-to-avoiding-and-remove-windows-c-1630577558](https://lifehacker.com/the-complete-guide-to-avoiding-and-removing-windows-c-1630577558)
+> 原文：<https://lifehacker.com/the-complete-guide-to-avoiding-and-removing-windows-c-1630577558>
 
 Windows 有很多优点，但它也背负着计算领域最大的烦恼之一:垃圾软件。以下是您需要了解的关于识别、避免和从系统中删除不需要的软件的所有信息。
 

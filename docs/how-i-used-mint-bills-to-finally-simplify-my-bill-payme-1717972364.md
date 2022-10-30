@@ -1,6 +1,6 @@
 # 我如何使用新钞票来最终简化我的账单支付
 
-> 原文:[https://life hacker . com/how-I-used-mint-bills-to-finally-simplify-my-bill-payme-1717972364](https://lifehacker.com/how-i-used-mint-bills-to-finally-simplify-my-bill-payme-1717972364)
+> 原文：<https://lifehacker.com/how-i-used-mint-bills-to-finally-simplify-my-bill-payme-1717972364>
 
 账单烂透了。好像拿走你所有的钱还不够，整理和记忆它们简直是一场噩梦。然而，在我开始使用新钞票后，追踪我的钞票变得容易多了。
 

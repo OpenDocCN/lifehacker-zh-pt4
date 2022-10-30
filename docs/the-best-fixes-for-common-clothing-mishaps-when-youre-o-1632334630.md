@@ -1,6 +1,6 @@
 # 外出时常见衣物事故的最佳解决方案
 
-> 原文:[https://life hacker . com/the-best-fixes-for-common-clothing-mishaps-when-you-o-1632334630](https://lifehacker.com/the-best-fixes-for-common-clothing-mishaps-when-youre-o-1632334630)
+> 原文：<https://lifehacker.com/the-best-fixes-for-common-clothing-mishaps-when-youre-o-1632334630>
 
 当你出门在外，穿着得体，遇到你想给人留下深刻印象的人时，墨菲定律永远不会离你太远。你的衣柜可能会出问题，你可能没有针线包或合适的工具来修复它。以下是如何充分利用糟糕的情况。
 

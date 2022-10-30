@@ -1,6 +1,6 @@
 # 如何辨别你要买的二手车是否隐藏了洪水损坏
 
-> 原文:[https://jalopnik . com/how-to-tell-if the-you-to-buy-has-hid-1627226892](https://jalopnik.com/how-to-tell-if-that-used-car-youre-going-to-buy-has-hid-1627226892)
+> 原文：<https://jalopnik.com/how-to-tell-if-that-used-car-youre-going-to-buy-has-hid-1627226892>
 
 当大风暴袭击某个地区时，不可避免的是，被洪水损坏的汽车将冲击市场，这些汽车中的大多数不会停留在洪水的地方。以下是一些避免水毁严重的汽车的小技巧。
 

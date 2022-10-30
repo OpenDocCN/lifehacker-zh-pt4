@@ -1,6 +1,6 @@
 # 远程工作并不意味着你应该在家工作
 
-> 原文:[https://life hacker . com/work-remote-并不意味着你应该在家工作-1510086412](https://lifehacker.com/working-remotely-doesnt-mean-you-should-work-from-home-1510086412)
+> 原文：<https://lifehacker.com/working-remotely-doesnt-mean-you-should-work-from-home-1510086412>
 
 你是一个永久的自由职业者或早期企业家，你没有办公室可去。你的选择通常是这三件事情中的一件:在家工作，在咖啡店工作，或者在合作空间工作。
 

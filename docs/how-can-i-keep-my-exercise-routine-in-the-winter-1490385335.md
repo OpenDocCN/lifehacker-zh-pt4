@@ -1,6 +1,6 @@
 # 我怎样才能在冬天保持我的锻炼计划？
 
-> 原文:[https://life hacker . com/how-can-I-keep-my-exercise-routine-in the winter-1490385335](https://lifehacker.com/how-can-i-keep-my-exercise-routine-in-the-winter-1490385335)
+> 原文：<https://lifehacker.com/how-can-i-keep-my-exercise-routine-in-the-winter-1490385335>
 
 亲爱的生活黑客，这一年来，我很好地保持了慢跑、骑自行车和其他户外活动的锻炼习惯。但是现在冬天来了，我真的很想出去走走。外面天寒地冻，我该怎么做才能保持我的作息规律？
 

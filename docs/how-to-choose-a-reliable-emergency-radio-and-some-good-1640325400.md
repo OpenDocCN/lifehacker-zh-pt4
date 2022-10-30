@@ -1,6 +1,6 @@
 # 如何选择一个可靠的应急无线电(和一些好的购买)
 
-> 原文:[https://life hacker . com/how-to-choose-a-reliable-emergency-radio-and-some-good-1640325400](https://lifehacker.com/how-to-choose-a-reliable-emergency-radio-and-some-good-1640325400)
+> 原文：<https://lifehacker.com/how-to-choose-a-reliable-emergency-radio-and-some-good-1640325400>
 
 幸运的话，你永远都不需要依赖紧急无线电，但它们是任何急救包中必不可少的部分。然而，并不是所有的应急收音机都是一样的，买一个可靠的并不像从货架上拿一个那么简单。以下是你需要寻找的东西，以及一些应急包的好选择。
 

@@ -1,6 +1,6 @@
 # 游戏化心理学:应用能让你保持动力吗？
 
-> 原文:[https://life hacker . com/the-psychology-of-gamification-can-apps-keep-you-motiv-1521754385](https://lifehacker.com/the-psychology-of-gamification-can-apps-keep-you-motiv-1521754385)
+> 原文：<https://lifehacker.com/the-psychology-of-gamification-can-apps-keep-you-motiv-1521754385>
 
 游戏化是一个一直被抛来抛去的时髦词，但基本思想很简单:如果你把你的生活变成一场游戏，用数字奖励现实生活中的成就，你会更有动力去做一些事情——或者理论上是这样的。它真的有用吗？让我们来看看我们所知道的。
 

@@ -1,6 +1,6 @@
 # 如何在狭小的空间里搭建家庭影院？
 
-> 原文:[https://life hacker . com/how-can-I-build-a-home-theater-in-a-small-space-1484167589](https://lifehacker.com/how-can-i-build-a-home-theater-in-a-small-space-1484167589)
+> 原文：<https://lifehacker.com/how-can-i-build-a-home-theater-in-a-small-space-1484167589>
 
 亲爱的生活黑客，我要搬进一个小公寓，我没有足够的空间放一台大电视或巨大的客厅扬声器。我也没有太多的额外设备来连接。即便如此，我还是希望我用的东西在我使用时看起来和听起来都不错。你有什么建议可以帮助我在不花很多钱的情况下充分利用我的空间吗？
 

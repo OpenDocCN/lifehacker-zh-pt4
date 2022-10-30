@@ -1,6 +1,6 @@
 # 如何在多人家庭中无缝共享小工具
 
-> 原文:[https://life hacker . com/how-to-share-gadgets-seamless-in-a-a-a-multi-person-house-1566560671](https://lifehacker.com/how-to-share-gadgets-seamlessly-in-a-multi-person-house-1566560671)
+> 原文：<https://lifehacker.com/how-to-share-gadgets-seamlessly-in-a-multi-person-house-1566560671>
 
 不是每个人都能为每个家庭成员提供一台独立的电脑或平板电脑，所以你必须学会分享。这并不困难，只要你把事情安排好并愿意合作。
 

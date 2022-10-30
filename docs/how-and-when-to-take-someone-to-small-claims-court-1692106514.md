@@ -1,6 +1,6 @@
 # 如何(以及何时)将某人告上小额索赔法庭
 
-> 原文:[https://jalopnik . com/how-and-when-to-take-someone-to-small claims-court-1692106514](https://jalopnik.com/how-and-when-to-take-someone-to-small-claims-court-1692106514)
+> 原文：<https://jalopnik.com/how-and-when-to-take-someone-to-small-claims-court-1692106514>
 
 如果你被敲诈了几千美元，你可能无法——或者不需要——聘请律师。你应该考虑在小额索赔法庭起诉。这就是工作原理。
 

@@ -1,6 +1,6 @@
 # 购买二手物品的基本建议(不要上当)
 
-> 原文:[https://life hacker . com/the-essential-tips-for-buying-used-stuff-getti-1574256371](https://lifehacker.com/the-essential-tips-for-buying-used-stuff-without-getti-1574256371)
+> 原文：<https://lifehacker.com/the-essential-tips-for-buying-used-stuff-without-getti-1574256371>
 
 节省一点钱的最好方法之一是购买二手物品——无论是电脑、智能手机，甚至是汽车。不过，购买二手汽车会带来一些额外的责任。这里有一些关于如何避免上当受骗的指南，不管你买的是什么。
 

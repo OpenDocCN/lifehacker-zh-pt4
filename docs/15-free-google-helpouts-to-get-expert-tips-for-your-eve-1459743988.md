@@ -1,6 +1,6 @@
 # 15 个免费的 Google Helpouts 为您的日常问题获取专家提示
 
-> 原文:[https://life hacker . com/15-free-Google-helpouts-to-get-expert-tips for-your-eve-1459743988](https://lifehacker.com/15-free-google-helpouts-to-get-expert-tips-for-your-eve-1459743988)
+> 原文：<https://lifehacker.com/15-free-google-helpouts-to-get-expert-tips-for-your-eve-1459743988>
 
 Google Helpouts 是一项新的服务，它将你与真正的专家 联系起来，这些专家可以帮助你解决各种问题。无论是家庭管道问题，棘手的技术问题，还是如何在假期坚持你的饮食，都有人可以提供帮助。以下是我们能找到的一些最好、最有用的帮助。
 

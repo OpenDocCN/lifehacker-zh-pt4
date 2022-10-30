@@ -1,6 +1,6 @@
 # 晴空桌面
 
-> 原文:[https://lifehacker.com/the-clear-skies-desktop-1613651245](https://lifehacker.com/the-clear-skies-desktop-1613651245)
+> 原文：<https://lifehacker.com/the-clear-skies-desktop-1613651245>
 
 Ami Banerji 的 Linux 桌面干净、简单、相当开放。它在小部件中放弃的东西在简单性中得到了回报，这是一件好事。以下是如何让您的电脑拥有相同外观的方法。
 

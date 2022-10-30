@@ -1,6 +1,6 @@
 # 如何开始阅读连载了几十年的漫画
 
-> 原文:[https://life hacker . com/how-to-get-started-reading-comics-the-running-1692145879](https://lifehacker.com/how-to-get-started-reading-comics-that-have-been-runnin-1692145879)
+> 原文：<https://lifehacker.com/how-to-get-started-reading-comics-that-have-been-runnin-1692145879>
 
 漫画电影是最受欢迎的东西，因为他们开始在假期上映魔法电影。另一方面，漫画本身要难得多。如果你被长达几十年的漫画故事淹没了，下面是如何找到一个地方跳进去的。
 

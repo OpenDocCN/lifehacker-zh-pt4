@@ -1,6 +1,6 @@
 # 为什么 Windows 10 的「系统」进程要用这么多 RAM？
 
-> 原文:[https://life hacker . com/why-is-windows-10s-system-process-using-so-much-ram-1725076206](https://lifehacker.com/why-is-windows-10s-system-process-using-so-much-ram-1725076206)
+> 原文：<https://lifehacker.com/why-is-windows-10s-system-process-using-so-much-ram-1725076206>
 
 如果你已经将 [升级到了 Windows 10](http://lifehacker.com/should-i-upgrade-to-windows-10-1720838625) ，你可能会注意到一些奇怪的事情:系统进程有时会占用大量内存，可能超过 1GB。那其实不是 bug，是 Windows 10 的一个特性。它是这样工作的。
 

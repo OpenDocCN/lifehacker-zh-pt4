@@ -1,6 +1,6 @@
 # 要求加薪并得到应得报酬的正确方式
 
-> 原文:[https://life hacker . com/the-right-way-to-ask-a-raise-and-get what-you-desert-1577005970](https://lifehacker.com/the-right-way-to-ask-for-a-raise-and-get-what-you-deser-1577005970)
+> 原文：<https://lifehacker.com/the-right-way-to-ask-for-a-raise-and-get-what-you-deser-1577005970>
 
 在你最喜欢做的事情清单上，向老板要更多的钱可能排在帮你报税和清理下水道之前。但是工资冻结继续解冻，这可能是你最终争取的一年。
 

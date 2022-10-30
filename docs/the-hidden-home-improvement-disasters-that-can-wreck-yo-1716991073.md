@@ -1,6 +1,6 @@
 # 隐藏的家装灾难会破坏你的预算
 
-> 原文:[https://life hacker . com/the-hidden-home-improvement-disasters-than-can-wreck-yo-1716991073](https://lifehacker.com/the-hidden-home-improvement-disasters-that-can-wreck-yo-1716991073)
+> 原文：<https://lifehacker.com/the-hidden-home-improvement-disasters-that-can-wreck-yo-1716991073>
 
 如果有一个共同的主题贯穿于每一个家庭装修项目，那就是:不可预见的变化及其(可能是巨大的)费用将会发生。这里有一些你应该增加预算的家庭装修惊喜。
 

@@ -1,6 +1,6 @@
 # 用这些壁纸在你的桌面上放一些乐高小人
 
-> 原文:[https://life hacker . com/put-some-Lego-people-on-your-desktop with these-wallpap-1526233090](https://lifehacker.com/put-some-lego-people-on-your-desktop-with-these-wallpap-1526233090)
+> 原文：<https://lifehacker.com/put-some-lego-people-on-your-desktop-with-these-wallpap-1526233090>
 
 随着乐高的人在过去几周接管了电影，我们认为我们应该让步，让他们也征服我们的桌面。这里有一些最好的壁纸，展示了乐高人在自然(有时是非自然)环境中的生活。
 

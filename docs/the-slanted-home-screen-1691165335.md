@@ -1,6 +1,6 @@
 # 倾斜的主屏幕
 
-> 原文:[https://lifehacker.com/the-slanted-home-screen-1691165335](https://lifehacker.com/the-slanted-home-screen-1691165335)
+> 原文：<https://lifehacker.com/the-slanted-home-screen-1691165335>
 
 今天的设计是专为主题打造的，是一个单页主屏幕，将你最重要的信息放在一个看起来很光滑的页面上。
 

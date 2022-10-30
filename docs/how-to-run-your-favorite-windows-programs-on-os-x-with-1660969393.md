@@ -1,6 +1,6 @@
 # 如何用 Wineskin 在 OS X 上运行你最喜欢的 Windows 程序
 
-> 原文:[https://life hacker . com/how-to-run-your favorite-windows-programs-on-OS-x-with-1660969393](https://lifehacker.com/how-to-run-your-favorite-windows-programs-on-os-x-with-1660969393)
+> 原文：<https://lifehacker.com/how-to-run-your-favorite-windows-programs-on-os-x-with-1660969393>
 
 如今，有很多适用于 Mac 和 Windows 的软件问世，但总有一些游戏或应用程序没有进入 OS X。谢天谢地，你可以通过一个名为 Wineskin 的免费应用程序，轻松地将许多 Windows 程序移植到 OS X。
 

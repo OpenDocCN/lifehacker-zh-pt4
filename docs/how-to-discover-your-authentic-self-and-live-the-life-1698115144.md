@@ -1,6 +1,6 @@
 # 如何发现“真实”的自己，过上自己真正想要的生活
 
-> 原文:[https://life hacker . com/how-to-discover-your-authentic-self-and-live-the-life-1698115144](https://lifehacker.com/how-to-discover-your-authentic-self-and-live-the-life-1698115144)
+> 原文：<https://lifehacker.com/how-to-discover-your-authentic-self-and-live-the-life-1698115144>
 
 做你自己似乎是不言自明的:只要醒来做你想做的事，不用随大流，不用害怕评判。然而，这并不是这个世界的运行方式。我们倾向于扼杀真实的自我，甚至没有意识到这一点。这样做抑制了我们的创造力、独创性和自我意识。
 

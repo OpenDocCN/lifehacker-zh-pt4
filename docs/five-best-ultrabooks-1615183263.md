@@ -1,6 +1,6 @@
 # 五款最佳超极本
 
-> 原文:[https://lifehacker.com/five-best-ultrabooks-1615183263](https://lifehacker.com/five-best-ultrabooks-1615183263)
+> 原文：<https://lifehacker.com/five-best-ultrabooks-1615183263>
 
 无论您是需要一台新的笔记本电脑用于工作、学习还是娱乐，现在都是研究您想要什么并在未来几个月内实现销售的好时机。这就是为什么本周我们会看到目前市场上最好的五款超极本，感谢您的提名。
 

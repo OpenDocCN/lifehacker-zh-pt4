@@ -1,6 +1,6 @@
 # 如果你觉得太臃肿而不能做爱，但你仍然很饥渴，该怎么办
 
-> 原文:[https://life hacker . com/1696099018](https://lifehacker.com/what-to-do-if-you-feel-too-bloated-for-sex-but-youre-s-1696099018)
+> 原文：<https://lifehacker.com/what-to-do-if-you-feel-too-bloated-for-sex-but-youre-s-1696099018>
 
 我们都经历过，对吧？准备上床睡觉，但担心你肚子里不祥的隆隆声。以下是如何防止胀气、胀气或食物宝宝破坏一个性感的夜晚。
 

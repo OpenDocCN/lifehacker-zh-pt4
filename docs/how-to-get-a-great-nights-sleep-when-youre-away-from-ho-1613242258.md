@@ -1,6 +1,6 @@
 # 出门在外，如何睡个好觉
 
-> 原文:[https://life hacker . com/how-to-get-a-great-nights-sleep-when you-away-ho-1613242258](https://lifehacker.com/how-to-get-a-great-nights-sleep-when-youre-away-from-ho-1613242258)
+> 原文：<https://lifehacker.com/how-to-get-a-great-nights-sleep-when-youre-away-from-ho-1613242258>
 
 无论你是在酒店度假还是和朋友住在一起，睡在不熟悉的床上都需要一点时间来适应。你通常能应付，但头一两个晚上会很难熬。我们和一位睡眠专家坐在一起，想出了一些建议，无论你在哪里，在什么床上，都能睡个好觉。
 

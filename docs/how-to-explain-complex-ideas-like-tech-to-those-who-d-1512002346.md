@@ -1,6 +1,6 @@
 # 如何向不理解的人解释复杂的想法(比如科技)
 
-> 原文:[https://life hacker . com/how-to-explain-complex-ideas-like-tech-to-these-who-d-1512002346](https://lifehacker.com/how-to-explain-complex-ideas-like-tech-to-those-who-d-1512002346)
+> 原文：<https://lifehacker.com/how-to-explain-complex-ideas-like-tech-to-those-who-d-1512002346>
 
 无论你是家庭技术支持，还是一个总是试图教朋友你所学的热心研究者，解释复杂的话题都是困难的。以下是如何做到这一点，这样人们才能真正理解你。
 

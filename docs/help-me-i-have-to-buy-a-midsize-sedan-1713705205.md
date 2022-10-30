@@ -1,6 +1,6 @@
 # 最好的中型轿车是什么？我们可以帮忙
 
-> 原文:[https://jalopnik . com/help-me-I-have-to-buy-a-midsize-sedan-1713705205](https://jalopnik.com/help-me-i-have-to-buy-a-midsize-sedan-1713705205)
+> 原文：<https://jalopnik.com/help-me-i-have-to-buy-a-midsize-sedan-1713705205>
 
 虽然紧凑型跨界车可能越来越受欢迎，但现实是大多数购车者仍在购买中型轿车。你的朋友可能会问你“雅阁和帕萨特有什么区别？”把这段视频发给他们。
 

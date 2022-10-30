@@ -1,6 +1,6 @@
 # 日常生活中实用的数学捷径
 
-> 原文:[https://life hacker . com/practical-math-shortcut s-for-daily-life-1495337792](https://lifehacker.com/practical-math-shortcuts-for-everyday-life-1495337792)
+> 原文：<https://lifehacker.com/practical-math-shortcuts-for-everyday-life-1495337792>
 
 事实证明，你的学校老师是对的。你需要定期学习数学。虽然大多数人通常不需要正交轨迹，但这里有一些对你日常生活最重要的数学捷径。
 

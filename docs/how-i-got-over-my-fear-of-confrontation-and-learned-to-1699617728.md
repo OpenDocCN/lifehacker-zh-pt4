@@ -1,6 +1,6 @@
 # 我是如何克服对对抗的恐惧并学会直言不讳的
 
-> 原文:[https://life hacker . com/how-I-got-over-my-fear-of-conflict-and-learn-to-1699617728](https://lifehacker.com/how-i-got-over-my-fear-of-confrontation-and-learned-to-1699617728)
+> 原文：<https://lifehacker.com/how-i-got-over-my-fear-of-confrontation-and-learned-to-1699617728>
 
 几年前，我开始了一份全新的工作，我承包了一个糟糕的项目。没有真正的工作要做，所以我没有写技术文章——我真正的工作——而是把时间花在给别人倒咖啡和复印上。这件事我没有问老板，而是藏在心里。几周后，她困惑地质问我:“你为什么不说出来？”
 

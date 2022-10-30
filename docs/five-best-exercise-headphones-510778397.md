@@ -1,6 +1,6 @@
 # 五款最佳运动耳机
 
-> 原文:[https://life hacker . com/five-best-exercise-headphones-510778397](https://lifehacker.com/five-best-exercise-headphones-510778397)
+> 原文：<https://lifehacker.com/five-best-exercise-headphones-510778397>
 
 坐在电脑前或在家里听音乐的最佳耳机可能不是你在城里慢跑时戴在耳朵上的最佳耳机。活动会使它们掉出，噪音隔离或闭耳模型会使你很难听到周围的声音，但你仍然希望你的钱有好的音频质量。我们向您询问了在健身房锻炼时最好的耳机，以下是根据您的提名选出的五款最佳耳机。
 

@@ -1,6 +1,6 @@
 # 如何设置 Steam 家庭流媒体并解决其问题
 
-> 原文:[https://life hacker . com/how-to-setup-steam-in-home-streaming-and-fix-its-quirks-1579996803](https://lifehacker.com/how-to-setup-steam-in-home-streaming-and-fix-its-quirks-1579996803)
+> 原文：<https://lifehacker.com/how-to-setup-steam-in-home-streaming-and-fix-its-quirks-1579996803>
 
 昨天，Steam 向所有人发布了其家庭流媒体功能。该功能允许您在一台 PC 上安装游戏，并通过您的家庭网络将其传输到任何其他机器。下面是如何设置它(并修复一些更奇怪的问题)。
 

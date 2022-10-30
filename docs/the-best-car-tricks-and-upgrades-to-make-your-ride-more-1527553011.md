@@ -1,6 +1,6 @@
 # 最好的汽车技巧和升级，让你的旅程更精彩
 
-> 原文:[https://life hacker . com/the-best-car-tricks-and-upgrades-to-make-your-ride-more-1527553011](https://lifehacker.com/the-best-car-tricks-and-upgrades-to-make-your-ride-more-1527553011)
+> 原文：<https://lifehacker.com/the-best-car-tricks-and-upgrades-to-make-your-ride-more-1527553011>
 
 除非你住在一个公共交通非常发达的城市，否则你很可能会花大量时间在车上。为什么不把它打扮得漂亮一点，让它更令人愉快呢？这里有一些我们最喜欢的技巧和升级，让驾驶变得更棒。
 

@@ -1,6 +1,6 @@
 # 参差不齐的桌面
 
-> 原文:[https://lifehacker.com/the-jagged-desktop-1694547068](https://lifehacker.com/the-jagged-desktop-1694547068)
+> 原文：<https://lifehacker.com/the-jagged-desktop-1694547068>
 
 尖锐的点和角度是 [马哈茂德](https://www.flickr.com/photos/131193915@N08/) 桌面的主题，虽然它肯定是戏剧性的，但我们也喜欢他定制它以适应他的风格和工作流程的方式。他是这样安排一切的。
 

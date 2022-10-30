@@ -1,6 +1,6 @@
 # 当我的租约到期的时候我做什么？
 
-> 原文:[https://jalopnik . com/what-do-I-do-when-my-lease-over-1723618082](https://jalopnik.com/what-do-i-do-when-my-lease-is-over-1723618082)
+> 原文：<https://jalopnik.com/what-do-i-do-when-my-lease-is-over-1723618082>
 
 这里有一个场景:在过去的几年里，你享受了一辆全新的汽车，付款较低，因为你是租的而不是买的。既然租约快到期了，你有几个选择要考虑，但你会想提前做一些规划。
 

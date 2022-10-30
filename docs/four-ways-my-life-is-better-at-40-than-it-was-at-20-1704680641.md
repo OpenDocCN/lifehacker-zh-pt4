@@ -1,6 +1,6 @@
 # 我 40 岁时的生活比 20 岁时更好的四种方式
 
-> 原文:[https://life hacker . com/four-ways-my-life-is better-at-40-than-it-was-at-20-1704680641](https://lifehacker.com/four-ways-my-life-is-better-at-40-than-it-was-at-20-1704680641)
+> 原文：<https://lifehacker.com/four-ways-my-life-is-better-at-40-than-it-was-at-20-1704680641>
 
 昨天我 40 岁了。如果生日贺卡可信的话，我现在正式成为*的老人，在山顶上，除了向下看，无处可看。但我认为每十年都会变得更好。有些事情我现在可以做，而年轻时的我从来不能或不会做。*
 

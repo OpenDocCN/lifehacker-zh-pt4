@@ -1,6 +1,6 @@
 # 购买前了解这些主要零售商的在线价格匹配政策
 
-> 原文:[https://life hacker . com/know-these-major-retailers-online-price-match-policies-1501472181](https://lifehacker.com/know-these-major-retailers-online-price-match-policies-1501472181)
+> 原文：<https://lifehacker.com/know-these-major-retailers-online-price-match-policies-1501472181>
 
 下面是我今天读到的最令人惊讶的事情:根据零售分析师 的说法，只有 5%的消费者愿意通过让零售商遵守他们的价格匹配政策来降低商品的价格。
 

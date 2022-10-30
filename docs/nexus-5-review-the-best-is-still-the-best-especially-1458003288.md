@@ -1,6 +1,6 @@
 # Nexus 5 评测:安卓能提供的最好的(尤其是价格)
 
-> 原文:[https://gizmodo . com/nexus-5-review-the-best-is still-the-best-specially-1458003288](https://gizmodo.com/nexus-5-review-the-best-is-still-the-best-especially-1458003288)
+> 原文：<https://gizmodo.com/nexus-5-review-the-best-is-still-the-best-especially-1458003288>
 
 今年，在经历了 [泄露](https://gizmodo.com/did-google-accidentally-leak-the-next-nexus-phone-1247836161) [比](http://gizmodo.com/another-leaked-nexus-5-shows-off-its-giant-screen-and-g-1330680111) [多了一个](http://gizmodo.com/this-leaked-service-manual-lists-literally-everything-a-1441627612) [拍摄](http://gizmodo.com/report-these-are-the-first-nexus-5-press-images-1447308649) [筛](http://gizmodo.com/nexus-5-pops-up-on-google-play-for-350-1447507439) 之后，期待已久的 Nexus 5 也带着 Android 4.4 (KitKat)来了。这绝对是你能买到的最好的手机之一，即使它并不完全符合其膨胀的期望。
 

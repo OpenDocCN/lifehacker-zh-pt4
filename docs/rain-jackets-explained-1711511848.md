@@ -1,6 +1,6 @@
 # 雨衣，解释道
 
-> 原文:[https://gizmodo.com/rain-jackets-explained-1711511848](https://gizmodo.com/rain-jackets-explained-1711511848)
+> 原文：<https://gizmodo.com/rain-jackets-explained-1711511848>
 
 为了一个难以置信的简单概念——让你保持干燥——雨衣已经演变成非常复杂的产品。空气流速、抗水压、耐用防水涂层、硬壳、软壳……技术术语不胜枚举。以下是它们的含义，以及如何利用它们找到最适合你的夹克。
 

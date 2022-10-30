@@ -1,6 +1,6 @@
 # 为什么你的大脑渴望垃圾食品(以及你能做些什么)
 
-> 原文:[https://life hacker . com/why-your-brain-craves-junk-food and-why-you-can-do-a b-1469120841](https://lifehacker.com/why-your-brain-craves-junk-food-and-what-you-can-do-ab-1469120841)
+> 原文：<https://lifehacker.com/why-your-brain-craves-junk-food-and-what-you-can-do-ab-1469120841>
 
 我们大多数人都知道垃圾食品不健康。我们知道营养不良与心脏问题、高血压和许多其他健康疾病有关。你甚至可能知道，研究表明，吃垃圾食品与抑郁症 增加 [有关。但是如果这对我们来说很糟糕，我们为什么还要继续做下去呢？](http://www.ncbi.nlm.nih.gov/pubmed/21835082)
 

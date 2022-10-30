@@ -1,6 +1,6 @@
 # 如何免费进入豪华机场候机室
 
-> 原文:[https://life hacker . com/how-to-get-into-luxury-lounges-free-1569936509](https://lifehacker.com/how-to-get-into-luxury-airport-lounges-for-free-1569936509)
+> 原文：<https://lifehacker.com/how-to-get-into-luxury-airport-lounges-for-free-1569936509>
 
 当你听到“中途停留”这个词时，你会想到什么？如果你像大多数人一样，你可能会想象昂贵的食物和饮料，不稳定的 Wi-Fi，拥挤的住处——很少有或没有机会放松或工作。但是有几种方法可以让你进入豪华休息室，将你的中途停留 升级为迷你假期。
 

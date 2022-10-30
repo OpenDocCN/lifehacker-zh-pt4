@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:我怎么交朋友？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-make-friends-1532592515](https://kotaku.com/ask-dr-nerdlove-how-do-i-make-friends-1532592515)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-make-friends-1532592515>
 
 怎么了， *Kotaku* ？欢迎来到最新一期的 [向书呆子爱博士](http://kotaku.com/askdrnerdlove) 提问，这是唯一一个致力于帮助书呆子变得性感和让世界变得更古怪的建议专栏。
 

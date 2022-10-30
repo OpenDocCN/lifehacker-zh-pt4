@@ -1,6 +1,6 @@
 # 如何防止别人知道你在应用程序中看到了一条消息
 
-> 原文:[https://life hacker . com/how-to-prevent-the-people-known-when-you-seen-a-me-1661683901](https://lifehacker.com/how-to-prevent-people-from-knowing-when-youve-seen-a-me-1661683901)
+> 原文：<https://lifehacker.com/how-to-prevent-people-from-knowing-when-youve-seen-a-me-1661683901>
 
 似乎最近每个消息应用，从 iMessage 到脸书，都坚持发送“已读回执”,让人们知道你已经看到了他们的消息。这可能很烦人。以下是如何在一些最流行的应用程序中关闭该功能。
 

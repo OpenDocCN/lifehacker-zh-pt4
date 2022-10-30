@@ -1,6 +1,6 @@
 # 如何开始用个人资本追踪你的投资
 
-> 原文:[https://life hacker . com/how-to-start-tracking-your-investments-with-personal-ca-1697801188](https://lifehacker.com/how-to-start-tracking-your-investments-with-personal-ca-1697801188)
+> 原文：<https://lifehacker.com/how-to-start-tracking-your-investments-with-personal-ca-1697801188>
 
 投资是一大堆数字、字母和行话。处理这些乱七八糟的东西并给它们一些秩序是一个令人生畏的，但是重要的项目。你应该对你的投资组合了如指掌，而个人资本可以帮你做到这一点。在这篇文章中，我们将向你展示如何使用它来跟踪和理解你的投资。
 

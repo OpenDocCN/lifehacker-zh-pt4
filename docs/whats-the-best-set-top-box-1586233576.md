@@ -1,6 +1,6 @@
 # 最好的机顶盒是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-机顶盒-1586233576](https://lifehacker.com/whats-the-best-set-top-box-1586233576)
+> 原文：<https://lifehacker.com/whats-the-best-set-top-box-1586233576>
 
 不管你是切断了电缆还是仍然为有线电视付费，通过互联网看电视不再是一件有趣的事情，只有少数精通技术的人才会这么做。我们已经有一段时间没有调查过你最喜欢的机顶盒和流媒体设备了，所以本周我们想听听你最喜欢的设备。
 

@@ -1,6 +1,6 @@
 # 关于消化不良的六个神话
 
-> 原文:[https://life hacker . com/six-myths-about-digestion-that-just-won-t-die-1710638420](https://lifehacker.com/six-myths-about-digestion-that-just-won-t-die-1710638420)
+> 原文：<https://lifehacker.com/six-myths-about-digestion-that-just-won-t-die-1710638420>
 
 我们大多数人对消化的工作原理都有一个模糊的概念:我们吃食物，分解食物(这是科学术语，对吗？)和，不知何故，利润。但是，如果没有更好地了解那里发生了什么，我们很容易相信一些已经变得司空见惯的离奇的神话。
 

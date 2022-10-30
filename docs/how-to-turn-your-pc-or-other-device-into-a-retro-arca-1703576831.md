@@ -1,6 +1,6 @@
 # 如何用 Lakka 将你的电脑(或其他设备)变成复古街机
 
-> 原文:[https://life hacker . com/how-to-turn-your-PC-or-other-device-to-a retro-arca-1703576831](https://lifehacker.com/how-to-turn-your-pc-or-other-device-into-a-retro-arca-1703576831)
+> 原文：<https://lifehacker.com/how-to-turn-your-pc-or-other-device-into-a-retro-arca-1703576831>
 
 如果你正在寻找一种使用旧 PC 的有趣方式，Lakka 可以将它变成一台令人惊叹的复古游戏机。这个简单的设置不需要任何高级的 Linux 知识，你甚至可以使用你已经拥有的控制器来玩你最喜欢的老式学校游戏。以下是实现这一目标的逐步指南。
 

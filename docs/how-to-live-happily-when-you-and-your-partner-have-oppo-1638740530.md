@@ -1,6 +1,6 @@
 # 当你和你的伴侣有相反的时间表时，如何快乐地生活
 
-> 原文:[https://life hacker . com/how-to-live-happy-when-you-and-partner-have-oppo-1638740530](https://lifehacker.com/how-to-live-happily-when-you-and-your-partner-have-oppo-1638740530)
+> 原文：<https://lifehacker.com/how-to-live-happily-when-you-and-your-partner-have-oppo-1638740530>
 
 当你的作息时间与伴侣相反时——无论是因为工作还是不同的睡眠时间——似乎唯一的解决办法就是分开。这需要一些努力，但你可以管理它，和谐地生活。
 

@@ -1,6 +1,6 @@
 # 四种方法来创建一个安全的密码，你会真正记住
 
-> 原文:[https://life hacker . com/four-methods-to-create-a-secure-password-youll-really-1601854240](https://lifehacker.com/four-methods-to-create-a-secure-password-youll-actually-1601854240)
+> 原文：<https://lifehacker.com/four-methods-to-create-a-secure-password-youll-actually-1601854240>
 
 您如何平衡高度安全的密码的必要性和轻松回忆所有密码的实用性？唯一安全的密码是你不记得的密码，但有时你不能使用密码管理器，需要依靠你的记忆。
 

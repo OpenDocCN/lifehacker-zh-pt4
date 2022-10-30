@@ -1,6 +1,6 @@
 # 如何做你自己的家庭能源审计和每月省钱
 
-> 原文:[https://life hacker . com/how-do-your-own-home-energy-audit-and-save money-EAC-1682230679](https://lifehacker.com/how-to-do-your-own-home-energy-audit-and-save-money-eac-1682230679)
+> 原文：<https://lifehacker.com/how-to-do-your-own-home-energy-audit-and-save-money-eac-1682230679>
 
 在家里浪费能源就像扔掉钱一样。你可以在取暖器、空调和新窗户上花上几千美元，但糟糕的隔热和过时的电器会耗尽你的积蓄，让你的家变得不舒服。以下是如何执行你自己的能源审计，并节省一点钱。
 

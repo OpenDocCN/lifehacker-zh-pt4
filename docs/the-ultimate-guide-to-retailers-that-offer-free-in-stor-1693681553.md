@@ -1,6 +1,6 @@
 # 提供免费店内提货服务的零售商终极指南
 
-> 原文:[https://life hacker . com/the-ultimate-guide-to-the-retailers-the-offer-in-stor-1693681553](https://lifehacker.com/the-ultimate-guide-to-retailers-that-offer-free-in-stor-1693681553)
+> 原文：<https://lifehacker.com/the-ultimate-guide-to-retailers-that-offer-free-in-stor-1693681553>
 
 网上购物很方便，但考虑到运输成本和运输时间，它并不总是理想的。店内取货解决了这两个问题:你可以在家里订购，避免运输成本，并且不用逛商店就能在几分钟内拿到你要的东西。这是带头冲锋的零售商。
 

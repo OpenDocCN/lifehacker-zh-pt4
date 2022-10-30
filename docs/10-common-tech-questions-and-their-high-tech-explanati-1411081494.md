@@ -1,6 +1,6 @@
 # 10 个常见的技术问题(及其高科技解释)
 
-> 原文:[https://life hacker . com/10-common-tech-questions-and-their-high-tech-explanati-1411081494](https://lifehacker.com/10-common-tech-questions-and-their-high-tech-explanati-1411081494)
+> 原文：<https://lifehacker.com/10-common-tech-questions-and-their-high-tech-explanati-1411081494>
 
 有些问题我们每天都在处理，但不知道为什么。为什么我需要不断重置我的路由器？我有病毒吗？当我使用的网站遭到“黑客攻击”时会发生什么？无论你是经常回答这些问题的技术娴熟的朋友，还是提出问题的朋友，这里都有最常见难题的答案。
 

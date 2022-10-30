@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名“道德黑客”我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-ethical-hacker-1706940692](https://lifehacker.com/career-spotlight-what-i-do-as-an-ethical-hacker-1706940692)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-an-ethical-hacker-1706940692>
 
 你偶尔会听说重大安全漏洞在被利用之前就被发现了，比如去年臭名昭著的 [Heartbleed](http://lifehacker.com/what-the-heartbleed-security-bug-means-for-you-1560801201) bug。安全研究人员努力消除这些危险的缺陷，以免被更具恶意的黑客发现。这种先发制人的黑客行为有时被称为 [白帽](http://en.wikipedia.org/wiki/White_hat_%28computer_security%29) ，或者简称为“道德黑客”
 

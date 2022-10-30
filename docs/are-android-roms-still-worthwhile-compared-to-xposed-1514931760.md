@@ -1,6 +1,6 @@
 # 相比 Xposed，Android ROMs 还值吗？
 
-> 原文:[https://life hacker . com/are-Android-Roms-still-valued-that-to-xposed-1514931760](https://lifehacker.com/are-android-roms-still-worthwhile-compared-to-xposed-1514931760)
+> 原文：<https://lifehacker.com/are-android-roms-still-worthwhile-compared-to-xposed-1514931760>
 
 亲爱的 Lifehacker，
 我最近读了很多关于 Android 调整的文章，有了像 GravityBox 这样的 [调整，闪存定制 ROM 有什么好处吗？只需用 Xposed](https://lifehacker.com/gravitybox-adds-a-ton-of-tweaks-to-android-in-one-custo-1502250290) 添加我想要的特性不是更好吗？

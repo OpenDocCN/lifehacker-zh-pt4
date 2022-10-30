@@ -1,6 +1,6 @@
 # 简约的威尼斯桌面
 
-> 原文:[https://life hacker . com/the-minimal-venetian-desktop-1629445366](https://lifehacker.com/the-minimal-venetian-desktop-1629445366)
+> 原文：<https://lifehacker.com/the-minimal-venetian-desktop-1629445366>
 
 读者 [乔迪](http://anjody86.kinja.com/) 随着工作日的进行，桌面变得有些凌乱，但在一天开始时，它总是干净的。这是乔迪的桌面在一天中的视图——干净、开放、鼓舞人心，但它隐藏着严肃的力量。这是所有设置的方式。
 

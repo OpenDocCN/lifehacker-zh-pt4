@@ -1,6 +1,6 @@
 # 用这些小动物壁纸说“Awwww”
 
-> 原文:[https://life hacker . com/say-awwww-with-these-baby-animal-wallpapers-1573146661](https://lifehacker.com/say-awwww-with-these-baby-animal-wallpapers-1573146661)
+> 原文：<https://lifehacker.com/say-awwww-with-these-baby-animal-wallpapers-1573146661>
 
 本来打算再做一张极客科幻壁纸的单子，直到偶然发现 [一张小狗](http://imgur.com/gallery/CCtm4) 的图片。现在对我来说，除了小动物之外，培养出一个清单是不可能的。因此，这里有几个装扮你的桌面。
 

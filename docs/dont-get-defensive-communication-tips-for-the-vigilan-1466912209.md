@@ -1,6 +1,6 @@
 # 不要有防御心理:警惕者的沟通技巧
 
-> 原文:[https://life hacker . com/dont-get-defense-communication-tips-for-the-vigi LAN-1466912209](https://lifehacker.com/dont-get-defensive-communication-tips-for-the-vigilan-1466912209)
+> 原文：<https://lifehacker.com/dont-get-defensive-communication-tips-for-the-vigilan-1466912209>
 
 当我们处于防御状态时，我们会让对方更难听到我们在说什么。我们也让真正倾听他们不得不说的话变得更加困难。很快，我们开始打太极拳，保护自己免受不真实的攻击，浪费精力和关系资本在损害控制上，而不是解决手头的问题。
 

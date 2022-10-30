@@ -1,6 +1,6 @@
 # 我学到的关于个人理财的 10 句话
 
-> 原文:[https://life hacker . com/everything-ive-learn-on-personal-finance-in-10-se-1477858960](https://lifehacker.com/everything-ive-learned-about-personal-finance-in-10-se-1477858960)
+> 原文：<https://lifehacker.com/everything-ive-learned-about-personal-finance-in-10-se-1477858960>
 
 *我们从简单的美元特伦特·哈姆那里精选了很多小技巧——从* [*批量购买*](https://lifehacker.com/the-ultimate-guide-to-buying-in-bulk-1447310078) *和* [*网上赚钱*](https://lifehacker.com/the-reality-of-earning-money-online-1460779442) *到* [*管理职业生涯中断*](http://lifehacker.com/how-to-maintain-your-skills-during-a-career-hiatus-1286037539) *和* [*克服决策疲劳*在这里，他分享了他的十条最重要的财务建议。](http://lifehacker.com/how-to-overcome-decision-fatigue-1462863837)
 

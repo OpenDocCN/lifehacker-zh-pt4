@@ -1,6 +1,6 @@
 # 信用分低，没有首付，怎么买车？
 
-> 原文:[https://jalopnik . com/how-do-I-buy-a-car-a-low-credit-score and no-down-1707142759](https://jalopnik.com/how-do-i-buy-a-car-with-a-low-credit-score-and-no-down-1707142759)
+> 原文：<https://jalopnik.com/how-do-i-buy-a-car-with-a-low-credit-score-and-no-down-1707142759>
 
 我 14 万英里的 PT Cruiser 正在变成一个钱坑。我需要另一辆车，但由于一些医疗账单，我的信用评分遭受了巨大的打击，我没有现金支付首期付款。担心贷款利率高，但也在犹豫要不要处理另一辆二手车的头疼事。
 

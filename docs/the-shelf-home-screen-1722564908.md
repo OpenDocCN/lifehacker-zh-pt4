@@ -1,6 +1,6 @@
 # 货架主屏幕
 
-> 原文:[https://lifehacker.com/the-shelf-home-screen-1722564908](https://lifehacker.com/the-shelf-home-screen-1722564908)
+> 原文：<https://lifehacker.com/the-shelf-home-screen-1722564908>
 
 尽管你可以在手机上下载各种各样的应用程序，但你可能只使用其中的几个。这种设计将你最常用的几个应用程序放在一个光滑的主屏幕上，很少有干扰。
 

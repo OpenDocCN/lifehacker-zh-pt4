@@ -1,6 +1,6 @@
 # 常见的超支触发因素会破坏你的预算
 
-> 原文:[https://life hacker . com/common-over spending-triggers-that-can-wreck-your-budget-1627266082](https://lifehacker.com/common-overspending-triggers-that-can-wreck-your-budget-1627266082)
+> 原文：<https://lifehacker.com/common-overspending-triggers-that-can-wreck-your-budget-1627266082>
 
 为了帮助你避免破坏你的预算，我们揭示了八个常见的超支触发因素——以及如何在为时已晚之前踩下支出刹车的聪明策略。
 

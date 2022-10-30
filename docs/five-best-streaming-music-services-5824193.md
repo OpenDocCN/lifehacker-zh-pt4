@@ -1,6 +1,6 @@
 # 五大最佳流媒体音乐服务
 
-> 原文:[https://life hacker . com/five-best-streaming-music-services-5824193](https://lifehacker.com/five-best-streaming-music-services-5824193)
+> 原文：<https://lifehacker.com/five-best-streaming-music-services-5824193>
 
 如果你在寻找一些好听的东西，你有大量的服务可供选择，有免费的，也有付费的(两者都有)。随着 [Grooveshark 现在悲伤地离开](https://lifehacker.com/music-service-grooveshark-one-of-our-favorite-streamin-1701394611) ，是时候重新审视流媒体音乐的世界了，看看谁会胜出。本周，我们将根据你们的提名选出五位最佳选手。
 

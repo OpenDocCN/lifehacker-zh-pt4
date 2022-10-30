@@ -1,6 +1,6 @@
 # 开始写作生涯最重要的技能
 
-> 原文:[https://life hacker . com/the-most-important-skills-you-need-to-start-a-writing-c-1683295624](https://lifehacker.com/the-most-important-skills-you-need-to-start-a-writing-c-1683295624)
+> 原文：<https://lifehacker.com/the-most-important-skills-you-need-to-start-a-writing-c-1683295624>
 
 所以你想通过写作获得报酬，但你从未发表过作品。你没有正式的经验，也没有人雇佣你从事与写作相关的工作。有偿写作带来的专业跑腿工作可能会令人生畏。磨练几个重要的技能可以帮助你入门。
 

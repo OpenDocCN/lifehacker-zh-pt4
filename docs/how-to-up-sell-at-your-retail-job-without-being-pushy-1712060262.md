@@ -1,6 +1,6 @@
 # 如何在不出风头的情况下推销你的零售工作
 
-> 原文:[https://life hacker . com/how-to-up-sell-in-your-retail-job-without-push-1712060262](https://lifehacker.com/how-to-up-sell-at-your-retail-job-without-being-pushy-1712060262)
+> 原文：<https://lifehacker.com/how-to-up-sell-at-your-retail-job-without-being-pushy-1712060262>
 
 你可能以前和咄咄逼人的零售销售人员打过交道，他们让你感到不舒服，因为他们一直让你买东西，即使你说你不感兴趣。你知道这种感觉，它通常会让人们寻找最近的出口。所以，如果你在零售业工作，不要成为那样的人。
 

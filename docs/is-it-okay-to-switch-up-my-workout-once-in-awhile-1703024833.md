@@ -1,6 +1,6 @@
 # 偶尔改变我的锻炼可以吗？
 
-> 原文:[https://life hacker . com/is-it-okay-to-switch-up-my-workout-once-in-a-time-1703024833](https://lifehacker.com/is-it-okay-to-switch-up-my-workout-once-in-awhile-1703024833)
+> 原文：<https://lifehacker.com/is-it-okay-to-switch-up-my-workout-once-in-awhile-1703024833>
 
 亲爱的生活黑客，我听说我应该“混合一下”,改变我在健身房的锻炼方式。我的朋友是一名健美运动员，他告诉我，这被称为“肌肉混乱”，会迫使它们生长。我只知道健身房的一些运动，所以改变它似乎更加困难。我该怎么办？
 

@@ -1,6 +1,6 @@
 # 如何把冒名顶替综合症变成超能力
 
-> 原文:[https://gizmodo . com/how-to-turn-impostor-syndrome-a-super power-1706118528](https://gizmodo.com/how-to-turn-impostor-syndrome-into-a-superpower-1706118528)
+> 原文：<https://gizmodo.com/how-to-turn-impostor-syndrome-into-a-superpower-1706118528>
 
 每个人都有冒名顶替综合症，但这是一种对极客打击特别大的疾病。你知道这是怎么回事:你觉得你不可能属于这里，你不能胜任，每个人都会意识到你是个骗子。以下是如何把冒名顶替综合症变成你自己的超能力。
 

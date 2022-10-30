@@ -1,6 +1,6 @@
 # 时间资产和债务:思考生产力的另一种方式
 
-> 原文:[https://life hacker . com/time-assets-and-debt-a-different-way-of-thinking-abou-1658835903](https://lifehacker.com/time-assets-and-debts-a-different-way-of-thinking-abou-1658835903)
+> 原文：<https://lifehacker.com/time-assets-and-debts-a-different-way-of-thinking-abou-1658835903>
 
 大多数生产率策略关注短期效率，比如如何在每天早上或工作日完成更多工作。但是某些战略选择会在更大的范围内影响我们的时间，比如投资和债务。以下是如何从时间资产和时间债务的角度来思考的。
 

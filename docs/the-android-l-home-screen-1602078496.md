@@ -1,6 +1,6 @@
 # Android L 主屏幕
 
-> 原文:[https://lifehacker.com/the-android-l-home-screen-1602078496](https://lifehacker.com/the-android-l-home-screen-1602078496)
+> 原文：<https://lifehacker.com/the-android-l-home-screen-1602078496>
 
 Android L 最好的特性之一是它光滑的新界面。现在，承蒙我的彩色屏幕用户 [empol](http://mycolorscreen.com/empol/) ，你现在就可以在你的主屏幕上看到它。无需等待 OTA 更新。
 

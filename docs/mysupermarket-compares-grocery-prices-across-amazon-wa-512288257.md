@@ -1,6 +1,6 @@
 # MySupermarket 比较了亚马逊、沃尔玛等的杂货价格
 
-> 原文:[https://life hacker . com/mysupermarket-comparises-杂货价格-横跨亚马逊-wa-512288257](https://lifehacker.com/mysupermarket-compares-grocery-prices-across-amazon-wa-512288257)
+> 原文：<https://lifehacker.com/mysupermarket-compares-grocery-prices-across-amazon-wa-512288257>
 
 在一家商店买东西，却发现别的地方更便宜，这是最糟糕的。mySupermarket 旨在通过为您进行比较购物来改变这种情况。
 

@@ -1,6 +1,6 @@
 # 如何像演员一样处理拒绝
 
-> 原文:[https://life hacker . com/how-to-handle-rejection-like-a-actor-1674306239](https://lifehacker.com/how-to-handle-rejection-like-an-actor-1674306239)
+> 原文：<https://lifehacker.com/how-to-handle-rejection-like-an-actor-1674306239>
 
 演员和其他职场人士的区别在于，他们通常花更多的时间寻找下一份工作，而不是实际工作。他们比你的普通员工有更多的被拒绝的经历，这意味着我们可以从他们身上学到一些东西。
 

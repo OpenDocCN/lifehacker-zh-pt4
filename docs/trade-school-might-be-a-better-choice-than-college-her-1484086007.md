@@ -1,6 +1,6 @@
 # 职业学校可能是比大学更好的选择。原因如下
 
-> 原文:[https://life hacker . com/trade-school 可能是比 college-her-1484086007](https://lifehacker.com/trade-school-might-be-a-better-choice-than-college-her-1484086007) 更好的选择
+> 原文：<https://lifehacker.com/trade-school-might-be-a-better-choice-than-college-her-1484086007> 更好的选择
 
 对许多人来说，当他们高中毕业时，上四年大学似乎是一个自然而然的选择。原因很明显——更多的收入。根据国家教育统计中心 的数据，大学学位每年可带来 15000 美元的额外收入，而高中文凭每年可带来 30000 美元的额外收入。三十多年的职业生涯，加起来有 45 万美元的差距。
 

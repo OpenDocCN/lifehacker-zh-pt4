@@ -1,6 +1,6 @@
 # 隐藏在 Windows 命令行中的最佳工具
 
-> 原文:[https://life hacker . com/the-best-tools-hidden-in-windows-command-line-1553193077](https://lifehacker.com/the-best-tools-hidden-in-windows-command-line-1553193077)
+> 原文：<https://lifehacker.com/the-best-tools-hidden-in-windows-command-line-1553193077>
 
 虽然在 Windows 中它可能不总是最好的选择，但是有些事情你只能从命令行来做。我们之前已经讨论过一些命令行要点，比如使用 [tracert](https://lifehacker.com/how-to-troubleshoot-a-flaky-internet-connection-5319976) 对易断的互联网连接进行故障排除，以及使用 [recimg](http://lifehacker.com/how-to-create-custom-windows-8-install-and-refresh-disc-1433371693) 创建自定义的 Windows 恢复映像。这里还有一些你可能应该知道的(如果你还不知道的话)。
 

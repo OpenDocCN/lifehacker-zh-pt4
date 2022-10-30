@@ -1,6 +1,6 @@
 # 如何驯服你的季节性过敏
 
-> 原文:[https://life hacker . com/how-to-tame-your ' s 季节性过敏-1584790575](https://lifehacker.com/how-to-tame-your-seasonal-allergies-1584790575)
+> 原文：<https://lifehacker.com/how-to-tame-your-seasonal-allergies-1584790575>
 
 过敏季节已经开始，如果你患有季节性过敏，你已经抽鼻子和打喷嚏，试图坚持到秋天。别急，有希望！你不必痛苦——有很多选择可以缓解痛苦。让我们看一看它们。
 

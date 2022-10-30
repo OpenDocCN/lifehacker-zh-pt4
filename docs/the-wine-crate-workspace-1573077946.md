@@ -1,6 +1,6 @@
 # 葡萄酒箱工作区
 
-> 原文:[https://lifehacker.com/the-wine-crate-workspace-1573077946](https://lifehacker.com/the-wine-crate-workspace-1573077946)
+> 原文：<https://lifehacker.com/the-wine-crate-workspace-1573077946>
 
 Flickr 用户 Shawn McBee 有一个最不寻常的 DIY 桌子。它由 14 个木制葡萄酒箱和一个配套的桌面门组成。
 

@@ -1,6 +1,6 @@
 # 移除水位线以下的叶子以保持切花开心
 
-> 原文:[https://life hacker . com/remove-leaves-under-the-water-line-to-keep-cut-flowers-1715089274](https://lifehacker.com/remove-leaves-below-the-water-line-to-keep-cut-flowers-1715089274)
+> 原文：<https://lifehacker.com/remove-leaves-below-the-water-line-to-keep-cut-flowers-1715089274>
 
 在家或工作时，像鲜花这样简单的东西就能让你心情愉快。通过移除花盆或花瓶中水位线以下的叶子来延长它们的愉悦效果。
 

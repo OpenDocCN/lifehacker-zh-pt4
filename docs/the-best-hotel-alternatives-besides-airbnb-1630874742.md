@@ -1,6 +1,6 @@
 # 最佳酒店选择(除了 Airbnb)
 
-> 原文:[https://life hacker . com/the-best-hotel-alternatives-against-Airbnb-1630874742](https://lifehacker.com/the-best-hotel-alternatives-besides-airbnb-1630874742)
+> 原文：<https://lifehacker.com/the-best-hotel-alternatives-besides-airbnb-1630874742>
 
 Airbnb 已经成为传统酒店最受欢迎的替代品，但还有其他选择。这里有几项服务分享了很多相同的好处。
 

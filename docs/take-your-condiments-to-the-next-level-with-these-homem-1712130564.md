@@ -1,6 +1,6 @@
 # 用这些自制的味道提升你的调味品到一个新的水平
 
-> 原文:[https://life hacker . com/take-your-conditions-to-next-level with these-homem-1712130564](https://lifehacker.com/take-your-condiments-to-the-next-level-with-these-homem-1712130564)
+> 原文：<https://lifehacker.com/take-your-condiments-to-the-next-level-with-these-homem-1712130564>
 
 任何人都可以从杂货店买到一瓶亨氏或一罐海尔曼，但只需一点点额外的工作，你就可以轻松地制作出自己的调味品，比任何商店购买的主食都好吃得多(也令人印象深刻)。这里有五种令人垂涎的调味品配方，让你的客人惊叹不已，也让主人喜爱你。
 

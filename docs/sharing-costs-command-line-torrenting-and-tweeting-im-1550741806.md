@@ -1,6 +1,6 @@
 # 分担成本、命令行 Torrenting 和推文图片
 
-> 原文:[https://life hacker . com/sharing-costs-command-line-torrenting-and-tweet-im-1550741806](https://lifehacker.com/sharing-costs-command-line-torrenting-and-tweeting-im-1550741806)
+> 原文：<https://lifehacker.com/sharing-costs-command-line-torrenting-and-tweeting-im-1550741806>
 
 读者们提供了与室友分担费用、从命令行进行 torrent-streaming 以及超大化 tweeted 图片的最佳技巧。
 

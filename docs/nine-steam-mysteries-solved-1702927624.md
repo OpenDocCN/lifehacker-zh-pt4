@@ -1,6 +1,6 @@
 # 每个蒸汽用户都应该知道的 14 件事
 
-> 原文:[https://kotaku.com/nine-steam-mysteries-solved-1702927624](https://kotaku.com/nine-steam-mysteries-solved-1702927624)
+> 原文：<https://kotaku.com/nine-steam-mysteries-solved-1702927624>
 
 “Steam WebHelper”到底是什么东西，为什么它总是在我的 PC 上运行？这是一个非常好的问题。
 

@@ -1,6 +1,6 @@
 # 用这些星际壁纸把宇宙放到你的桌面上
 
-> 原文:[https://life hacker . com/put-the-cosmos-on-your-desktop with things-intergalactic-1547272884](https://lifehacker.com/put-the-cosmos-on-your-desktop-with-these-intergalactic-1547272884)
+> 原文：<https://lifehacker.com/put-the-cosmos-on-your-desktop-with-these-intergalactic-1547272884>
 
 我们大多数人不能冒险进入太空，但我们可以从我们的桌面上欣赏它的美丽。这里是一些我们最喜欢的宇宙照片和渲染图。
 

@@ -1,6 +1,6 @@
 # 如何一劳永逸战胜口臭
 
-> 原文:[https://life hacker . com/how-to-failed-口臭一劳永逸-1578897788](https://lifehacker.com/how-to-defeat-bad-breath-once-and-for-all-1578897788)
+> 原文：<https://lifehacker.com/how-to-defeat-bad-breath-once-and-for-all-1578897788>
 
 当有人指出你有口臭或带着会心的微笑礼貌地给你一颗薄荷糖时，这是很尴尬的。除了道歉和骄傲地吞下薄荷糖，你别无选择。但是如果你准备得好一点，你就可以避免将来出现这种尴尬的情况。
 

@@ -1,6 +1,6 @@
 # 云存储摊牌:Google Drive、Dropbox、iCloud 等等对比
 
-> 原文:[https://gizmodo . com/Dropbox-Google-drive-and-more-what-the-best-cloud-ST-1627423823](https://gizmodo.com/dropbox-google-drive-and-more-whats-the-best-cloud-st-1627423823)
+> 原文：<https://gizmodo.com/dropbox-google-drive-and-more-whats-the-best-cloud-st-1627423823>
 
 云存储巨头 Dropbox 刚刚 [大幅削减了](http://gizmodo.com/you-can-now-get-1tb-of-dropbox-pro-storage-for-just-10-1627380415) 的计划价格，以每月 10 美元的价格提供 1TB 的存储。而且不是一个人。在过去的一年里，大多数主要的参与者一直在降价和增加尺寸。那么今天最好的选择是什么呢？
 

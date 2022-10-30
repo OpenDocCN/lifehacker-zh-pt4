@@ -1,6 +1,6 @@
 # 飘渺的桌面
 
-> 原文:[https://lifehacker.com/the-ethereal-desktop-1719329393](https://lifehacker.com/the-ethereal-desktop-1719329393)
+> 原文：<https://lifehacker.com/the-ethereal-desktop-1719329393>
 
 里克·AAP 将这个充满渴望、神秘的桌面放在一起，融合了一点现代艺术和一些简单的皮肤，让它变得有趣而独特。如果你喜欢它的外观，下面是如何在你的桌面上得到同样的效果。
 

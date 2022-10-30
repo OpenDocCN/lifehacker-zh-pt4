@@ -1,6 +1,6 @@
 # 漫威漫画主屏幕
 
-> 原文:[https://life hacker . com/the-marvel-comics-home-screen-1706111471](https://lifehacker.com/the-marvel-comics-home-screen-1706111471)
+> 原文：<https://lifehacker.com/the-marvel-comics-home-screen-1706111471>
 
 万一你对漫威在这个星球上的每个电影院、新闻源和商品都不满意，这个设计将超级英雄巨兽的经典漫画放在你的主屏幕上。
 

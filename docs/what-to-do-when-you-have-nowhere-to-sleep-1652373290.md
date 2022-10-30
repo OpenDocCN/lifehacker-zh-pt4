@@ -1,6 +1,6 @@
 # 旅行时无处可睡怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-when-you have-nowhere-sleep-1652373290](https://lifehacker.com/what-to-do-when-you-have-nowhere-to-sleep-1652373290)
+> 原文：<https://lifehacker.com/what-to-do-when-you-have-nowhere-to-sleep-1652373290>
 
 有时你的旅行计划 [不成功](https://lifehacker.com/how-to-prepare-for-everything-that-can-possibly-go-wron-1652103000) ，你被困在一个无处可住的城市。也许酒店被超额预订，或者你的朋友意外出城，你需要在最后一刻找到一个地方睡觉。当你需要休息的时候，这里有几个方法可以尝试。
 

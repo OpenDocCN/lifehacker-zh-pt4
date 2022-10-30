@@ -1,6 +1,6 @@
 # Pick a Bundle 以 50 美元的价格提供您选择的 10 款 Mac 应用
 
-> 原文:[https://life hacker . com/pick-a-bundle-offers-10-MAC-of-your-choice-for-50-560032505](https://lifehacker.com/pick-a-bundle-offers-10-mac-apps-of-your-choice-for-50-560032505)
+> 原文：<https://lifehacker.com/pick-a-bundle-offers-10-mac-apps-of-your-choice-for-50-560032505>
 
 OS X:软件捆绑提供了一种很好的方式来获得你想要的一系列应用程序的折扣(可能还有一些你不知道的)，但你很少能选择捆绑在你的应用程序中的应用程序。Pick your bundle 允许您从 30 个选项中选择 10 个，并且只需为所有选项支付 50 美元。
 

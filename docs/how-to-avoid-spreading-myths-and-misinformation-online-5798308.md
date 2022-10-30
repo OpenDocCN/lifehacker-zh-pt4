@@ -1,6 +1,6 @@
 # 如何避免在网上传播神话和错误信息
 
-> 原文:[https://life hacker . com/how-to-avoid-spreading-myths-and-misinformation-online-5798308](https://lifehacker.com/how-to-avoid-spreading-myths-and-misinformation-online-5798308)
+> 原文：<https://lifehacker.com/how-to-avoid-spreading-myths-and-misinformation-online-5798308>
 
 即使你从未因不知不觉地将一个都市传说作为事实传播给朋友和家人而让自己难堪，你至少也是这些错误信息的接收方之一。下次一封电子邮件、一条推文或一个链接看起来有点可疑时，以下是如何在你发痒的手指将它发送给你所有的朋友或关注者之前发现它。
 

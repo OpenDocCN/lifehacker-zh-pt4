@@ -1,6 +1,6 @@
 # 这幅图解释了久坐对健康的所有危害
 
-> 原文:[https://life hacker . com/this-graphic-explains-all-the-health-hazards-of-sitting-1595834900](https://lifehacker.com/this-graphic-explains-all-the-health-hazards-of-sitting-1595834900)
+> 原文：<https://lifehacker.com/this-graphic-explains-all-the-health-hazards-of-sitting-1595834900>
 
 到现在，你已经知道 [长时间坐着](https://lifehacker.com/the-sitting-is-killing-you-infographic-shows-just-how-5800720) 就是 [对你的身体不好](http://lifehacker.com/how-sitting-all-day-is-damaging-your-body-and-how-you-c-5879536) 。但是每天坐几个小时到底是怎么回事？《华盛顿邮报》的这张图片解释了。
 

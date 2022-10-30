@@ -1,6 +1,6 @@
 # 开放式墙壁、慢速 Windows 笔记本电脑和电视存储
 
-> 原文:[https://life hacker . com/open-walls-slow-windows-laptops-and-TV-storage-1524688124](https://lifehacker.com/open-walls-slow-windows-laptops-and-tv-storage-1524688124)
+> 原文：<https://lifehacker.com/open-walls-slow-windows-laptops-and-tv-storage-1524688124>
 
 读者提供了他们最好的建议，让你知道你的墙后面有什么，诊断运行缓慢的 Windows 笔记本电脑，以及在你的电视后面储存东西。
 

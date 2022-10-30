@@ -1,6 +1,6 @@
 # 通过关注这四个方面来改革你的预算
 
-> 原文:[https://life hacker . com/reform-your budget by-focusing to the four-area-1486370670](https://lifehacker.com/reform-your-budget-by-focusing-on-these-four-areas-1486370670)
+> 原文：<https://lifehacker.com/reform-your-budget-by-focusing-on-these-four-areas-1486370670>
 
 通常，当我们考虑改变预算时，第一反应是类似这样的:“我不可能再削减了！我已经花了最少的钱了！”我也曾经这么想过。直到我对自己和我的消费变得非常诚实，我才意识到我的消费习惯是如何影响我的生活方式和我的长期财务状况的。
 

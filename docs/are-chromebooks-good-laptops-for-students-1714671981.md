@@ -1,6 +1,6 @@
 # Chromebooks 对学生来说是好的笔记本电脑吗？
 
-> 原文:[https://life hacker . com/are-chrome books-good-laptops-for-students-1714671981](https://lifehacker.com/are-chromebooks-good-laptops-for-students-1714671981)
+> 原文：<https://lifehacker.com/are-chromebooks-good-laptops-for-students-1714671981>
 
 Chromebooks 有很多让人喜欢的地方。它们预算不多，有很多选择，而且功能强大，足以完成任务。如果你是一名学生，正在为学校购买笔记本电脑，它们可能会很有吸引力。对于一些学生来说，Chromebooks 是一个明智的购买选择，但对其他人来说，这是一个等待发生的噩梦。让我们看看你在哪里跌倒。
 

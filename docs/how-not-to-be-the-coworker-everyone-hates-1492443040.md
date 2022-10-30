@@ -1,6 +1,6 @@
 # 如何不成为人人讨厌的同事
 
-> 原文:[https://life hacker . com/how-not-to-be-the-co-worker-every one-hates-1492443040](https://lifehacker.com/how-not-to-be-the-coworker-everyone-hates-1492443040)
+> 原文：<https://lifehacker.com/how-not-to-be-the-coworker-everyone-hates-1492443040>
 
 每个人都知道有一个令人沮丧的哑巴同事 要处理是什么感觉，但是如果你担心那个令人沮丧的同事就是你呢？毕竟，很容易指出别人的缺点，而不对自己的缺点负责。让我们来看看你如何确保你不是办公室里每个人都要计划而不是一起工作的人。
 

@@ -1,6 +1,6 @@
 # 去问 Nerdlove 博士:我丈夫总是让我成为混蛋
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-wheel-make-me-jerk-1723934658](https://kotaku.com/ask-dr-nerdlove-my-husband-always-makes-me-the-jerk-1723934658)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-husband-always-makes-me-the-jerk-1723934658>
 
 你好，互联网！欢迎来到 [问问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个兼职香港骑士的约会专栏。
 

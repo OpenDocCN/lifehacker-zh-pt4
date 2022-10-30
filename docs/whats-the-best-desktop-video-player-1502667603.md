@@ -1,6 +1,6 @@
 # 最好的桌面视频播放器是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-desktop-video-player-1502667603](https://lifehacker.com/whats-the-best-desktop-video-player-1502667603)
+> 原文：<https://lifehacker.com/whats-the-best-desktop-video-player-1502667603>
 
 下载电影和电视节目在你的台式机或笔记本电脑上观看是一回事，拥有一个你信任的视频播放器来处理你扔给它的任何东西是另一回事。最好的软件可以完美地做到这一点，不需要额外的下载或者大量的调整。本周我们想知道你认为哪些是最好的。
 

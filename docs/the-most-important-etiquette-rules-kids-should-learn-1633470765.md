@@ -1,6 +1,6 @@
 # 孩子们应该学习的最重要的礼仪规则
 
-> 原文:[https://life hacker . com/the-most-important-encryption-rules-kids-should-learn-1633470765](https://lifehacker.com/the-most-important-etiquette-rules-kids-should-learn-1633470765)
+> 原文：<https://lifehacker.com/the-most-important-etiquette-rules-kids-should-learn-1633470765>
 
 除了“请”和“谢谢”之外，孩子们还必须学习大量的礼仪“规则”，这样他们才能成长为有礼貌、体面的人。哪些是最重要的？
 

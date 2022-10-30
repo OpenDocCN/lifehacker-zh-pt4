@@ -1,6 +1,6 @@
 # 如何建立个人职业规划，走出没有出路的工作
 
-> 原文:[https://life hacker . com/how-to-build-a-personal-career-plan-and-get-out-of-your-5852033](https://lifehacker.com/how-to-build-a-personal-career-plan-and-get-out-of-your-5852033)
+> 原文：<https://lifehacker.com/how-to-build-a-personal-career-plan-and-get-out-of-your-5852033>
 
 我们以前都听过这句话:“你很幸运能有任何工作。”但是，仅仅因为你有一份工作，并不意味着你必须努力完成一份蹩脚的工作，或者处理你不想要的职业。你可能只是把你的职位看做“只是一份工作”，你不知道你想要什么样的*职业。不一定要这样。*
 

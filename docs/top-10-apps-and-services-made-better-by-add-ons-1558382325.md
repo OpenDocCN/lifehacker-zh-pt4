@@ -1,6 +1,6 @@
 # 10 大应用和服务因附加组件而变得更好
 
-> 原文:[https://life hacker . com/top-10-apps-and-services-make-better-by-add-ons-1558382325](https://lifehacker.com/top-10-apps-and-services-made-better-by-add-ons-1558382325)
+> 原文：<https://lifehacker.com/top-10-apps-and-services-made-better-by-add-ons-1558382325>
 
 互联网上有很多优秀的应用和服务可以帮助你完成任务。单独来看，这些服务是强大的——但是通过一些精选的附加服务，它们是不可阻挡的。这里有 10 个服务，你可以用扩展、脚本和其他应用来启动。
 

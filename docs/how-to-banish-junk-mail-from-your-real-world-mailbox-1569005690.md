@@ -1,6 +1,6 @@
 # 如何从你的(现实世界)邮箱中驱逐垃圾邮件
 
-> 原文:[https://life hacker . com/how-to-放逐来自你现实世界邮箱的垃圾邮件-1569005690](https://lifehacker.com/how-to-banish-junk-mail-from-your-real-world-mailbox-1569005690)
+> 原文：<https://lifehacker.com/how-to-banish-junk-mail-from-your-real-world-mailbox-1569005690>
 
 唯一比垃圾邮件更烦人的是垃圾邮件。它不仅会堵塞你的邮箱，还会浪费大量的纸张。幸运的是，你可以减少这些垃圾。这里有一些建议。
 

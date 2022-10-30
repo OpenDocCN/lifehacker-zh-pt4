@@ -1,6 +1,6 @@
 # 摆脱债务的逐步指南
 
-> 原文:[https://life hacker . com/a-逐步摆脱债务指南-1475515477](https://lifehacker.com/a-step-by-step-guide-to-getting-out-of-debt-1475515477)
+> 原文：<https://lifehacker.com/a-step-by-step-guide-to-getting-out-of-debt-1475515477>
 
 你读这篇文章是因为在某个地方，你花的钱比你所有的钱都多。你可能没能控制住自己的冲动。或者也许你对意外毫无准备，最终因为医疗费用而欠下如此多的债务，以至于你挣扎着度过难关。不管是什么情况，你有债务，它需要被消除。
 

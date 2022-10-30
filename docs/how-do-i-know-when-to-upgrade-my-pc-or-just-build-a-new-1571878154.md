@@ -1,6 +1,6 @@
 # 我如何知道何时升级我的电脑或只需建立一个新的？
 
-> 原文:[https://life hacker . com/how-do-I-know-when-upgrade-my-PC-or-just-build-a-new-1571878154](https://lifehacker.com/how-do-i-know-when-to-upgrade-my-pc-or-just-build-a-new-1571878154)
+> 原文：<https://lifehacker.com/how-do-i-know-when-to-upgrade-my-pc-or-just-build-a-new-1571878154>
 
 亲爱的生活黑客，我的电脑有点旧了。我自己建造了它，但我不确定是否值得升级我的处理器或显卡等个别东西，或者我是否应该从头开始，建立一个新的钻机。我怎么知道什么时候该升级，什么时候该重新开始？
 

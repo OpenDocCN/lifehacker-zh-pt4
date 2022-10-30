@@ -1,6 +1,6 @@
 # 如何建造一台计算机:完全指南
 
-> 原文:[https://life hacker . com/how-to-build-a-computer-the-complete-guide-5828747](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747)
+> 原文：<https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747>
 
 [Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)) : title[![](../Images/044fbadc98edfd613c34b7c809fe4420.png)](https://pcbuild.kinja.com)[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)Building your own desktop PC is a great, geeky pleasure. We'll show you how to do it and everything you need to know to keep your system properly maintained.
 

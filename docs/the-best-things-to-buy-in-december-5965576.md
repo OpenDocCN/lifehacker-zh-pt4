@@ -1,6 +1,6 @@
 # 12 月最好买的东西
 
-> 原文:[https://life hacker . com/the-best-things-to-buy-in-12-5965576](https://lifehacker.com/the-best-things-to-buy-in-december-5965576)
+> 原文：<https://lifehacker.com/the-best-things-to-buy-in-december-5965576>
 
 感觉冷了吗？冬天来了，假期也来了——这使得一些很棒的交易在年底圆满结束。
 

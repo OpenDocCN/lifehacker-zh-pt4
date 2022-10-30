@@ -1,6 +1,6 @@
 # 用这些棒棒糖壁纸庆祝 Android L
 
-> 原文:[https://life hacker . com/practice-Android-l-with-these-lollipop-wallpapers-1646691265](https://lifehacker.com/celebrate-android-l-with-these-lollipop-wallpapers-1646691265)
+> 原文：<https://lifehacker.com/celebrate-android-l-with-these-lollipop-wallpapers-1646691265>
 
 好吧，这是官方消息:Android L 中的“L”代表“棒棒糖”，而最新版本的 Android 将在几周内走向 Nexus 设备。在那之前，用这些棒棒糖壁纸来满足你的甜食爱好吧。
 

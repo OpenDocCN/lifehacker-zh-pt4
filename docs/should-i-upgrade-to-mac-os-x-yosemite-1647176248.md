@@ -1,6 +1,6 @@
 # 该不该升级到 Mac OS X Yosemite？
 
-> 原文:[https://life hacker . com/should-I-upgrade-to-MAC-OS-x-Yosemite-1647176248](https://lifehacker.com/should-i-upgrade-to-mac-os-x-yosemite-1647176248)
+> 原文：<https://lifehacker.com/should-i-upgrade-to-mac-os-x-yosemite-1647176248>
 
 亲爱的生活骇客，约塞米蒂今天要出来了。看起来它有一些很棒的功能，但它仍然是一个升级，任何升级都有可能变坏。你们一直在用它。你怎么想呢?是准备好黄金时间了，还是我应该等待下一个补丁来修复人们不可避免会发现的 bug？
 

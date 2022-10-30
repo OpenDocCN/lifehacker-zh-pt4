@@ -1,6 +1,6 @@
 # 用这些可爱的动物壁纸给你的桌面带来好的氛围
 
-> 原文:[https://life hacker . com/give-your-desktop-good-vibes-with these-awesome-animal-1596047827](https://lifehacker.com/give-your-desktop-good-vibes-with-these-awesome-animal-1596047827)
+> 原文：<https://lifehacker.com/give-your-desktop-good-vibes-with-these-awesome-animal-1596047827>
 
 [<small>在这里下载一些非常有表现力的动物的壁纸。</small>](http://en.wikipedia.org/wiki/Anthropomorphism)
 

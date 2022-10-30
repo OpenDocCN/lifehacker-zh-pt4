@@ -1,6 +1,6 @@
 # 你存档的最方便的 Evernote 笔记是什么？
 
-> 原文:[https://life hacker . com/what-is-the-hand iest-evernote-notes-you-keep-filed-awa-1658439984](https://lifehacker.com/what-are-the-handiest-evernote-notes-you-keep-filed-awa-1658439984)
+> 原文：<https://lifehacker.com/what-are-the-handiest-evernote-notes-you-keep-filed-awa-1658439984>
 
 Evernote(或者真的，任何笔记应用程序)对于 [收集你的想法和组织项目](https://lifehacker.com/ive-been-using-evernote-all-wrong-heres-why-its-actual-5989980) 来说是非常棒的。但它作为一个个人数据库更有用，你可以随时储存任何你可能需要的东西，并且不想丢失。你把哪种东西归档？
 

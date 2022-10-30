@@ -1,6 +1,6 @@
 # 当丧偶的父母又开始约会时，该如何应对
 
-> 原文:[https://deadspin . com/how-to-deal-when your 丧偶父母开始约会-agai-1698557424](https://deadspin.com/how-to-deal-when-your-widowed-parent-starts-dating-agai-1698557424)
+> 原文：<https://deadspin.com/how-to-deal-when-your-widowed-parent-starts-dating-agai-1698557424>
 
 我从没想过我会在有生之年说这句话，但是我妈妈有了一个新的男朋友。当然，就目前而言，她称他为她的“朋友”，但当我看到一个约会对象时，我就知道了。我妈妈有男朋友了。这对我来说是一个新的领域，坦率地说，这很可怕。但会没事的。
 

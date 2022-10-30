@@ -1,6 +1,6 @@
 # 为全新安装辩护
 
-> 原文:[https://life hacker . com/in-defense-of-the-clean-install-1726140915](https://lifehacker.com/in-defense-of-the-clean-install-1726140915)
+> 原文：<https://lifehacker.com/in-defense-of-the-clean-install-1726140915>
 
 如今，新的操作系统可以从网上下载，重启几次就可以安装，或者从应用商店免费“购买”。全新安装似乎不值得花费时间和精力。没有什么比这更偏离事实了。升级可能很方便，但有时最好给自己一个全新的开始，而不仅仅是为了那种“新鲜出炉”的感觉。
 

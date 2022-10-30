@@ -1,6 +1,6 @@
 # 对初露头角的视频制作人最有用的 YouTube 资源
 
-> 原文:[https://life hacker . com/the-most-used-YouTube-resources-for-budding-video-pro-1687973782](https://lifehacker.com/the-most-useful-youtube-resources-for-budding-video-pro-1687973782)
+> 原文：<https://lifehacker.com/the-most-useful-youtube-resources-for-budding-video-pro-1687973782>
 
 制作 YouTube 视频不需要庞大的制作预算。然而，随着网站越来越受欢迎，你更有可能因为更好的质量而受到关注。幸运的是，YouTube 本身有大量的工具来帮助脱颖而出，使视频值得观看。
 

@@ -1,6 +1,6 @@
 # 投资回报最差的大学学位
 
-> 原文:[https://life hacker . com/the-college-degrees with-the-worst-return on-your-mone-1592079715](https://lifehacker.com/the-college-degrees-with-the-worst-return-on-your-mone-1592079715)
+> 原文：<https://lifehacker.com/the-college-degrees-with-the-worst-return-on-your-mone-1592079715>
 
 资助教育是一项昂贵的事业，但有些学位比其他的更物有所值。昂贵的课程不一定会带来财富。
 

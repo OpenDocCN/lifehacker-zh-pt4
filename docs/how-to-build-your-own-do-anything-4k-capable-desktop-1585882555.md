@@ -1,6 +1,6 @@
 # 如何构建自己的无所不能的 4K 桌面
 
-> 原文:[https://life hacker . com/how-to-build-your-own-do-any-4k-capable-desktop-1585882555](https://lifehacker.com/how-to-build-your-own-do-anything-4k-capable-desktop-1585882555)
+> 原文：<https://lifehacker.com/how-to-build-your-own-do-anything-4k-capable-desktop-1585882555>
 
 虽然说 4K 已经正式“着陆”还为时过早，但也不远了。好处是显而易见的，尤其是如果你有 4K 功能的设备。没错:一台 4K 电脑不仅仅是一个像素显示器。这里是你需要的——也是你需要知道的——来构建一个 4K 桌面来处理你扔给它的任何东西。
 

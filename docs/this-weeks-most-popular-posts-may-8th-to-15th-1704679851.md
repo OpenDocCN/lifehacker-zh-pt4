@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:5 月 8 日至 15 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-may-8-to-15-1704679851](https://lifehacker.com/this-weeks-most-popular-posts-may-8th-to-15th-1704679851)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-may-8th-to-15th-1704679851>
 
 本周我们 [学习了 Advil 和 Tylenol](https://lifehacker.com/this-chart-shows-when-you-should-use-ibuprofen-vs-acet-1704147149)[改进了我们的锻炼](http://vitals.lifehacker.com/tweak-these-common-exercises-for-your-body-type-1704004556)[听过你最糟糕的工作面试故事](http://lifehacker.com/the-worst-job-interview-horror-stories-1703736956)[教你在学校没学到的金钱管理技巧](http://lifehacker.com/how-to-manage-your-money-for-those-who-never-learned-g-1703892260) 。这里回顾一下。
 

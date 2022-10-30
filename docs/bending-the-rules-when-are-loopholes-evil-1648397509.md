@@ -1,6 +1,6 @@
 # 扭曲规则:什么时候漏洞是邪恶的？
 
-> 原文:[https://life hacker . com/bending-the-rules-when-when-are-pounds-evil-1648397509](https://lifehacker.com/bending-the-rules-when-are-loopholes-evil-1648397509)
+> 原文：<https://lifehacker.com/bending-the-rules-when-are-loopholes-evil-1648397509>
 
 邪恶以多种形式出现——一些比另一些更灰暗。今天，我们想谈论一种棘手的邪恶:什么时候漏洞、利用和“玩弄系统”是好的？
 

@@ -1,6 +1,6 @@
 # 使用螺丝孔摩擦，完美地将物品挂在墙上
 
-> 原文:[https://life hacker . com/use-a-rubbing-of-screw-holes-to-hang-stuff-on-walls-per-1595762564](https://lifehacker.com/use-a-rubbing-of-screw-holes-to-hang-stuff-on-walls-per-1595762564)
+> 原文：<https://lifehacker.com/use-a-rubbing-of-screw-holes-to-hang-stuff-on-walls-per-1595762564>
 
 当你想挂一个相框或将路由器固定在墙上时，钻多个螺钉可能很难正确。Imgur 用户 fraz9999 说，将纸放在螺丝孔上，用铅笔摩擦，使测量变得容易。
 

@@ -1,6 +1,6 @@
 # 千禧一代:你做租赁是错误的
 
-> 原文:[https://jalopnik . com/millennials-you-do-leasing-wrong-1720141330](https://jalopnik.com/millennials-you-are-doing-leasing-wrong-1720141330)
+> 原文：<https://jalopnik.com/millennials-you-are-doing-leasing-wrong-1720141330>
 
 根据 *Edmunds* 的一项新的 [研究，新千年一代最近比老一代买家更多地租赁汽车。虽然租赁是获得新车并保持每月预算可控的好方法，但一些年轻买家似乎没有以正确的方式对待租赁。](http://www.edmunds.com/about/press/millennials-more-likely-to-lease-vehicles-than-older-americans-reports-edmundscom.html)
 

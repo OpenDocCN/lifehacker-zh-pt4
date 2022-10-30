@@ -1,6 +1,6 @@
 # 六种游戏时可以吃的健康零食
 
-> 原文:[https://life hacker . com/six-healthy-sports-1720068978](https://lifehacker.com/six-healthy-snacks-you-can-eat-while-gaming-1720068978)
+> 原文：<https://lifehacker.com/six-healthy-snacks-you-can-eat-while-gaming-1720068978>
 
 比萨饼卷、薯片和用激浪冲下的热口袋可能会让你的胃安静下来，但这些食物可能对你的腰围(或大脑，就此而言)没有任何好处。相反，用这些更健康但仍然美味的零食交换典型的游戏食物。
 

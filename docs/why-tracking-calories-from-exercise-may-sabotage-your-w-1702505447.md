@@ -1,6 +1,6 @@
 # 为什么计算运动燃烧的卡路里会破坏你的减肥
 
-> 原文:[https://life hacker . com/why-tracking-calories-from-exercise-may-desruption-your-w-1702505447](https://lifehacker.com/why-tracking-calories-from-exercise-may-sabotage-your-w-1702505447)
+> 原文：<https://lifehacker.com/why-tracking-calories-from-exercise-may-sabotage-your-w-1702505447>
 
 我非常喜欢追踪卡路里来减肥。这个过程相当强大...只有一个例外。这里有一个可怕的例子，仅仅是*想到*卡路里就可能抵消你的进步。
 

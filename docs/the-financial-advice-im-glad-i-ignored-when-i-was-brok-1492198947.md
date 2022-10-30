@@ -1,6 +1,6 @@
 # 我很高兴我破产时忽略了这些财务建议
 
-> 原文:[https://life hacker . com/the-financial-advice-im-glad-I-ignored-when-I-was-brok-1492198947](https://lifehacker.com/the-financial-advice-im-glad-i-ignored-when-i-was-brok-1492198947)
+> 原文：<https://lifehacker.com/the-financial-advice-im-glad-i-ignored-when-i-was-brok-1492198947>
 
 许多理财建议都有一个基本缺陷:它假设你有钱。对一些人来说，账单后收入根本不存在(而这个数字是 [只增长](http://www.nytimes.com/2013/01/13/sunday-review/americas-productivity-climbs-but-wages-stagnate.html?_r=0) )。所以，当困难时期使 401(k)成为一个非选项时，你不能遵循你得到的所有建议。
 

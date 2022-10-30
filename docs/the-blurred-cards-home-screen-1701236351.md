@@ -1,6 +1,6 @@
 # 模糊的卡片主屏幕
 
-> 原文:[https://life hacker . com/the-furted-cards-home-screen-1701236351](https://lifehacker.com/the-blurred-cards-home-screen-1701236351)
+> 原文：<https://lifehacker.com/the-blurred-cards-home-screen-1701236351>
 
 卡片是一个很棒的界面元素，它将相关的信息聚集在一起，但它们不一定都是同样无聊的白色，对吧？这种设计将你主屏幕上的重要信息分类成柔软悦目的卡片。
 

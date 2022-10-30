@@ -1,6 +1,6 @@
 # 每间厨房的预算厨房升级将改变你做饭(和吃饭)的方式！)
 
-> 原文:[https://life hacker . com/budget-kitchen-upgrades-for-every-kitchen-that-will-cha-5897045](https://lifehacker.com/budget-kitchen-upgrades-for-every-kitchen-that-will-cha-5897045)
+> 原文：<https://lifehacker.com/budget-kitchen-upgrades-for-every-kitchen-that-will-cha-5897045>
 
 当你拥有所有合适的工具将你的美食梦想变成现实时，烹饪会有趣得多。如果你和你的厨房有争议，问题可能与钝刀或错误的工具有关，需要你承担无聊、重复的任务来制作最简单的东西。我们与一组厨师合作，为您的厨房列出了一系列设备，这些设备将改变您的烹饪和饮食方式，而不会让您倾家荡产。[跳]
 

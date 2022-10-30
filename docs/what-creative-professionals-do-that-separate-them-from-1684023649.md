@@ -1,6 +1,6 @@
 # 有创造力的专业人士做了什么来区分他们和业余爱好者
 
-> 原文:[https://life hacker . com/what-creative-professionals-do-that-separate-them-from-1684023649](https://lifehacker.com/what-creative-professionals-do-that-separate-them-from-1684023649)
+> 原文：<https://lifehacker.com/what-creative-professionals-do-that-separate-them-from-1684023649>
 
 我们最珍视的创造性工作，那些给我们的生活带来最大意义和满足感的东西，常常被推到一边，让给其他优先考虑的事情。无论你在做什么创造性的工作——写作、设计、作曲、编码，或者只是头脑风暴——如果你想取得真正的进步，最重要的是你不要把你的工作当成一种爱好或旁注，而是当成一份工作。
 

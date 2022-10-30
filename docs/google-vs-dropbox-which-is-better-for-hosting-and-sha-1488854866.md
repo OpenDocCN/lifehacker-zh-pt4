@@ -1,6 +1,6 @@
 # Google vs. Dropbox:托管和分享照片哪个更好？
 
-> 原文:[https://life hacker . com/Google-vs-Dropbox-哪个更适合托管-和-sha-1488854866](https://lifehacker.com/google-vs-dropbox-which-is-better-for-hosting-and-sha-1488854866)
+> 原文：<https://lifehacker.com/google-vs-dropbox-which-is-better-for-hosting-and-sha-1488854866>
 
 过去，将照片从手机上传到网上并与他人分享是一件很痛苦的事情，但 Dropbox 和谷歌都因为自动上传而变得非常简单。尽管如此，一旦它们被上传，这两个服务提供不同的存储限制，共享选项和编辑工具。让我们来看看哪一个最适合你的镜头。
 

@@ -1,6 +1,6 @@
 # 我给年轻自己的九条职业建议
 
-> 原文:[https://life hacker . com/nine-nuggets-of-career-advice-id-give-my-younger-sel-1601338834](https://lifehacker.com/nine-nuggets-of-career-advice-id-give-to-my-younger-sel-1601338834)
+> 原文：<https://lifehacker.com/nine-nuggets-of-career-advice-id-give-to-my-younger-sel-1601338834>
 
 当你刚刚开始你的职业生涯时，你是否希望能回到年轻时的自己？虽然你不能回到过去，但你可以向前看。后知之明是 20/20——一些最好的见解来自过去的经验。
 

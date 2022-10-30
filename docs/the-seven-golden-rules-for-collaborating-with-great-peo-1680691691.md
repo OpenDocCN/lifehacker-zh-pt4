@@ -1,6 +1,6 @@
 # 与伟人合作的七条黄金法则
 
-> 原文:[https://life hacker . com/the-seven-golden-rules-for-collaboration-great-peo-1680691691](https://lifehacker.com/the-seven-golden-rules-for-collaborating-with-great-peo-1680691691)
+> 原文：<https://lifehacker.com/the-seven-golden-rules-for-collaborating-with-great-peo-1680691691>
 
 我一直着迷于一些团队如何很好地合作，一些经理如何获得巨大的成果，但是是什么让一个团队出类拔萃呢？在我作为一名员工和现在的经理的经历中，我试图找出如何创建一个高效的团队。
 

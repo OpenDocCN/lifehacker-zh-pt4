@@ -1,6 +1,6 @@
 # 水温、文字布局和新鲜填缝剂
 
-> 原文:[https://life hacker . com/water-temperature-word-layout-and-fresh-caulk-1455477440](https://lifehacker.com/water-temperature-word-layout-and-fresh-caulk-1455477440)
+> 原文：<https://lifehacker.com/water-temperature-word-layout-and-fresh-caulk-1455477440>
 
 读者们提供了他们的最佳建议，让你的淋浴或浴缸每次都有合适的温度，在 Microsoft Word 中把文本或图像放在你想要的地方，并保持管状填缝剂新鲜。
 

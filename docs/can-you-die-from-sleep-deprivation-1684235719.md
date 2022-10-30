@@ -1,6 +1,6 @@
 # 睡眠不足会导致死亡吗？
 
-> 原文:[https://gizmodo . com/can-you-die-from-sleep-deposition-1684235719](https://gizmodo.com/can-you-die-from-sleep-deprivation-1684235719)
+> 原文：<https://gizmodo.com/can-you-die-from-sleep-deprivation-1684235719>
 
 简短的回答？是的，完全睡眠不足几乎肯定会杀死你。不太清楚的是它是如何做到的。
 

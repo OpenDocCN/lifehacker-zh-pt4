@@ -1,6 +1,6 @@
 # Android 5.0 棒棒糖中的所有新东西
 
-> 原文:[https://life hacker . com/updating-all-the-new-stuff-in-androids-l-release-prev-1595928268](https://lifehacker.com/updating-all-the-new-stuff-in-androids-l-release-prev-1595928268)
+> 原文：<https://lifehacker.com/updating-all-the-new-stuff-in-androids-l-release-prev-1595928268>
 
 谷歌已经正式宣布 Android L(以下简称 Lollipop)。虽然我们在 Google I/O 上听到了一些，但还有更多要听的。这是谷歌最新发布的内容。
 

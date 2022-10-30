@@ -1,6 +1,6 @@
 # 你可以在日常生活中使用的四个基本写作原则
 
-> 原文:[https://life hacker . com/four-basic-writing-principles-you-can-use-in-daily-l-1682167077](https://lifehacker.com/four-basic-writing-principles-you-can-use-in-everyday-l-1682167077)
+> 原文：<https://lifehacker.com/four-basic-writing-principles-you-can-use-in-everyday-l-1682167077>
 
 在你把字母写到纸上之前，书写就已经开始了。它涉及批判性思维、沟通和创造力等过程。即使写作感觉像拔牙，你也可以将写作的原则应用到日常生活的许多方面。以下是方法。
 

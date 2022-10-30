@@ -1,6 +1,6 @@
 # 如何在年会之前、之中和之后保持健康
 
-> 原文:[https://life hacker . com/how-to-how-to-stay-health-before-during-and-after-convent-1716150934](https://lifehacker.com/how-to-stay-healthy-before-during-and-after-a-convent-1716150934)
+> 原文：<https://lifehacker.com/how-to-stay-healthy-before-during-and-after-a-convent-1716150934>
 
 每年都有成千上万的人参加会议，谈论科技、游戏、极客文化，甚至编织！到最后， [与会者带着赃物，](https://lifehacker.com/everything-you-need-to-know-to-survive-a-convention-1578952029) 走出来，有时还带着相当讨厌的感冒。保护自己免受臭名昭著的“con crud”的伤害，让这些聚会免受惩罚。
 

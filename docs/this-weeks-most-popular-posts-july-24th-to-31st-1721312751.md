@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:7 月 24 日至 31 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-July-24-to-31-1721312751](https://lifehacker.com/this-weeks-most-popular-posts-july-24th-to-31st-1721312751)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-july-24th-to-31st-1721312751>
 
 Windows 10 于本周发布，我们了解了所有的新功能以及如何升级，讨论了游戏时可以吃的健康零食等等。这里回顾一下。
 

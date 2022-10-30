@@ -1,6 +1,6 @@
 # 我是 LinusTechTips 的 Linus Sebastian，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Linus-sebastian-of-linustechtips-and-this-is-how-I-1719745217](https://lifehacker.com/im-linus-sebastian-of-linustechtips-and-this-is-how-i-1719745217)
+> 原文：<https://lifehacker.com/im-linus-sebastian-of-linustechtips-and-this-is-how-i-1719745217>
 
 如果你是那种喜欢组装电脑的人——选择机箱，找到最好的处理器(和冷却系统，这样你就可以超频)，溺爱所有的组件，以最大限度地发挥你的装备，并用 LED 照明来完成它——那么你可能应该知道 [莱纳斯·塞巴斯蒂安](https://www.youtube.com/user/LinusTechTips) 。
 

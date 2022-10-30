@@ -1,6 +1,6 @@
 # 如何度过一场华丽的正式晚宴
 
-> 原文:[https://life hacker . com/how-to-survive-a-fancy-formal-dinner-1459364166](https://lifehacker.com/how-to-survive-a-fancy-formal-dinner-1459364166)
+> 原文：<https://lifehacker.com/how-to-survive-a-fancy-formal-dinner-1459364166>
 
 每年的这个时候。办公室假日聚会即将到来，家人聚在一起度假，我们慢慢开始害怕充斥在我们日历中的花哨、正式的聚会。放心吧！只要你知道会发生什么，正式场合并不难。稍微有点知识和一些常识，你甚至可以享受它们。以下是方法。
 

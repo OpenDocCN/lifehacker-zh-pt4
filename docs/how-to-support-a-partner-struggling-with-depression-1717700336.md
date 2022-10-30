@@ -1,6 +1,6 @@
 # 如何支持与抑郁症抗争的伴侣
 
-> 原文:[https://life hacker . com/how-to-support-a-partner-fighting-with-depression-1717700336](https://lifehacker.com/how-to-support-a-partner-struggling-with-depression-1717700336)
+> 原文：<https://lifehacker.com/how-to-support-a-partner-struggling-with-depression-1717700336>
 
 当一方(或双方)患有抑郁症时，在一段浪漫的关系中是一个巨大的挑战。抑郁会让你的伴侣显得疏远。他们可能会觉得自己是个负担或者封闭自己。这并不意味着你们的关系有问题。你们两个可以一起解决。以下是方法。
 

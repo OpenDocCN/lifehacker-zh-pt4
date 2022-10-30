@@ -1,6 +1,6 @@
 # 设计师和鼓手的摇摆工作空间
 
-> 原文:[https://life hacker . com/the-designer-and-drummer-rocking-workspace-1563933294](https://lifehacker.com/the-designer-and-drummers-rocking-workspace-1563933294)
+> 原文：<https://lifehacker.com/the-designer-and-drummers-rocking-workspace-1563933294>
 
 黑暗的家庭办公室并不吸引每个人，但如果你正在为音乐和工作建造一个男人洞穴，这是一个鼓舞人心的设置。
 

@@ -1,6 +1,6 @@
 # 高轨道桌面
 
-> 原文:[https://lifehacker.com/the-high-orbit-desktop-1680449151](https://lifehacker.com/the-high-orbit-desktop-1680449151)
+> 原文：<https://lifehacker.com/the-high-orbit-desktop-1680449151>
 
 Flickr 用户 [托马斯](https://www.flickr.com/photos/129859993@N06/) 把这个桌面放在一起，庆祝上个月 [猎户座试飞](http://www.nasa.gov/exploration/systems/orion/) 成功。一个伟大的，简单的壁纸和几个放置得当的皮肤，我们觉得我们也在轨道上。他是这样设置的。
 

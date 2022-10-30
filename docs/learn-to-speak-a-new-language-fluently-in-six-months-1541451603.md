@@ -1,6 +1,6 @@
 # 超越沉浸:用更好的听力技巧学习一门新的语言
 
-> 原文:[https://life hacker . com/6 个月内学会流利地说一门新语言-1541451603](https://lifehacker.com/learn-to-speak-a-new-language-fluently-in-six-months-1541451603)
+> 原文：<https://lifehacker.com/learn-to-speak-a-new-language-fluently-in-six-months-1541451603>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-d0yGdNEWdn0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-d0yGdNEWdn0&start=0) 
 

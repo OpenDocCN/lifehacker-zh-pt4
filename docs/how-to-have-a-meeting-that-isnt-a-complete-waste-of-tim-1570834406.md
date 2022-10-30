@@ -1,6 +1,6 @@
 # 如何开一个不完全浪费时间的会议
 
-> 原文:[https://life hacker . com/how-to-have-a-meeting-the-not-complete-waste-of-Tim-1570834406](https://lifehacker.com/how-to-have-a-meeting-that-isnt-a-complete-waste-of-tim-1570834406)
+> 原文：<https://lifehacker.com/how-to-have-a-meeting-that-isnt-a-complete-waste-of-tim-1570834406>
 
 一个管理不善的会议会耗费时间、精力和金钱，对任何人都没有成效。但这是可以避免的:以下是你在工作小组中开会时应该做和不应该做的事情，不管你是否在主持会议。
 

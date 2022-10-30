@@ -1,6 +1,6 @@
 # 请教专家:关于护肤的一切
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-skin-care-1705219491](https://lifehacker.com/ask-an-expert-all-about-skin-care-1705219491)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-skin-care-1705219491>
 
 向尼尔·舒尔茨医生问好，他是一位获得委员会认证的皮肤科医生，在过去的 30 年里，他在纽约市的上东区经营着自己的诊所公园大道护肤公司。舒尔茨医生专注于普通和美容皮肤科，并在这里回答你的问题！
 

@@ -1,6 +1,6 @@
 # 如何成为一个有效的骗子
 
-> 原文:[https://lifehacker.com/how-to-be-an-effective-liar-5674334](https://lifehacker.com/how-to-be-an-effective-liar-5674334)
+> 原文：<https://lifehacker.com/how-to-be-an-effective-liar-5674334>
 
 说谎被认为是一件坏事，但是让任何人证明他们说过的谎言是正确的，他们可能会这样做。何时何地撒谎由你决定，但如果你不得不这么做，以下是有效的方法。
 

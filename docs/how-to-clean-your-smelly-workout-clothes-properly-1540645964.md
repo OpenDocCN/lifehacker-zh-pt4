@@ -1,6 +1,6 @@
 # 如何正确清洗你的臭运动服
 
-> 原文:[https://life hacker . com/how-to-clean-your-smoked-working-would-right-1540645964](https://lifehacker.com/how-to-clean-your-smelly-workout-clothes-properly-1540645964)
+> 原文：<https://lifehacker.com/how-to-clean-your-smelly-workout-clothes-properly-1540645964>
 
 如果你锻炼，很可能你以前也经历过这种情况:你从健身房或跑步回家，被你运动服散发出的气味震惊了。有时候，不管你用洗衣机洗多少次，用来做运动服的技术材料似乎就是不想洗干净。
 

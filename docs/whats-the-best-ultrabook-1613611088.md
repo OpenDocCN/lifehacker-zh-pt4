@@ -1,6 +1,6 @@
 # 最好的超极本是什么？
 
-> 原文:[https://lifehacker.com/whats-the-best-ultrabook-1613611088](https://lifehacker.com/whats-the-best-ultrabook-1613611088)
+> 原文：<https://lifehacker.com/whats-the-best-ultrabook-1613611088>
 
 无论你是准备返校还是只想利用返校大甩卖，现在都是挑选你想买的笔记本电脑的好时机。本周，我们想知道你认为哪些超极本是最好的，并且在销售滚滚而来时物有所值。
 

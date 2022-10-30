@@ -1,6 +1,6 @@
 # 申请大学助学金的入门指南
 
-> 原文:[https://life hacker . com/a-beginner-s-guide-to-applying-college-financial-ai-1668023420](https://lifehacker.com/a-beginner-s-guide-to-applying-for-college-financial-ai-1668023420)
+> 原文：<https://lifehacker.com/a-beginner-s-guide-to-applying-for-college-financial-ai-1668023420>
 
 说到为大学筹钱，你有很多选择。无论你是申请贷款、获得奖学金或助学金，还是参加勤工俭学，你都需要知道很多。以下是基本情况。
 

@@ -1,6 +1,6 @@
 # 20 多岁时要避免的最大金钱错误
 
-> 原文:[https://life hacker . com/the-maximum-money-missons-to-avoid-1536804874](https://lifehacker.com/the-biggest-money-mistakes-to-avoid-in-your-20s-1536804874)
+> 原文：<https://lifehacker.com/the-biggest-money-mistakes-to-avoid-in-your-20s-1536804874>
 
 去年对我来说是一个里程碑，有很多生活上的变化 。随着我步入 30 多岁，我想回顾一下我 20 多岁的时候可能会很有趣。如果我能回到过去，给 22 岁的自己一些明智的理财建议(当时我刚从大学毕业，在一个新的国家开始读研)，会是什么？
 

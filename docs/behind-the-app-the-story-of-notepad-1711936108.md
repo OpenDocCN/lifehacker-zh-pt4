@@ -1,6 +1,6 @@
 # App 背后:Notepad++的故事
 
-> 原文:[https://life hacker . com/the behind-the-app-the-story-of-notepad-1711936108](https://lifehacker.com/behind-the-app-the-story-of-notepad-1711936108)
+> 原文：<https://lifehacker.com/behind-the-app-the-story-of-notepad-1711936108>
 
 对于许多开发人员、网页设计人员、作家以及只是想快速记笔记的人来说，不起眼的文本编辑器是一个不可或缺的工具。但是有比 notepad.exe 更好的选择； [我们最喜欢的](https://lifehacker.com/five-best-text-editors-1564907215) 之一就是 [记事本++](https://notepad-plus-plus.org/) 。
 

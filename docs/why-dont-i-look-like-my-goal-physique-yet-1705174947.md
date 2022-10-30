@@ -1,6 +1,6 @@
 # 为什么我看起来还不像我的目标体质？
 
-> 原文:[https://life hacker . com/why-don-do-I-look-like-my-goal-physique-yet-1705174947](https://lifehacker.com/why-dont-i-look-like-my-goal-physique-yet-1705174947)
+> 原文：<https://lifehacker.com/why-dont-i-look-like-my-goal-physique-yet-1705174947>
 
 生活中你能控制的事情只有这么多，而你的基因不在其中。除了去健身房和做整形手术，你对自己的外表没有多少发言权——即使这样，你的控制力也可能比你想象的要小。
 

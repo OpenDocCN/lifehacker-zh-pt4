@@ -1,6 +1,6 @@
 # 请教专家:学生时代如何管理兼职工作
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-managing-party-time-jobs-as-a-s-1668199923](https://lifehacker.com/ask-an-expert-all-about-managing-part-time-jobs-as-a-s-1668199923)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-managing-part-time-jobs-as-a-s-1668199923>
 
 对于许多大学生来说，有一份工作只是应付学校作业和课程的另一项责任。钱不会长在树上，奖学金很少能支付你需要的所有费用。大部分同学是怎么管理的？
 

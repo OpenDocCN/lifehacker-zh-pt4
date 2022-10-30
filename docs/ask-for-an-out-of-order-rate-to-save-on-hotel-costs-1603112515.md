@@ -1,6 +1,6 @@
 # 要求一个“不正常”的价格以节省酒店费用
 
-> 原文:[https://life hacker . com/ask-for-a-out-of-order-rate-save-on-hotel-costs-1603112515](https://lifehacker.com/ask-for-an-out-of-order-rate-to-save-on-hotel-costs-1603112515)
+> 原文：<https://lifehacker.com/ask-for-an-out-of-order-rate-to-save-on-hotel-costs-1603112515>
 
 下次你在最后一刻寻找一个便宜的酒店房间时，试着询问一个“不正常”的价格。
 

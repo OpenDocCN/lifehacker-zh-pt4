@@ -1,6 +1,6 @@
 # 脸书到底出了什么问题
 
-> 原文:[https://life hacker . com/whats-really-错在-facebook-1674369938](https://lifehacker.com/whats-really-wrong-with-facebook-1674369938)
+> 原文：<https://lifehacker.com/whats-really-wrong-with-facebook-1674369938>
 
 新年伊始，脸书将改变其隐私政策。像往常一样，每个人都在想他们是否应该为此担心..说到脸书，答案通常是肯定的——但不是出于大多数人认为的原因。
 

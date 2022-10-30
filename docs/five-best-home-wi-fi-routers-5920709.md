@@ -1,6 +1,6 @@
 # 五款最佳家用 Wi-Fi 路由器
 
-> 原文:[https://lifehacker.com/five-best-home-wi-fi-routers-5920709](https://lifehacker.com/five-best-home-wi-fi-routers-5920709)
+> 原文：<https://lifehacker.com/five-best-home-wi-fi-routers-5920709>
 
 一个好的 Wi-Fi 路由器对于任何稳固的家庭网络都是必不可少的。最好的产品覆盖范围很广，可以服务于您家中的所有计算机，提供大量的管理功能，以便您可以控制您的网络，专注于快速通信，其他产品甚至具有高级功能，如 NAS 支持、打印机共享、流量整形等。本周，我们来看看目前市场上最好的五款。
 

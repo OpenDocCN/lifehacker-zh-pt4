@@ -1,6 +1,6 @@
 # 浮动牌主屏幕
 
-> 原文:[https://life hacker . com/the-floating-cards-home-screen-1653035683](https://lifehacker.com/the-floating-cards-home-screen-1653035683)
+> 原文：<https://lifehacker.com/the-floating-cards-home-screen-1653035683>
 
 如果说过去的卡通片教会了我们什么，那就是单色调色板与少量红色搭配得很好。我的彩屏用户 [JRS](http://mycolorscreen.com/jrs/) 在今天的主屏幕设计中采用了这种方式。
 

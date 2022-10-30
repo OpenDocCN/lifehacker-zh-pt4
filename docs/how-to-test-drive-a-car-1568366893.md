@@ -1,6 +1,6 @@
 # 如何试驾汽车
 
-> 原文:[https://jalopnik.com/how-to-test-drive-a-car-1568366893](https://jalopnik.com/how-to-test-drive-a-car-1568366893)
+> 原文：<https://jalopnik.com/how-to-test-drive-a-car-1568366893>
 
 根据最近的一项研究 [显示，大多数人要么放弃试驾，要么很少试驾。](https://jalopnik.com/turns-out-a-lot-of-car-buyers-dont-even-bother-with-tes-1568112788) 我觉得很奇怪，人们会花几个小时试穿衣服，却不认真试穿他们购买的第二贵的东西。以下是我多年来给客户的一些建议，告诉他们如何从试驾中获得最大收益。
 

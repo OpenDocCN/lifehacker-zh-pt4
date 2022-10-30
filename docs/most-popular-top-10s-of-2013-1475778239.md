@@ -1,6 +1,6 @@
 # 2013 年最受欢迎的前十名
 
-> 原文:[https://life hacker . com/most-popular-top-10s-of-of-2013-1475778239](https://lifehacker.com/most-popular-top-10s-of-2013-1475778239)
+> 原文：<https://lifehacker.com/most-popular-top-10s-of-2013-1475778239>
 
 在 Lifehacker，我们每天都分享大量的技巧，所以很容易错过一些。幸运的是，我们定期在每周十大系列的每个类别中收集我们最喜欢的技巧。以下是 2013 年最受欢迎的十大榜单。
 

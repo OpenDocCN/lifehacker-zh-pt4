@@ -1,6 +1,6 @@
 # 使用平均成本投资的利与弊
 
-> 原文:[https://life hacker . com/the-pros-and-cons-of-use-dollar-cost-averaged-to-inv-1629865407](https://lifehacker.com/the-pros-and-cons-of-using-dollar-cost-averaging-to-inv-1629865407)
+> 原文：<https://lifehacker.com/the-pros-and-cons-of-using-dollar-cost-averaging-to-inv-1629865407>
 
 假设你存了一些钱，并准备为你的退休做投资。也许你打算买一些指数基金。你可能害怕一次性投资所有的东西——如果你的股票第二天暴跌怎么办？考虑用美元成本平均法投资。
 

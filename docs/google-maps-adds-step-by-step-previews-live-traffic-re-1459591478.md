@@ -1,6 +1,6 @@
 # 谷歌地图增加了逐步预览，实时交通报告，等等
 
-> 原文:[https://life hacker . com/Google-maps-adds-逐步-预览-实时-交通-re-1459591478](https://lifehacker.com/google-maps-adds-step-by-step-previews-live-traffic-re-1459591478)
+> 原文：<https://lifehacker.com/google-maps-adds-step-by-step-previews-live-traffic-re-1459591478>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-N6DrfYHVcXs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-N6DrfYHVcXs&start=0) 
 

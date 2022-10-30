@@ -1,6 +1,6 @@
 # 如何在墙上安装 USB 插座
 
-> 原文:[https://life hacker . com/how-to-install-a-USB-outlet-in-your-wall-1614756366](https://lifehacker.com/how-to-install-a-usb-outlet-in-your-wall-1614756366)
+> 原文：<https://lifehacker.com/how-to-install-a-usb-outlet-in-your-wall-1614756366>
 
 你有没有发现自己在两个插座上摆弄三四个不同的充电器？通过将传统插座换成包含 USB 端口的插座，可以彻底解决这个问题。
 

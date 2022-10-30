@@ -1,6 +1,6 @@
 # 2014 年最受欢迎的操作指南
 
-> 原文:[https://life hacker . com/2014 年最受欢迎指南-1665176139](https://lifehacker.com/most-popular-how-to-guides-of-2014-1665176139)
+> 原文：<https://lifehacker.com/most-popular-how-to-guides-of-2014-1665176139>
 
 我们在 Lifehacker 涵盖了很多东西，但我们最喜欢的是一个好的循序渐进的指南。这里是我们今年最好的方法，从技术到生活技能，以及介于两者之间的一切。
 

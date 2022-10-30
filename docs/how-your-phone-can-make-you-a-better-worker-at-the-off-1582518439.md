@@ -1,6 +1,6 @@
 # 你的手机如何让你在办公室成为一名更好的员工
 
-> 原文:[https://life hacker . com/how-your-phone-can-make-you-a-better-of-off-1582518439](https://lifehacker.com/how-your-phone-can-make-you-a-better-worker-at-the-off-1582518439)
+> 原文：<https://lifehacker.com/how-your-phone-can-make-you-a-better-worker-at-the-off-1582518439>
 
 在办公室，不要认为电脑是你唯一需要的工具。如果使用得当，你的智能手机可以帮助你更好地驾驭职场生活。
 

@@ -1,6 +1,6 @@
 # 当你嫉妒同事时该怎么办
 
-> 原文:[https://life hacker . com/what-do-what-when-you-envy-a-worker-1682581675](https://lifehacker.com/what-to-do-when-you-envy-a-coworker-1682581675)
+> 原文：<https://lifehacker.com/what-to-do-when-you-envy-a-coworker-1682581675>
 
 它发生在我们最好的人身上——我们的一个同事完成了一些伟大的事情，尽管我们应该为他们的成功感到高兴，但我们不禁希望我们处于他们的位置。当你在工作中感到羡慕别人时，你会怎么做？
 

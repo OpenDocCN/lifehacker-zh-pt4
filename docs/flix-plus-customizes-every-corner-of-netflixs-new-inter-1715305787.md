@@ -1,6 +1,6 @@
 # Flix Plus 定制了网飞新界面的每个角落
 
-> 原文:[https://life hacker . com/flix-plus-customizes-every-corner-of-netflixs-new-inter-1715305787](https://lifehacker.com/flix-plus-customizes-every-corner-of-netflixs-new-inter-1715305787)
+> 原文：<https://lifehacker.com/flix-plus-customizes-every-corner-of-netflixs-new-inter-1715305787>
 
 Chrome: [Flix Plus](https://lifehacker.com/flix-plus-customizes-netflix-to-your-hearts-desire-1640968001) ，Lifehacker 原针对网飞的 Chrome 扩展，已全面更新定制 [网飞新布局](https://lifehacker.com/netflix-is-getting-its-first-big-web-interface-update-i-1711442438) 。你可以隐藏剧透，显示烂番茄评级，等等。这是最新消息。
 

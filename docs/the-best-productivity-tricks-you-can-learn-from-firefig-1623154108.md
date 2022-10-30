@@ -1,6 +1,6 @@
 # 你能从消防员那里学到的最好的生产力技巧
 
-> 原文:[https://life hacker . com/the-best-productivity-tricks-you-can-learn-from-fire fig-1623154108](https://lifehacker.com/the-best-productivity-tricks-you-can-learn-from-firefig-1623154108)
+> 原文：<https://lifehacker.com/the-best-productivity-tricks-you-can-learn-from-firefig-1623154108>
 
 消防队员总是随叫随到，随时准备处理潜在的危险情况。但是，尽管他们的工作可能承载着巨大的压力和责任，他们的方法和技巧仍然可以应用到你的工作和日常生活中。
 

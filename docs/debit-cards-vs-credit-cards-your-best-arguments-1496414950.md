@@ -1,6 +1,6 @@
 # 借记卡与信用卡:你最好的论据
 
-> 原文:[https://life hacker . com/debit-cards-vs-credit-cards-your-best-arguments-1496414950](https://lifehacker.com/debit-cards-vs-credit-cards-your-best-arguments-1496414950)
+> 原文：<https://lifehacker.com/debit-cards-vs-credit-cards-your-best-arguments-1496414950>
 
 信用卡和借记卡都有各自的优势，但在金融有用性和安全性的全面战争中，一方必须取得胜利。会是哪一个？以下是你最好的论据。
 

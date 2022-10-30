@@ -1,6 +1,6 @@
 # 最佳微软应用...安卓？
 
-> 原文:[https://life hacker . com/the-best-Microsoft-apps-for-Android-1652642962](https://lifehacker.com/the-best-microsoft-apps-for-android-1652642962)
+> 原文：<https://lifehacker.com/the-best-microsoft-apps-for-android-1652642962>
 
 生态系统锁定是移动行业的一个普遍问题，每个制造商都更喜欢自己的平台，而不是其他平台。不过，偶尔也会有例外。比如微软为 Android 开发的所有平台的应用程序集合。
 

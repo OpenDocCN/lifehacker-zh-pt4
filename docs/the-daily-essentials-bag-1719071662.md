@@ -1,6 +1,6 @@
 # 日常必需品包
 
-> 原文:[https://lifehacker.com/the-daily-essentials-bag-1719071662](https://lifehacker.com/the-daily-essentials-bag-1719071662)
+> 原文：<https://lifehacker.com/the-daily-essentials-bag-1719071662>
 
 你不需要总是带着一大堆东西到处跑。举个例子，机械工程师 Adrian 与 daily Carry 分享了他的日常工作包，里面只有少量的物品。
 

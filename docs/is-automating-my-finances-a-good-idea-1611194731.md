@@ -1,6 +1,6 @@
 # 让我的财务自动化是个好主意吗？
 
-> 原文:[https://life hacker . com/is-automating-my-financies-a-good-idea-1611194731](https://lifehacker.com/is-automating-my-finances-a-good-idea-1611194731)
+> 原文：<https://lifehacker.com/is-automating-my-finances-a-good-idea-1611194731>
 
 亲爱的二分钱，理财专家真的很喜欢理财自动化。但是这总是一种聪明吗？比如我想开始投资，但是有点不知所措，不太懂。“设置它，然后忘记它”的方法经常被建议给像我这样的初学者。这听起来很棒，它会给我时间去关注其他事情。但这是让我的钱获得回报的最好方式吗？
 

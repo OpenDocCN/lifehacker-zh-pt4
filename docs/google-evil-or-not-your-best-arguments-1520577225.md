@@ -1,6 +1,6 @@
 # 谷歌，邪恶与否:你最好的论据
 
-> 原文:[https://life hacker . com/Google-evil-or-not-your-best-arguments-1520577225](https://lifehacker.com/google-evil-or-not-your-best-arguments-1520577225)
+> 原文：<https://lifehacker.com/google-evil-or-not-your-best-arguments-1520577225>
 
 “不作恶”长期以来一直是谷歌的非官方座右铭，但近年来，人们怀疑他们是否遵守了这一口号。所以 [我们问你怎么看](https://lifehacker.com/google-evil-or-not-1517275069) 。以下是你最好的论据。
 

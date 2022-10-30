@@ -1,6 +1,6 @@
 # iCloud 标签页、收件箱回执和 Siri 语音
 
-> 原文:[https://life hacker . com/I cloud-tabs-inbox-receipts-and-Siri-voices-1542540256](https://lifehacker.com/icloud-tabs-inbox-receipts-and-siri-voices-1542540256)
+> 原文：<https://lifehacker.com/icloud-tabs-inbox-receipts-and-siri-voices-1542540256>
 
 读者提供了在 Chrome 中查看 iCloud 标签页、在收件箱中查找收据以及在一个地方查看所有 32 种 Siri 语音的最佳技巧。
 

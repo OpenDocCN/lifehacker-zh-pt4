@@ -1,6 +1,6 @@
 # 觉得不好意思运动的时候怎么办
 
-> 原文:[https://life hacker . com/1614164783](https://lifehacker.com/what-to-do-when-you-feel-too-embarrassed-to-exercise-1614164783)
+> 原文：<https://lifehacker.com/what-to-do-when-you-feel-too-embarrassed-to-exercise-1614164783>
 
 第一次走进健身房可能是一次尴尬的经历。你可能会自我意识到你身材太差，而其他人看起来都很健康，或者你穿错了衣服，或者你可能只是觉得格格不入。但重要的是要熬过偏执，开始锻炼。
 

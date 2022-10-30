@@ -1,6 +1,6 @@
 # 最好的 iPhone 6 或 6 Plus 保护套是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-iphone-6-or-6-plus-case-1643884748](https://lifehacker.com/whats-the-best-iphone-6-or-6-plus-case-1643884748)
+> 原文：<https://lifehacker.com/whats-the-best-iphone-6-or-6-plus-case-1643884748>
 
 随着 iPhone 6 和 6 Plus 的推出，市场上有大量新的保护套，可以保护这些闪亮的新手机免受跌落、坠落甚至弯曲的影响。本周，我们想知道哪些是你认为最好的——或者是你认为最安全的新智能手机。
 

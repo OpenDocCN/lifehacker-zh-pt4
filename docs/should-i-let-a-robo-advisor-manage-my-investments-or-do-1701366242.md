@@ -1,6 +1,6 @@
 # 我应该让机器人顾问管理我的投资还是自己来做？
 
-> 原文:[https://life hacker . com/should-I-let-a-robo-advisor-manage-my-investments-or-do-1701366242](https://lifehacker.com/should-i-let-a-robo-advisor-manage-my-investments-or-do-1701366242)
+> 原文：<https://lifehacker.com/should-i-let-a-robo-advisor-manage-my-investments-or-do-1701366242>
 
 亲爱的 Lifehacker，
 我一直听说自动化投资服务，如和 [财富前线](http://wealthfront.com/) 。它们看起来很棒，也是最简单的投资方式。但是这些所谓的机器人顾问比 DIY 方法更好吗？

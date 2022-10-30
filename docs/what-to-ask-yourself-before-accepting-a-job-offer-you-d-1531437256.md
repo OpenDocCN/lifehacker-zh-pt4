@@ -1,6 +1,6 @@
 # 在接受一份你不喜欢的工作之前，你应该问自己什么
 
-> 原文:[https://life hacker . com/what-to-quest-you-end-1531437256](https://lifehacker.com/what-to-ask-yourself-before-accepting-a-job-offer-you-d-1531437256)
+> 原文：<https://lifehacker.com/what-to-ask-yourself-before-accepting-a-job-offer-you-d-1531437256>
 
 假设你刚刚面试完几个雇主。在所有的 [面试](http://www.glassdoor.com/Interview/index.htm) 中，你收到了一份工作邀请。这不是你想要的。你接受吗？
 

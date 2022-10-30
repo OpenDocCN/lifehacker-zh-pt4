@@ -1,6 +1,6 @@
 # 最好的 Nexus 7 保护套是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-nexus-7-case-1486342782](https://lifehacker.com/whats-the-best-nexus-7-case-1486342782)
+> 原文：<https://lifehacker.com/whats-the-best-nexus-7-case-1486342782>
 
 Nexus 7 可以说是市场上最受欢迎和功能最强大的 Android 平板电脑，但如果你想让你的投资持续下去，你就需要一个像样的袖子、外壳或对开本。本周，我们想知道你认为哪些是最好的。
 

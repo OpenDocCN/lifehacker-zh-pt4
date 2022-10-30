@@ -1,6 +1,6 @@
 # 为了健身的成功，把你的感觉和行动分开
 
-> 原文:[https://life hacker . com/decouple-your-feeling-from-your-action-for-fitness-su-1687543731](https://lifehacker.com/decouple-your-feelings-from-your-actions-for-fitness-su-1687543731)
+> 原文：<https://lifehacker.com/decouple-your-feelings-from-your-actions-for-fitness-su-1687543731>
 
 我生命中的前 20 年都在为自己的想法“感觉糟糕”。肥胖的我会开车经过一家麦当劳，并因感到饥饿而产生巨大的罪恶感。类似地，在一周完美的节食后，突袭我冰箱的诱惑导致了道德失败的感觉。但是感觉并不重要，重要的是行动。
 

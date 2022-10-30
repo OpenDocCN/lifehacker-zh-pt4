@@ -1,6 +1,6 @@
 # 臃肿的桌面应用程序的最佳命令行替代品
 
-> 原文:[https://life hacker . com/the-best-command-line-replacements-for-bulged-desktop-1675386357](https://lifehacker.com/the-best-command-line-replacements-for-bloated-desktop-1675386357)
+> 原文：<https://lifehacker.com/the-best-command-line-replacements-for-bloated-desktop-1675386357>
 
 命令行工具通常是为我们当中最古怪的人保留的，但是它们中的许多实际上比桌面工具更好。事实上，许多更容易使用，浪费更少的资源，往往有更多的键盘快捷键。让我们来看看一些我们最喜欢的。
 

@@ -1,6 +1,6 @@
 # 最好的便携耳机放大器是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-portable-headphone-amp-1722350176](https://lifehacker.com/whats-the-best-portable-headphone-amp-1722350176)
+> 原文：<https://lifehacker.com/whats-the-best-portable-headphone-amp-1722350176>
 
 如果你有一副便携或廉价的耳机，并在旅途中使用它们，你可能需要一个便携放大器来放大它们的声音。本周我们寻找最好的，我们很好奇你用什么来搭配你的。
 

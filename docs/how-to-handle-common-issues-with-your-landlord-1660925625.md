@@ -1,6 +1,6 @@
 # 如何处理与房东的常见问题
 
-> 原文:[https://life hacker . com/how-to-handle-common-issues-with your-房东-1660925625](https://lifehacker.com/how-to-handle-common-issues-with-your-landlord-1660925625)
+> 原文：<https://lifehacker.com/how-to-handle-common-issues-with-your-landlord-1660925625>
 
 以下是一些鲜为人知的房东违反房东-房客法并最终让你损失金钱的方式——以及一些如何在不过河拆桥的情况下保留你应得的东西的建议。
 

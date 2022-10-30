@@ -1,6 +1,6 @@
 # 我是卡尔·裴，一加的联合创始人，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Carl-Pei-oneplus-and-this-is-how-I-w-1688930538](https://lifehacker.com/im-carl-pei-co-founder-of-oneplus-and-this-is-how-i-w-1688930538)
+> 原文：<https://lifehacker.com/im-carl-pei-co-founder-of-oneplus-and-this-is-how-i-w-1688930538>
 
 OnePlus One 对平价安卓手机市场造成了一点震动:它是无合约的，运行 Cyanogenmod，以合理的价格提供良好的硬件——它不是在硅谷设计的，而是来自深圳。
 

@@ -1,6 +1,6 @@
 # 谷歌员工的日常钱包
 
-> 原文:[https://life hacker . com/the-Google-employees-daily-purchase-1601102345](https://lifehacker.com/the-google-employees-everyday-purse-1601102345)
+> 原文：<https://lifehacker.com/the-google-employees-everyday-purse-1601102345>
 
 在任何科技公司工作都需要混合使用各种日常设备。谷歌高级政策分析师 Lauren Skelly 与 daily Carry 分享了她的日常包包。
 

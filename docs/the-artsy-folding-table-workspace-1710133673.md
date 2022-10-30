@@ -1,6 +1,6 @@
 # 充满艺术气息的折叠桌工作空间
 
-> 原文:[https://life hacker . com/the-artsy-folding-table-workspace-1710133673](https://lifehacker.com/the-artsy-folding-table-workspace-1710133673)
+> 原文：<https://lifehacker.com/the-artsy-folding-table-workspace-1710133673>
 
 一幅画、一尊雕像、一株植物和一盏灯——除了电脑设备之外，这是工作空间中仅有的四样东西...折叠桌和折叠椅。这是一个不同寻常的物品组合，但看起来干净优雅。
 

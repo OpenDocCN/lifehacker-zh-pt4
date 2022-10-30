@@ -1,6 +1,6 @@
 # 使用 Google+照片可以做的所有精彩事情
 
-> 原文:[https://life hacker . com/all-the-awesome-stuff-you-can-do-with-Google-photos-1590108193](https://lifehacker.com/all-the-awesome-stuff-you-can-do-with-google-photos-1590108193)
+> 原文：<https://lifehacker.com/all-the-awesome-stuff-you-can-do-with-google-photos-1590108193>
 
 即使你不在社交方面使用 Google+,你也可能想仅仅因为它出色的照片功能而使用它。从无限的照片存储到自动增强和强大的照片编辑工具，以下是你可以在 Google+上处理照片的事情，这些事情你可能会错过。
 

@@ -1,6 +1,6 @@
 # 谦逊、善良和冷静会让你的生活变得更容易
 
-> 原文:[https://life hacker . com/how-be humble-kind-and-calm-will-make-your life-ea-1561763720](https://lifehacker.com/how-being-humble-kind-and-calm-will-make-your-life-ea-1561763720)
+> 原文：<https://lifehacker.com/how-being-humble-kind-and-calm-will-make-your-life-ea-1561763720>
 
 你一生都在听这句话:谦逊、善良和冷静是“正确的事情”。但是如果这还不足以说服你，考虑一下这个:谦逊、善良和冷静实际上可以帮助你在生活中取得成功。
 

@@ -1,6 +1,6 @@
 # 适合您的新游戏系统、手机或平板电脑的最佳游戏
 
-> 原文:[https://kotaku . com/the-best-games-to-get-for-your-new-gaming-system-phone-1674928052](https://kotaku.com/the-best-games-to-get-for-your-new-gaming-system-phone-1674928052)
+> 原文：<https://kotaku.com/the-best-games-to-get-for-your-new-gaming-system-phone-1674928052>
 
 今天为圣诞节买一个新的游戏系统？还是玩游戏的新手机或平板？我们为你提供了一些建议，这样你就可以玩一些游戏了(或许在这个过程中可以忽略你那些更烦人的亲戚)。
 

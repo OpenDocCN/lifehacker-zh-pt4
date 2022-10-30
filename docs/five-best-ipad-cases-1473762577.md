@@ -1,6 +1,6 @@
 # 五款最佳 iPad 保护套
 
-> 原文:[https://lifehacker.com/five-best-ipad-cases-1473762577](https://lifehacker.com/five-best-ipad-cases-1473762577)
+> 原文：<https://lifehacker.com/five-best-ipad-cases-1473762577>
 
 如果你刚刚买了一个新的 iPad Air 2 或 iPad Mini，或者如果你正在为已经买过的人购物，你可能会想要一个盒子来在旅途中、在你的包里或在你的桌子上安全地保存它。无论是坚固的外壳、柔软的对开本还是键盘外壳，您都有多种选择。根据你的提名，这里有五个最好的。
 

@@ -1,6 +1,6 @@
 # 我是 Scott Olechowski，Plex 的联合创始人，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Scott-olechowski-the-plex-and-this-is-ho-1685226003 联合创始人](https://lifehacker.com/im-scott-olechowski-co-founder-of-plex-and-this-is-ho-1685226003)
+> 原文：<https://lifehacker.com/im-scott-olechowski-co-founder-of-plex-and-this-is-ho-1685226003>
 
 Plex 是一种很好的方式来组织你的媒体，并在你所在的设备之间传输，碰巧的是，联合创始人 Scott Olechowski 在他的工作流程中应用了类似的思维模式。有了一个在线协作的分布式团队，斯科特和他的团队无论身在何处都可以承担应用程序的开发。我们采访了 Scott，以了解他的移动工作流以及他的团队如何跨越时区和平台进行协作。
 

@@ -1,6 +1,6 @@
 # 2013 年最受欢迎的 Mac 下载和帖子
 
-> 原文:[https://life hacker . com/most-popular-MAC-downloads-and-post-of-2013-1479756456](https://lifehacker.com/most-popular-mac-downloads-and-posts-of-2013-1479756456)
+> 原文：<https://lifehacker.com/most-popular-mac-downloads-and-posts-of-2013-1479756456>
 
 又是一年，又是一个版本的 OS X，不管你是爱小牛还是恨小牛，这都是 Mac 的大年。以下是我们关于苹果电脑的一些最好的帖子。
 

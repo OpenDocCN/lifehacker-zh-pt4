@@ -1,6 +1,6 @@
 # 遵循弗兰克·辛纳屈原则攀登职业阶梯
 
-> 原文:[https://life hacker . com/climb-the-career-ladder-using-the-frank-Sinatra-princip-1633984463](https://lifehacker.com/climb-the-career-ladder-using-the-frank-sinatra-princip-1633984463)
+> 原文：<https://lifehacker.com/climb-the-career-ladder-using-the-frank-sinatra-princip-1633984463>
 
 在许多行业中，即使是最有才华的人也必须“缴纳会费”才能发挥作用。虽然在驾驶帆船之前掌握打结的基本知识是有价值的，但令人遗憾的是，武断的时间要求可能会堵塞一个组织的人才引擎，或者阻碍一个有创造力的人的职业生涯。
 

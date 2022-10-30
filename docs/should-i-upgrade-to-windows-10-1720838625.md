@@ -1,6 +1,6 @@
 # 该不该升级到 Windows 10？
 
-> 原文:[https://life hacker . com/should-I-upgrade-to-windows-10-1720838625](https://lifehacker.com/should-i-upgrade-to-windows-10-1720838625)
+> 原文：<https://lifehacker.com/should-i-upgrade-to-windows-10-1720838625>
 
 Windows 10 终于来了。你已经看到了 [的一些最好的新功能](https://lifehacker.com/the-best-new-features-of-windows-10-1680904614) ，甚至听到了每天使用是什么感觉。但是你可能想知道你是否应该升级。对一些人来说，它是免费的，是一个伟大的更新，也是一个必然的结果。对其他人来说，最好等待，或者考虑其他选择。让我们看看你在哪里跌倒。
 

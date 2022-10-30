@@ -1,6 +1,6 @@
 # 在网上付钱给其他人的最好方式是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-way-pay-other-people-online-1707288290](https://lifehacker.com/whats-the-best-way-to-pay-other-people-online-1707288290)
+> 原文：<https://lifehacker.com/whats-the-best-way-to-pay-other-people-online-1707288290>
 
 当你需要快速汇款给任何人时，无论是开支票还是付房租，你会选择哪种服务？你有很多很棒也很方便的选择，但是这周我们想听听你最喜欢的。
 

@@ -1,6 +1,6 @@
 # 应用商店如何改变我们购买软件的方式，是好是坏
 
-> 原文:[https://life hacker . com/how-app-stores-changed-the-way-we-buy-software-for-bet-1532988357](https://lifehacker.com/how-app-stores-changed-the-way-we-buy-software-for-bet-1532988357)
+> 原文：<https://lifehacker.com/how-app-stores-changed-the-way-we-buy-software-for-bet-1532988357>
 
 我们有应用商店已经有一段时间了，它们已经成为我们许多人购买软件的主要方式。然而，当 [第一次流行起来的时候，](https://lifehacker.com/why-the-mac-app-store-sucks-5726764) 却招来了不少批评。现在我们有了时间的视角，事情发生了怎样的变化？应用商店让软件变得更好还是更差了？我认为两者都有一点。
 

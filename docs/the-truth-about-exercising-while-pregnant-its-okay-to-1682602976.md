@@ -1,6 +1,6 @@
 # 怀孕期间锻炼的真相:努力工作没关系
 
-> 原文:[https://life hacker . com/the-truth-about exercise-that-of-okay-by-1682602976](https://lifehacker.com/the-truth-about-exercising-while-pregnant-its-okay-to-1682602976)
+> 原文：<https://lifehacker.com/the-truth-about-exercising-while-pregnant-its-okay-to-1682602976>
 
 有时候，似乎孕妇唯一的运动选择就是轻松游泳、温和瑜伽和在枕头上小心行走。但是如果你对这些不满意，你很幸运:怀孕期间许多活动比旁观者甚至你的医生可能意识到的更安全。
 

@@ -1,6 +1,6 @@
 # 问专家:关于自由摄影和摄像
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-freelance-photography-and-video-1651237730](https://lifehacker.com/ask-an-expert-all-about-freelance-photography-and-vide-1651237730)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-freelance-photography-and-vide-1651237730>
 
 你已经掌握了你的镜头，你知道闭着眼睛用哪个 f-stop，你知道如何每次都拍出完美的镜头。现在怎么办？许多业余摄影师将自由职业视为用照片赚点钱的一种方式，但是从哪里开始呢？
 

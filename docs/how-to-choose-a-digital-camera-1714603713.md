@@ -1,6 +1,6 @@
 # 如何选择数码相机
 
-> 原文:[https://gizmodo . com/how-to-choose-a-digital-camera-1714603713](https://gizmodo.com/how-to-choose-a-digital-camera-1714603713)
+> 原文：<https://gizmodo.com/how-to-choose-a-digital-camera-1714603713>
 
 数码相机正努力抵制智能手机摄影的增长。但是很少有决定比在数百台数码相机中挑选合适的更复杂。
 

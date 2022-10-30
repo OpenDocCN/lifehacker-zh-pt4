@@ -1,6 +1,6 @@
 # 自动倒水:它们能做出更好的咖啡吗？
 
-> 原文:[https://life hacker . com/automatic-pour-overs-do-they-make-a-better-cup-of-coff-1583005950](https://lifehacker.com/automatic-pour-overs-do-they-make-a-better-cup-of-coff-1583005950)
+> 原文：<https://lifehacker.com/automatic-pour-overs-do-they-make-a-better-cup-of-coff-1583005950>
 
 市场上有新一代的咖啡机，它们都承诺早上冲泡的咖啡和你现在的方法一样好，甚至更好——不管那是什么。它们被称为“自动倒出来的咖啡”，它们结合了滴下咖啡的便利和倒出来的咖啡的细致。让我们看看他们有什么好的。
 

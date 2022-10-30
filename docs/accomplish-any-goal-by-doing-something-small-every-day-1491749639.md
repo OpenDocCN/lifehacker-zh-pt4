@@ -1,6 +1,6 @@
 # 每天通过做一些小事来实现任何目标
 
-> 原文:[https://life hacker . com/complete-any-goal-by-doing-some-day-small-some-day-1491749639](https://lifehacker.com/accomplish-any-goal-by-doing-something-small-every-day-1491749639)
+> 原文：<https://lifehacker.com/accomplish-any-goal-by-doing-something-small-every-day-1491749639>
 
 做任何有价值的事情都需要时间，但谢天谢地，我们不需要一次就做完。所以今年，把这一年作为一个整体忘掉吧。忘记几个月，忘记几周。
 

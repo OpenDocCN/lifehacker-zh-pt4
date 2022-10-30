@@ -1,6 +1,6 @@
 # 更好的小睡，短链接和快速阅读
 
-> 原文:[https://life hacker . com/better-naps-short-links-and-speed-reading-1545812209](https://lifehacker.com/better-naps-short-links-and-speed-reading-1545812209)
+> 原文：<https://lifehacker.com/better-naps-short-links-and-speed-reading-1545812209>
 
 读者提供了他们最好的建议，让你有充分的午睡时间，在网页上分享精选的内容，以及快速阅读网页。
 

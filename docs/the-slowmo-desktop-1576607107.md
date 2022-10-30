@@ -1,6 +1,6 @@
 # Slowmo 桌面
 
-> 原文:[https://lifehacker.com/the-slowmo-desktop-1576607107](https://lifehacker.com/the-slowmo-desktop-1576607107)
+> 原文：<https://lifehacker.com/the-slowmo-desktop-1576607107>
 
 Flickr 用户 [何塞](https://www.flickr.com/photos/59423015@N05/) 组装了这个好看的 Linux Mint 桌面，桌面上有媒体控件，底部有一个简单的启动器，还有足够的工作空间。他是这样设计的。
 

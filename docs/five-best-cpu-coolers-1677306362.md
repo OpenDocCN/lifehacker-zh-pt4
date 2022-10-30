@@ -1,6 +1,6 @@
 # 五个最好的 CPU 冷却器
 
-> 原文:[https://lifehacker.com/five-best-cpu-coolers-1677306362](https://lifehacker.com/five-best-cpu-coolers-1677306362)
+> 原文：<https://lifehacker.com/five-best-cpu-coolers-1677306362>
 
 如果您正在寻求超频、构建静音 PC，或者只是让您的设备以最高性能运行，您可能需要的不仅仅是为您的处理器提供库存冷却。有吨的售后 CPU 冷却器，但它可以很难选择一个好的。我们问过你，根据你的提名，这里有五个最好的选择。
 

@@ -1,6 +1,6 @@
 # 应用背后:栅栏的故事
 
-> 原文:[https://life hacker . com/behind-the-app-the-story-of-fences-1694769293](https://lifehacker.com/behind-the-app-the-story-of-fences-1694769293)
+> 原文：<https://lifehacker.com/behind-the-app-the-story-of-fences-1694769293>
 
 你可能意识不到你需要 [栅栏](http://www.stardock.com/products/fences/) ，直到你使用它。这是一个如此简单的应用程序，可以帮助你将桌面图标组织到不同的空间——是的，隔离不同的类别来组织你的杂物。
 

@@ -1,6 +1,6 @@
 # 生病后生存的十大诀窍
 
-> 原文:[https://life hacker . com/top-10-tricks-to-survive-生病-1527865727](https://lifehacker.com/top-10-tricks-to-survive-getting-sick-1527865727)
+> 原文：<https://lifehacker.com/top-10-tricks-to-survive-getting-sick-1527865727>
 
 流感季节正在如火如荼地进行，无论你是在与疾病作斗争还是试图预防疾病，这里有一些事情你可以像冠军一样度过难关。
 

@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名航拍摄影师我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-a-air-摄影师-1709894240](https://lifehacker.com/career-spotlight-what-i-do-as-an-aerial-photographer-1709894240)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-an-aerial-photographer-1709894240>
 
 有些观点你只能从空中获得。虽然无人机让业余爱好者和爱好者比以往任何时候都更容易进行航空摄影，但有时这项工作的唯一工具是一架塞斯纳和一架全画幅相机。
 

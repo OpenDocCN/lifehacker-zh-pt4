@@ -1,6 +1,6 @@
 # 博士生的书包
 
-> 原文:[https://lifehacker.com/the-phd-students-bag-1626555276](https://lifehacker.com/the-phd-students-bag-1626555276)
+> 原文：<https://lifehacker.com/the-phd-students-bag-1626555276>
 
 做一名学生已经够艰难了，当你拿到博士学位时，你需要一套完全不同的工具。一个恰当的例子是，博士生塞缪尔在日常携带中分享他的包。
 

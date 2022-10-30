@@ -1,6 +1,6 @@
 # 五把最好的日常随身小刀
 
-> 原文:[https://life hacker . com/five-best-daily-carry-knifes-1700075192](https://lifehacker.com/five-best-everyday-carry-knives-1700075192)
+> 原文：<https://lifehacker.com/five-best-everyday-carry-knives-1700075192>
 
 一把可靠的刀是不可缺少的。无论你只是用它来打开盒子和包裹，修剪或剥离电缆，切断露营或任何户外活动的绳子，或者只是想有一个以防万一，你有大量的选择。本周，我们将根据您的提名，来看看五个绝佳的选择。
 

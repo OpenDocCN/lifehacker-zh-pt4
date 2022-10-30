@@ -1,6 +1,6 @@
 # Firefox 获得了一个全新的、更加可定制的设计
 
-> 原文:[https://life hacker . com/Firefox-gets-a-brand-new-even-more-customized-design-1569221733](https://lifehacker.com/firefox-gets-a-brand-new-even-more-customizable-design-1569221733)
+> 原文：<https://lifehacker.com/firefox-gets-a-brand-new-even-more-customizable-design-1569221733>
 
 Firefox 期待已久的重新设计终于对所有人开放，同时对定制和 Firefox Sync 进行了一些改进。
 

@@ -1,6 +1,6 @@
 # 2014 年最受欢迎的美食
 
-> 原文:[https://life hacker . com/most-popular-food-hacks-of-2014-1665917498](https://lifehacker.com/most-popular-food-hacks-of-2014-1665917498)
+> 原文：<https://lifehacker.com/most-popular-food-hacks-of-2014-1665917498>
 
 如果有一样东西人人都爱，那就是食物——对于 Lifehacker 的食物黑客来说，这是很棒的一年。无论你在做什么，以下是我们最好的建议和技巧。你最好饿了！
 

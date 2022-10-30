@@ -1,6 +1,6 @@
 # 我是社会企业家 Leila Janah，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Leila-janah-social-entrepreneur-and-this-is-how-I-1605979825](https://lifehacker.com/im-leila-janah-social-entrepreneur-and-this-is-how-i-1605979825)
+> 原文：<https://lifehacker.com/im-leila-janah-social-entrepreneur-and-this-is-how-i-1605979825>
 
 有些人创业是为了赚钱或创造一种产品，但 Leila Janah 有更大的想法。在她的公司 [Samasource](http://samasource.org/) ，她正在帮助穷人在网上找到体面的工作。
 

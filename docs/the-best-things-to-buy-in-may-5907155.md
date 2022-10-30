@@ -1,6 +1,6 @@
 # 五月最好买的东西
 
-> 原文:[https://life hacker . com/the-best-to-buy-in-may-5907155](https://lifehacker.com/the-best-things-to-buy-in-may-5907155)
+> 原文：<https://lifehacker.com/the-best-things-to-buy-in-may-5907155>
 
 春天是储存一些新家具和其他家居用品的好时机，尤其是在五月。以下是这个月最值得买的东西。
 

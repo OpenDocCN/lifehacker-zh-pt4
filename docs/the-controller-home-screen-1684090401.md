@@ -1,6 +1,6 @@
 # 控制器主屏幕
 
-> 原文:[https://life hacker . com/the-controller-home-screen-1684090401](https://lifehacker.com/the-controller-home-screen-1684090401)
+> 原文：<https://lifehacker.com/the-controller-home-screen-1684090401>
 
 最优雅的设计是那些能以最简单的方式传达最多信息的设计。今天的主屏幕在一个圆圈中有一个时钟、电池指示器和几个弹出启动器类别。
 

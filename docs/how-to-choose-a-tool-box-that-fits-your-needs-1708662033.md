@@ -1,6 +1,6 @@
 # 如何选择适合自己 DIY 需求的完美工具箱
 
-> 原文:[https://life hacker . com/how-to-choose-a-tool-box-fit-your-needs-1708662033](https://lifehacker.com/how-to-choose-a-tool-box-that-fits-your-needs-1708662033)
+> 原文：<https://lifehacker.com/how-to-choose-a-tool-box-that-fits-your-needs-1708662033>
 
 所以你知道你的 [第一工具箱](https://lifehacker.com/the-essential-tiny-tool-kit-everyone-should-have-at-hom-1643714563) 里应该有哪些工具，但是你把它们都存放在哪里呢？这里有大量的工具箱选项来存放你所有的工具。
 

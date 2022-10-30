@@ -1,6 +1,6 @@
 # 零售工作教会了我了解人们的一切
 
-> 原文:[https://life hacker . com/working-retail-teached-me-everything-I-need-to-know abou-1726626642](https://lifehacker.com/working-retail-taught-me-everything-i-need-to-know-abou-1726626642)
+> 原文：<https://lifehacker.com/working-retail-taught-me-everything-i-need-to-know-abou-1726626642>
 
 人们说“每个人一生中至少应该从事一次零售或服务工作。”我完全同意。像许多人一样，我的第一份工作是零售服务。一个在百货商店，另一个在书店。我很久以前就离开了，但我学到了很多关于人的本质的东西——以及自私和同情之间的斗争是我们每天都在挣扎的事情。
 

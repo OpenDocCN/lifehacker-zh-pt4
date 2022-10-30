@@ -1,6 +1,6 @@
 # 如何制作简单的自制意大利面
 
-> 原文:[https://life hacker . com/how-to-make-防呆-自制-pasta-1518432388](https://lifehacker.com/how-to-make-foolproof-homemade-pasta-1518432388)
+> 原文：<https://lifehacker.com/how-to-make-foolproof-homemade-pasta-1518432388>
 
 有些菜大多数业余厨师都拒绝尝试。其中最大的一个:自制意大利面。但是，自己动手做意大利面条、意大利宽面条和意大利饺子是可行的——你甚至不需要一台意大利面条机。在 [*栈交换*](http://cooking.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=cooking-104) *的厨师提供从头开始烹饪面食的技巧。*
 

@@ -1,6 +1,6 @@
 # 今晚就这么做:用手指戳她，而且只能用手指戳她
 
-> 原文:[https://life hacker . com/do-this-tonight-finger-her-only-finger-her-1698270354](https://lifehacker.com/do-this-tonight-finger-her-and-only-finger-her-1698270354)
+> 原文：<https://lifehacker.com/do-this-tonight-finger-her-and-only-finger-her-1698270354>
 
 有很多被低估的性行为，但是这里有一个很大的你可能忽略了:指法。大多数成年人往往会忘记指法，但我将向你展示为什么我认为这种行为应该在任何夫妇的性爱剧目中占有一席之地，并给你一些如何正确做到这一点的提示。
 

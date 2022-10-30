@@ -1,6 +1,6 @@
 # 最好的家庭泡茶设备
 
-> 原文:[https://life hacker . com/the-best-in-home-tea-brewing-gear-1624663430](https://lifehacker.com/the-best-at-home-tea-brewing-gear-1624663430)
+> 原文：<https://lifehacker.com/the-best-at-home-tea-brewing-gear-1624663430>
 
 当然，一杯好茶始于正确的茶叶，但你如何泡茶也很重要。你可以用特殊的水壶来装饰，或者用简单的过滤器来装饰，但是我们想列出一个你应该在家里拥有的最好的固体泡茶设备的清单。让我们开始吧。
 

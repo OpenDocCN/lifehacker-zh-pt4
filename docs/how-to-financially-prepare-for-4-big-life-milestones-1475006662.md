@@ -1,6 +1,6 @@
 # 如何为人生的四大里程碑做好财务准备
 
-> 原文:[https://life hacker . com/how-to-financial-prepare-for-4-big-life-milestones-1475006662](https://lifehacker.com/how-to-financially-prepare-for-4-big-life-milestones-1475006662)
+> 原文：<https://lifehacker.com/how-to-financially-prepare-for-4-big-life-milestones-1475006662>
 
 我们很多人都幻想过买房子、结婚、生孩子，然后在 65 岁退休——具体来说就是按这个顺序。事实上，根据最近的研究，这些东西被我们定义为 2013 年美国梦的。但是这四个目标有一个共同点，那就是它们都很昂贵。所以，如果你有一个正在为之存钱的人生大事，你如何筹集资金来实现它呢？
 

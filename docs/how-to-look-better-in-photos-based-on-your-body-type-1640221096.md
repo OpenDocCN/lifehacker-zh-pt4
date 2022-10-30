@@ -1,6 +1,6 @@
 # 如何根据自己的体型在照片中更好看
 
-> 原文:[https://life hacker . com/how-to-look-better-in-photos-based-on-your-body-type-1640221096](https://lifehacker.com/how-to-look-better-in-photos-based-on-your-body-type-1640221096)
+> 原文：<https://lifehacker.com/how-to-look-better-in-photos-based-on-your-body-type-1640221096>
 
 我们大多数人不喜欢在照片中看到自己，因为我们不喜欢看到自己的不完美。这里有一些任何人都可以实现的技巧，让你在快门点击时看起来更好。
 

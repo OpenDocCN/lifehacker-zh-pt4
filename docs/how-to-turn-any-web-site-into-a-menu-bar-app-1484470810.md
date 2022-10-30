@@ -1,6 +1,6 @@
 # 如何将任何网站变成菜单栏应用程序
 
-> 原文:[https://life hacker . com/how-to-turn-any-web-site-to-a-menu-bar-app-1484470810](https://lifehacker.com/how-to-turn-any-web-site-into-a-menu-bar-app-1484470810)
+> 原文：<https://lifehacker.com/how-to-turn-any-web-site-into-a-menu-bar-app-1484470810>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-_EG3DYz51LU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-_EG3DYz51LU&start=0) 
 

@@ -1,6 +1,6 @@
 # 互联网帮你找到工作的 4 种非常规方式
 
-> 原文:[https://life hacker . com/4-non conventi on-ways-the-internet-can-help-you-land-jo-1479206108](https://lifehacker.com/4-unconventional-ways-the-internet-can-help-you-land-jo-1479206108)
+> 原文：<https://lifehacker.com/4-unconventional-ways-the-internet-can-help-you-land-jo-1479206108>
 
 每天都有成千上万的新人进入就业市场，你需要利用一切可用的资源脱颖而出。如果你知道去哪里找，互联网可以帮助你侵入潜在雇主的大脑。
 

@@ -1,6 +1,6 @@
 # 如何设定目标体重以获得更好的节食成功机会
 
-> 原文:[https://life hacker . com/how-to-set-a target-body-weight-for-better-chances-d-1678382801](https://lifehacker.com/how-to-set-a-target-body-weight-for-better-chances-of-d-1678382801)
+> 原文：<https://lifehacker.com/how-to-set-a-target-body-weight-for-better-chances-of-d-1678382801>
 
 大家都知道减肥很难。然而，最大的挑战是保持体重。知道你的目标体重，然后像你在那个体重一样吃，可以提供一个路线图，让你持续进步。原因如下。
 

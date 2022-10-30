@@ -1,6 +1,6 @@
 # 如何停止找借口，最终让你的财务恢复正常
 
-> 原文:[https://life hacker . com/how-to-stop-making-excuse-and-finance-1672029475](https://lifehacker.com/how-to-stop-making-excuses-and-finally-get-your-finance-1672029475)
+> 原文：<https://lifehacker.com/how-to-stop-making-excuses-and-finally-get-your-finance-1672029475>
 
 在大学的第二年和第三年，我做了一些关于该选哪门课的糟糕决定。那些糟糕的选择，在我对我的专业不再确定的时候，结束了我额外一年的大学经历。
 

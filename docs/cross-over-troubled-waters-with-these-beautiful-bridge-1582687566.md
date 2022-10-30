@@ -1,6 +1,6 @@
 # 通过这些美丽的桥梁壁纸渡过难关
 
-> 原文:[https://life hacker . com/cross-over-pound-waters-with these-beautiful-bridge-1582687566](https://lifehacker.com/cross-over-troubled-waters-with-these-beautiful-bridge-1582687566)
+> 原文：<https://lifehacker.com/cross-over-troubled-waters-with-these-beautiful-bridge-1582687566>
 
 建筑既是艺术又是科学，当谈到一些世界上最美丽的桥梁时，你可以通过一张很好的照片来欣赏这两者。用这些壁纸装饰你的桌面，欣赏一些风景。
 

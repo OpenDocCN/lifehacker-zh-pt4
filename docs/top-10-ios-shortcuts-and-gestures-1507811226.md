@@ -1,6 +1,6 @@
 # 十大 iOS 快捷方式和手势
 
-> 原文:[https://life hacker . com/top-10-IOs-shortcut s-and-gestures-1507811226](https://lifehacker.com/top-10-ios-shortcuts-and-gestures-1507811226)
+> 原文：<https://lifehacker.com/top-10-ios-shortcuts-and-gestures-1507811226>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-nLyyVAzvEig&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-nLyyVAzvEig&start=0) 
 

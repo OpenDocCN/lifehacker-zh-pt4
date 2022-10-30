@@ -1,6 +1,6 @@
 # 阻止人们投资的五个常见误区被揭穿
 
-> 原文:[https://life hacker . com/five-common-myths-the-keep people-from-investment-debu-1716259651](https://lifehacker.com/five-common-myths-that-keep-people-from-investing-debu-1716259651)
+> 原文：<https://lifehacker.com/five-common-myths-that-keep-people-from-investing-debu-1716259651>
 
 人们认为你必须有钱才能投资。他们认为投资风险太大。他们相信他们已经在投资了，因为他们拥有一套房子。这些常见的神话让人们无法从 [建立一个基本的投资组合](https://lifehacker.com/how-to-build-an-easy-beginner-set-and-forget-investm-1686878594) 。而且，如果你打算退休，你会需要那个投资组合。不要让这些神话妨碍你。
 

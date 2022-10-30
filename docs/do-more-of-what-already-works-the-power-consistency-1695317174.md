@@ -1,6 +1,6 @@
 # 做更多已经奏效的事情:动力一致性
 
-> 原文:[https://life hacker . com/do-more-of-what-always-works-the-power-consistency-1695317174](https://lifehacker.com/do-more-of-what-already-works-the-power-consistency-1695317174)
+> 原文：<https://lifehacker.com/do-more-of-what-already-works-the-power-consistency-1695317174>
 
 当我们试图改善我们的工作流程或提高我们的绩效时，人们往往倾向于忽略他们已经知道的技能，而倾向于研究新的策略。但是您已经知道的旧解决方案通常是最佳实践，一致性是所缺少的。
 

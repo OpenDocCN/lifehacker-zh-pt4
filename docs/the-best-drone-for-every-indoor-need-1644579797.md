@@ -1,6 +1,6 @@
 # 每个初学者的最佳无人机
 
-> 原文:[https://gizmodo . com/the-best-drone-for-every-one-interior-need-1644579797](https://gizmodo.com/the-best-drone-for-every-indoor-need-1644579797)
+> 原文：<https://gizmodo.com/the-best-drone-for-every-indoor-need-1644579797>
 
 所以， [你想学习驾驶无人机](http://gizmodo.com/how-i-failed-to-become-a-drone-pilot-1617870133#_ga=1.38768993.313411857.1453219593) ，但是不确定从哪里开始？Gizmodo 订购了一批初学者无人机，并将它们交给一个无人机新手(我)进行测试。我发现的最好的和最坏的——加上许多许多的崩溃——都在前面。
 

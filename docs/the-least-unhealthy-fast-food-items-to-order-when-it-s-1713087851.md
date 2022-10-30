@@ -1,6 +1,6 @@
 # 七个受欢迎的快餐店里最不健康的食物
 
-> 原文:[https://life hacker . com/the-least-the-less-non-healthy-fast-food-items-to-order-when-it-s-1713087851](https://lifehacker.com/the-least-unhealthy-fast-food-items-to-order-when-it-s-1713087851)
+> 原文：<https://lifehacker.com/the-least-unhealthy-fast-food-items-to-order-when-it-s-1713087851>
 
 快餐算不上健康食品，但当你在路上或深夜时，有时它是你唯一的选择。这些菜单选项会让你吃得饱饱的，但不会让你吃不饱。
 

@@ -1,6 +1,6 @@
 # 来自厨师和美食专家的 20 多种省时烹饪技巧
 
-> 原文:[https://life hacker . com/20-厨师和食品专家提供的节省时间的烹饪技巧-1503379557](https://lifehacker.com/20-time-saving-cooking-tips-from-chefs-and-food-exper-1503379557)
+> 原文：<https://lifehacker.com/20-time-saving-cooking-tips-from-chefs-and-food-exper-1503379557>
 
 也许你是厨房里的忍者。也许你刚刚开始你的烹饪冒险。不管怎样，这些来自厨师和美食专家的建议和技巧可以帮助你少花点时间在炉子上，多花点时间享受你劳动所得的食物。
 

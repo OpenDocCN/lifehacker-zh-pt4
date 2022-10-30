@@ -1,6 +1,6 @@
 # 如何在旅途中使用手机而不死亡
 
-> 原文:[https://life hacker . com/how-to-use-your-phone-on-the-go-with-death-1476488763](https://lifehacker.com/how-to-use-your-cellphone-on-the-go-without-dying-1476488763)
+> 原文：<https://lifehacker.com/how-to-use-your-cellphone-on-the-go-without-dying-1476488763>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-uzMJCGaZ0NQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-uzMJCGaZ0NQ&start=0) 
 

@@ -1,6 +1,6 @@
 # 我应该搬到一个新的城市去找工作吗？
 
-> 原文:[https://life hacker . com/should-I-move-to-a-new-city-look-a-job-1588074995](https://lifehacker.com/should-i-move-to-a-new-city-to-look-for-a-job-1588074995)
+> 原文：<https://lifehacker.com/should-i-move-to-a-new-city-to-look-for-a-job-1588074995>
 
 亲爱的生活黑客，我正在找新工作。我应该搬到一个新的城市，在那里我听说有很多企业做我想做的事情，还是应该在这里坚持下去，看看我能找到什么？这里的就业市场并不糟糕，但我觉得在其他地方找工作会更容易。我应该“跟着钱走吗？”
 

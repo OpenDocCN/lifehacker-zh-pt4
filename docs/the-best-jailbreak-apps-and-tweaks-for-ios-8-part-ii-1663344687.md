@@ -1,6 +1,6 @@
 # iOS 8 的最佳越狱应用和调整:第二部分
 
-> 原文:[https://life hacker . com/the-best-jail-break-apps-and-tweaks-for-IOs-8-part-ii-1663344687](https://lifehacker.com/the-best-jailbreak-apps-and-tweaks-for-ios-8-part-ii-1663344687)
+> 原文：<https://lifehacker.com/the-best-jailbreak-apps-and-tweaks-for-ios-8-part-ii-1663344687>
 
 现在我们已经有一些时间与 iOS 8 越狱 、 [一起度过了](http://lifehacker.com/the-best-jailbreak-apps-and-tweaks-for-ios-8-1655227137) [新的应用程序和调整即将到来](https://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-5771943) 专门为新的操作系统制作。我们来看看最好的。
 

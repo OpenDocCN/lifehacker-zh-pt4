@@ -1,6 +1,6 @@
 # 如何让你的安卓平板电脑更像个人电脑
 
-> 原文:[https://life hacker . com/how-to-make-an-Android-table t-work-more-like-a-PC-1462061591](https://lifehacker.com/how-to-make-an-android-tablet-work-more-like-a-pc-1462061591)
+> 原文：<https://lifehacker.com/how-to-make-an-android-tablet-work-more-like-a-pc-1462061591>
 
 这些年来，Android 平板电脑变得越来越好，但开箱即用仍然很难有很高的生产力(尽管它们有 [某些优势](https://lifehacker.com/how-tablets-are-actually-great-productivity-tools-5779982) )。然而，通过几个配件和几个应用程序，你可以让他们感觉更像一台笔记本电脑。
 

@@ -1,6 +1,6 @@
 # 如何构建一个手持的、基于 Raspberry Pi 的游戏机
 
-> 原文:[https://life hacker . com/how-to-build-a-handset-raspberry-pi-powered-game-cons-1663675758](https://lifehacker.com/how-to-build-a-handheld-raspberry-pi-powered-game-cons-1663675758)
+> 原文：<https://lifehacker.com/how-to-build-a-handheld-raspberry-pi-powered-game-cons-1663675758>
 
 树莓派是一款很棒的迷你电脑，可以让 [在童年时玩经典的视频游戏](https://lifehacker.com/how-to-turn-your-raspberry-pi-into-a-retro-game-console-498561192) 。但是，由于它的小尺寸，它也可以变成一个便携式手持游戏机，播放你最喜欢的游戏，从 NES 到 N64。我称之为“eNcade”。
 

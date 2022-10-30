@@ -1,6 +1,6 @@
 # 2013 年最受欢迎的转载文章和客座文章
 
-> 原文:[https://life hacker . com/most-popular-republished-posts-of-2013-1480565474](https://lifehacker.com/most-popular-republished-posts-of-2013-1480565474)
+> 原文：<https://lifehacker.com/most-popular-republished-posts-of-2013-1480565474>
 
 我们喜欢在 Lifehacker 邀请客座作者，这是充满独特声音和观点的一年。让我们回顾一下 2013 年一些最好的转载帖子。
 

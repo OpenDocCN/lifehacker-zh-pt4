@@ -1,6 +1,6 @@
 # 根据你的领域，投递简历的最佳地点
 
-> 原文:[https://life hacker . com/the-best-places to-post your-resume-depend-on-your-1700927606](https://lifehacker.com/the-best-places-to-post-your-resume-depending-on-your-1700927606)
+> 原文：<https://lifehacker.com/the-best-places-to-post-your-resume-depending-on-your-1700927606>
 
 让你的简历受到关注是最重要的，在哪里分享会有很大的不同。将你的简历上传到一个大的求职板上是一个开始，但是许多职业有特殊的网站和社区，可以让你在竞争中占得先机。让我们根据你所在的领域或你想找的工作，来看看一些最好的。
 

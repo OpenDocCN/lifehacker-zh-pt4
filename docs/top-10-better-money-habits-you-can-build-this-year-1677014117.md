@@ -1,6 +1,6 @@
 # 今年你可以建立的 10 个更好的理财习惯
 
-> 原文:[https://life hacker . com/top-10-better-money-habits-you-can-build-this-year-1677014117](https://lifehacker.com/top-10-better-money-habits-you-can-build-this-year-1677014117)
+> 原文：<https://lifehacker.com/top-10-better-money-habits-you-can-build-this-year-1677014117>
 
 年初是回顾和修改我们的财务计划的好时机，包括像“存更多的钱”或“偿还债务”这样的常见决心。以下是一些全年养成更好的理财习惯的方法。
 

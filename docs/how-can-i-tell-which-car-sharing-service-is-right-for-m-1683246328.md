@@ -1,6 +1,6 @@
 # 如何判断哪种汽车共享服务适合我？
 
-> 原文:[https://life hacker . com/how-can-I-tell-the-car-sharing-service-is-right-for-m-1683246328](https://lifehacker.com/how-can-i-tell-which-car-sharing-service-is-right-for-m-1683246328)
+> 原文：<https://lifehacker.com/how-can-i-tell-which-car-sharing-service-is-right-for-m-1683246328>
 
 亲爱的生活黑客，我正在考虑不开车了！我不喜欢这个主意，但就我现在的情况来看，这能帮我省点钱。然而，我还是偶尔需要开车，比如去杂货店或者拜访家人。我听说有一堆新的短期租赁服务可能符合要求。我如何选择一个？
 

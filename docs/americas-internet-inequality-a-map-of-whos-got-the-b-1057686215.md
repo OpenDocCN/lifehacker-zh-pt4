@@ -1,6 +1,6 @@
 # 一张美国网络连接最好(和最差)的地图
 
-> 原文:[https://gizmodo . com/Americas-internet-inequality-a-map-of-whos-got-the-b-1057686215](https://gizmodo.com/americas-internet-inequality-a-map-of-whos-got-the-b-1057686215)
+> 原文：<https://gizmodo.com/americas-internet-inequality-a-map-of-whos-got-the-b-1057686215>
 
 在数字时代，接入高速互联网至关重要。但是这个国家的一些地区仍然被冷落。我们看了一下在美国哪里可以得到最好的——而不是最好的——互联网
 

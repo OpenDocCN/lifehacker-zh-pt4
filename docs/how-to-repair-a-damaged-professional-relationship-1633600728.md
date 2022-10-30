@@ -1,6 +1,6 @@
 # 如何修复受损的职业关系
 
-> 原文:[https://life hacker . com/how-to-repair-a-damaged-professional-relationship-1633600728](https://lifehacker.com/how-to-repair-a-damaged-professional-relationship-1633600728)
+> 原文：<https://lifehacker.com/how-to-repair-a-damaged-professional-relationship-1633600728>
 
 如果你在职场上呆了足够长的时间，你几乎肯定会有一系列受损的职业关系。这并不意味着你是一个糟糕的经理或员工；有些人合不来，这简直是事实，而当我们不得不互相依赖的时候，必然会有越线和失望。
 

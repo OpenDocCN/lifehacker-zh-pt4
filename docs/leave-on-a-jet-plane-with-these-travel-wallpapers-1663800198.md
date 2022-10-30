@@ -1,6 +1,6 @@
 # 带着这些旅行壁纸乘喷气式飞机离开
 
-> 原文:[https://life hacker . com/leave-on-a jet-plane-with these-travel wallpapers-1663800198](https://lifehacker.com/leave-on-a-jet-plane-with-these-travel-wallpapers-1663800198)
+> 原文：<https://lifehacker.com/leave-on-a-jet-plane-with-these-travel-wallpapers-1663800198>
 
 本周，我们中的许多人都要上路去拜访家人和朋友过感恩节，或者只是回家过一般的假期。无论你是外出还是呆在家里，这里有一些风景可以用来装饰你的桌面。
 

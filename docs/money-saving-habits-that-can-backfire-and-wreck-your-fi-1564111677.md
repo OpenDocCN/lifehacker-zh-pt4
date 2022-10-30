@@ -1,6 +1,6 @@
 # 省钱的习惯会适得其反，破坏你的财务状况
 
-> 原文:[https://life hacker . com/money-saving-habits-than-can-back-fired-wreck-your-fi-1564111677](https://lifehacker.com/money-saving-habits-that-can-backfire-and-wreck-your-fi-1564111677)
+> 原文：<https://lifehacker.com/money-saving-habits-that-can-backfire-and-wreck-your-fi-1564111677>
 
 我们都知道入不敷出，没有应急基金会破坏你的财务状况。虽然大多数金钱失误是显而易见的，但一些错误始于良好的财务意图。以下是一些可能适得其反并最终让你付出代价的储蓄习惯。
 

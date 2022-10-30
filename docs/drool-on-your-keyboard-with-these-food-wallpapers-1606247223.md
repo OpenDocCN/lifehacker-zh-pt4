@@ -1,6 +1,6 @@
 # 用这些食物壁纸在你的键盘上流口水
 
-> 原文:[https://life hacker . com/drool-on-your-keyboard with the-food-wallpapers-1606247223](https://lifehacker.com/drool-on-your-keyboard-with-these-food-wallpapers-1606247223)
+> 原文：<https://lifehacker.com/drool-on-your-keyboard-with-these-food-wallpapers-1606247223>
 
 没有什么比吃饭更能把我们团结在一起了。所以，让我们抛开分歧，一起围坐在数字餐桌旁，用这些美味的壁纸集体垂涎我们珍贵的电子产品。
 

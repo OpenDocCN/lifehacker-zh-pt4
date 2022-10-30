@@ -1,6 +1,6 @@
 # 穆罕默德·阿里的最佳生产率诀窍
 
-> 原文:[https://life hacker . com/Muhammad-alis-best-productivity-tricks-1676623242](https://lifehacker.com/muhammad-alis-best-productivity-tricks-1676623242)
+> 原文：<https://lifehacker.com/muhammad-alis-best-productivity-tricks-1676623242>
 
 穆罕默德·阿里 当然是作为一名拳击手而为人所知，但他也是一个令人难以置信的多产、鼓舞人心的人。他一生中做了很多事情，所以让我们来看看他的一些最好的完成事情和享受生活的建议。
 

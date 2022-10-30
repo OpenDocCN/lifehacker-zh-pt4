@@ -1,6 +1,6 @@
 # 如何让你的蜗牛邮件更像电子邮件
 
-> 原文:[https://life hacker . com/how-to-make-your-snail-mail-work-more-like-email-1459118920](https://lifehacker.com/how-to-make-your-snail-mail-work-more-like-email-1459118920)
+> 原文：<https://lifehacker.com/how-to-make-your-snail-mail-work-more-like-email-1459118920>
 
 电子邮件并不完美 ，但它确实比普通邮件有优势。如果你不想要一条消息，你可以删除它而不是回收它。如果你想回答，你可以马上回答。然而，有时你确实需要邮寄信件和包裹。通过一些服务，您可以减少所需的时间和精力，并开始像对待电子邮件一样对待您的物理邮件。
 

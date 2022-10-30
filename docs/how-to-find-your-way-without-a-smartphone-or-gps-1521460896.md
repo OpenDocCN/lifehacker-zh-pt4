@@ -1,6 +1,6 @@
 # 如何在没有智能手机或 GPS 的情况下找到自己的路
 
-> 原文:[https://life hacker . com/how-to-find your way-without-a smart phone-or-GPS-1521460896](https://lifehacker.com/how-to-find-your-way-without-a-smartphone-or-gps-1521460896)
+> 原文：<https://lifehacker.com/how-to-find-your-way-without-a-smartphone-or-gps-1521460896>
 
 智能手机和全球定位系统成为常态的时间不长，但谢天谢地，它们总是在那里帮助我们找到路。当然，除非你无法上网，电池没电，或者在没有街道的地方迷路。当这种情况发生时，知道如何找到自己的路会有所帮助。
 

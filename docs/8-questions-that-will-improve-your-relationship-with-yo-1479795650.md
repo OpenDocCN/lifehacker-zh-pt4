@@ -1,6 +1,6 @@
 # 改善你和老板关系的 8 个问题
 
-> 原文:[https://life hacker . com/8-questions-that-will-improve-you-1479795650](https://lifehacker.com/8-questions-that-will-improve-your-relationship-with-yo-1479795650)
+> 原文：<https://lifehacker.com/8-questions-that-will-improve-your-relationship-with-yo-1479795650>
 
 想想看:你可能只有在以下情况下才会收到老板的来信:a)你彻底搞砸了，b)你大获全胜，或者 c)绩效评估时间到了。你渴望得到上司的反馈，除非你乐于低调行事，这对你的进步毫无帮助。从你的上司那里得到诚实的建议对你和老板的关系至关重要——不管你喜不喜欢，你和老板的关系可以成就你的事业，也可以毁掉你的事业。
 

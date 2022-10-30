@@ -1,6 +1,6 @@
 # 满载的公文包
 
-> 原文:[https://life hacker . com/the-full-loaded-公文包-1634888509](https://lifehacker.com/the-fully-loaded-briefcase-1634888509)
+> 原文：<https://lifehacker.com/the-fully-loaded-briefcase-1634888509>
 
 仅仅因为你在工作中使用公文包并不意味着你必须在里面放一些无聊的旧文件。《每日邮报》的读者德里克是联邦应急管理局的客户服务代表，他对包里物品的选择显示了该组织的血统。
 

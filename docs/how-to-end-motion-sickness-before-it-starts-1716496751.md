@@ -1,6 +1,6 @@
 # 如何在晕车开始前结束它
 
-> 原文:[https://life hacker . com/how-to-end-motion-晕动病-before-that-started-1716496751](https://lifehacker.com/how-to-end-motion-sickness-before-it-starts-1716496751)
+> 原文：<https://lifehacker.com/how-to-end-motion-sickness-before-it-starts-1716496751>
 
 在我们的第一次家庭公路旅行中，我很高兴扮演导航员。我会低头看地图，抬头看看我们在哪里，再低头看地图，然后再抬头。我做得还不错，直到大约五分钟后，我的上唇开始出汗。我的头和肠子都在打转。我就不告诉你这个故事结局的细节了，但它并不好看。
 

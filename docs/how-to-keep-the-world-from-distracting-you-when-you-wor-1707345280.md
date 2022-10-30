@@ -1,6 +1,6 @@
 # 当你在家工作时，如何不让世界分散你的注意力
 
-> 原文:[https://life hacker . com/how-to-keep the world from-distracting-you-when-you-work-1707345280](https://lifehacker.com/how-to-keep-the-world-from-distracting-you-when-you-wor-1707345280)
+> 原文：<https://lifehacker.com/how-to-keep-the-world-from-distracting-you-when-you-wor-1707345280>
 
 几个月前，我正在为一个故事采访某人，这时我听到有人敲门。是我公寓的维修人员，晚了一天来安装东西。我还没来得及暂停采访，敲门声变成了响亮的砰砰声，没过多久，我的采访对象问道:“你那边还好吗？”
 

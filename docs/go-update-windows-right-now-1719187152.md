@@ -1,6 +1,6 @@
 # 立即更新 Windows
 
-> 原文:[https://gizmodo.com/go-update-windows-right-now-1719187152](https://gizmodo.com/go-update-windows-right-now-1719187152)
+> 原文：<https://gizmodo.com/go-update-windows-right-now-1719187152>
 
 微软通常将其 Windows 更新限制在每月的周二。因此，当该公司在周一推出一个关键更新时，这是一个好迹象，表明事情正在发生。
 

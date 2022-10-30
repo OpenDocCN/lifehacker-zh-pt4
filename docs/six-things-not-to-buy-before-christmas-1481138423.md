@@ -1,6 +1,6 @@
 # 圣诞节前不要买的六样东西
 
-> 原文:[https://life hacker . com/six-things-not-buy-before-1481138423](https://lifehacker.com/six-things-not-to-buy-before-christmas-1481138423)
+> 原文：<https://lifehacker.com/six-things-not-to-buy-before-christmas-1481138423>
 
 离圣诞节还有不到两周的时间，你可能会觉得有必要去疯狂购物。但是尽管销售永无止境，还是有一些东西你不应该在圣诞节前买。
 

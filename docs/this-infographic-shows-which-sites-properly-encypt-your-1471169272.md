@@ -1,6 +1,6 @@
 # 该信息图显示了哪些网站正确加密了您的数据
 
-> 原文:[https://life hacker . com/this-infograph-shows-which-sites-appropt-your-1471169272](https://lifehacker.com/this-infographic-shows-which-sites-properly-encypt-your-1471169272)
+> 原文：<https://lifehacker.com/this-infographic-shows-which-sites-properly-encypt-your-1471169272>
 
 没有一家公司愿意承认这一点，但事实是，他们总有被黑客攻击的合理机会。如果他们不加密你的数据，这些黑客很容易泄露你的各种信息。因此，为了看看谁在加密方面做得好，电子前沿基金会决定制作一张图表，观察一些大公司。
 

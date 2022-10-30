@@ -1,6 +1,6 @@
 # 求职者可以问的五个最佳问题
 
-> 原文:[https://life hacker . com/the-five-best-questions-a-a-job-candidate-ask-1599296074](https://lifehacker.com/the-five-best-questions-a-job-candidate-can-ask-1599296074)
+> 原文：<https://lifehacker.com/the-five-best-questions-a-job-candidate-can-ask-1599296074>
 
 当你参加工作面试时，你问面试官的问题和你的回答一样重要。它们展示了你有多么超前的思维，以及你多么渴望为公司的未来投资。这里有五个很好的问题，可以让你从其他候选人中脱颖而出。
 

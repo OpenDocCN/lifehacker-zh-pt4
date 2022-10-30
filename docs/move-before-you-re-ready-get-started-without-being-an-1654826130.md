@@ -1,6 +1,6 @@
 # 在你准备好之前行动:不要成为“专家”就开始行动
 
-> 原文:[https://life hacker . com/move-before-you-re-ready-get-started-without-be-an-1654826130](https://lifehacker.com/move-before-you-re-ready-get-started-without-being-an-1654826130)
+> 原文：<https://lifehacker.com/move-before-you-re-ready-get-started-without-being-an-1654826130>
 
 在我们的一生中，人们告诉我们在“现实世界”中尝试某样东西之前，要了解它的一切。然而，这个快节奏的世界要求我们在了解一个主题的一切之前就采取行动。你不应该等待改变你的职业，等待一个完美的实习，或者进入更多的学校，你应该调整你的教育，这样你就可以快速地学习和应用技能。
 

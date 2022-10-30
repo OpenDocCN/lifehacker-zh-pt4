@@ -1,6 +1,6 @@
 # 收集电子游戏的初学者指南
 
-> 原文:[https://kotaku . com/a-初学者-收藏指南-视频游戏-1656986047](https://kotaku.com/a-beginners-guide-to-collecting-video-games-1656986047)
+> 原文：<https://kotaku.com/a-beginners-guide-to-collecting-video-games-1656986047>
 
 所以，你终于意识到你不能忍受与你的游戏、指南和各种游戏纪念品分道扬镳。别担心，你不是囤积者，你是收藏家！除非你睡不着觉，因为你的床上堆满了电子游戏月刊...那你可能是个囤积者。
 

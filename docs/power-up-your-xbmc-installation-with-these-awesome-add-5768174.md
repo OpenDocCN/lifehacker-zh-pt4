@@ -1,6 +1,6 @@
 # 使用这些令人敬畏的附加组件启动您的 XBMC 安装
 
-> 原文:[https://life hacker . com/power-up-your-xbmc-installation-with these-awesome-add-5768174](https://lifehacker.com/power-up-your-xbmc-installation-with-these-awesome-add-5768174)
+> 原文：<https://lifehacker.com/power-up-your-xbmc-installation-with-these-awesome-add-5768174>
 
 关于 XBMC， [可定制的媒体中心软件](https://lifehacker.com/create-a-kickass-seamless-play-everything-media-cente-5900626) 最好的部分之一是它类似浏览器的扩展。如果你曾经想把看电视、听播客或玩视频游戏融入到你的 XBMC 盒子中，这就是它的工作方式。
 

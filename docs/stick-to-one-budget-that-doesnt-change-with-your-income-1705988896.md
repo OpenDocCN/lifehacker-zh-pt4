@@ -1,6 +1,6 @@
 # 坚持一个不随收入水平变化的预算
 
-> 原文:[https://life hacker . com/stick-to-one-budget-that not-change with your ' s income-1705988896](https://lifehacker.com/stick-to-one-budget-that-doesnt-change-with-your-income-1705988896)
+> 原文：<https://lifehacker.com/stick-to-one-budget-that-doesnt-change-with-your-income-1705988896>
 
 我们中的大多数人通过查看我们挣了多少钱，并把它分配到我们需要或想要的东西上来做预算。然而，当你的预算包括你所有的收入时，你可能会花光它。相反，选择一个预算水平并坚持下去，不管你得到了什么意外之财或加薪。
 

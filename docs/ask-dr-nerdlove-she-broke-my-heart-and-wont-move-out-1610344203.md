@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:她伤了我的心，不肯搬出去
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-she-broken-my heart-and-wot-move-out-1610344203](https://kotaku.com/ask-dr-nerdlove-she-broke-my-heart-and-wont-move-out-1610344203)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-she-broke-my-heart-and-wont-move-out-1610344203>
 
 你好，互联网！欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个以成就解锁来衡量进步的约会建议专栏。
 

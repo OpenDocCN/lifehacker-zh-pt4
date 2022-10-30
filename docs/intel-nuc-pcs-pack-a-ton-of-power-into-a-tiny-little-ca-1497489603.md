@@ -1,6 +1,6 @@
 # 英特尔 NUC 电脑在一个小小的机箱中集成了大量的功能
 
-> 原文:[https://life hacker . com/Intel-nuc-PCs-pack-a-ton-of-power-into-tiny-little-ca-1497489603](https://lifehacker.com/intel-nuc-pcs-pack-a-ton-of-power-into-a-tiny-little-ca-1497489603)
+> 原文：<https://lifehacker.com/intel-nuc-pcs-pack-a-ton-of-power-into-a-tiny-little-ca-1497489603>
 
 英特尔下一代单元计算(NUC)电脑可以将相当多的功能装入一个小小的盒子中。如果你想用 XBMC 或 Plex 建造一个 HTPC，或者你只是想要一台可以藏在午餐盒里的电脑，这就是你的机会。
 

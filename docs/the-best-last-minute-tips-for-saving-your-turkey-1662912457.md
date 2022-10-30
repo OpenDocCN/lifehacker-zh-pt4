@@ -1,6 +1,6 @@
 # 拯救火鸡的最佳最后提示
 
-> 原文:[https://life hacker . com/the-best-last-minute-tips-for-saving-your-turkey-1662912457](https://lifehacker.com/the-best-last-minute-tips-for-saving-your-turkey-1662912457)
+> 原文：<https://lifehacker.com/the-best-last-minute-tips-for-saving-your-turkey-1662912457>
 
 准备和烘烤整只火鸡可能是一场严峻的考验，尤其是如果你搞砸了。如果你忘了给你的鸟解冻，或者烹饪时间不够，或者缺少一些工具，这里有一些小贴士可以帮你化险为夷。
 

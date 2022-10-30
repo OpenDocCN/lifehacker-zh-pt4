@@ -1,6 +1,6 @@
 # 如何在不使用清洁产品的情况下，在几分钟内轻松清洁微波炉
 
-> 原文:[https://life hacker . com/how-to-easy-clean-a-no-clea-1706034415](https://lifehacker.com/how-to-easily-clean-a-microwave-in-minutes-with-no-clea-1706034415)
+> 原文：<https://lifehacker.com/how-to-easily-clean-a-microwave-in-minutes-with-no-clea-1706034415>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Dfbr-O-CVCA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Dfbr-O-CVCA&start=0) 
 

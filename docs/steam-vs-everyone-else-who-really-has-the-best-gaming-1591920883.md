@@ -1,6 +1,6 @@
 # Steam 与其他所有人:谁真正拥有最好的游戏交易？
 
-> 原文:[https://life hacker . com/steam-vs-every one-else-who ' s really-has-the-best-gaming-1591920883](https://lifehacker.com/steam-vs-everyone-else-who-really-has-the-best-gaming-1591920883)
+> 原文：<https://lifehacker.com/steam-vs-everyone-else-who-really-has-the-best-gaming-1591920883>
 
 现在是夏天，这意味着蒸汽销售即将到来。但是 Steam 真的名副其实吗？嗯，是的——但是还有很多其他的商店没有因为同样好而得到好评。让我们来看看竞争对手与 Steam 价格匹配的频率。
 

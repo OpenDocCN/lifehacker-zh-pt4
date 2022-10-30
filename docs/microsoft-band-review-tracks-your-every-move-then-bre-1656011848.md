@@ -1,6 +1,6 @@
 # 微软乐队回顾:跟踪你的一举一动，然后打破你的心
 
-> 原文:[https://gizmodo . com/Microsoft-band-review-tracks-your-every-move-then-bre-1656011848](https://gizmodo.com/microsoft-band-review-tracks-your-every-move-then-bre-1656011848)
+> 原文：<https://gizmodo.com/microsoft-band-review-tracks-your-every-move-then-bre-1656011848>
 
 一周前，当我第一次戴上微软手环时，我感觉自己被赋予了新的力量。该公司的第一款腕上活动追踪器将 10 个传感器封装在一个谨慎的包装中，在我充满希望的眼中，wristable 的强大规格增加了潜力。我想，*这个小玩意可能真的会了解我，让我一点点地接近更好的自己*。这就是为什么乐队没有达到这个目标令人失望。
 

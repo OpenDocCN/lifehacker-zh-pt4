@@ -1,6 +1,6 @@
 # 五大最佳 VPN 服务提供商
 
-> 原文:[https://life hacker . com/five-best-VPN-service-providers-5935863](https://lifehacker.com/five-best-vpn-service-providers-5935863)
+> 原文：<https://lifehacker.com/five-best-vpn-service-providers-5935863>
 
 VPN，或者说虚拟专用网络，是 [当你使用互联网](https://lifehacker.com/why-you-should-be-using-a-vpn-and-how-to-choose-one-5940565) 时保护你的隐私和安全的一个伟大工具。无论您是在家还是在旅行时使用公共 Wi-Fi，best 都将优惠的价格与安全功能和隐私保证相结合，值得您的信任。本周，我们将根据您的提名，来看看五家最好的 VPN 提供商。
 

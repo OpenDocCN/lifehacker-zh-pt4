@@ -1,6 +1,6 @@
 # 还清旧债之前你应该知道什么
 
-> 原文:[https://life hacker . com/what-you-should-known-before-还清旧债-1678161882](https://lifehacker.com/what-you-should-know-before-paying-off-old-debt-1678161882)
+> 原文：<https://lifehacker.com/what-you-should-know-before-paying-off-old-debt-1678161882>
 
 建立良好信用的一部分意味着继续履行你的义务，但如果你在某个地方忘记了账单，它可能会回来困扰你。还清旧债可以让债权人陷入困境，但在你交出现金之前，有一些利弊要考虑。
 

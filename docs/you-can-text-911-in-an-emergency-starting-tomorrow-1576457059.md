@@ -1,6 +1,6 @@
 # 你现在可以在紧急情况下拨打 911
 
-> 原文:[https://life hacker . com/you-can-text-911-in-a-emergency-starting-tomorrow-1576457059](https://lifehacker.com/you-can-text-911-in-an-emergency-starting-tomorrow-1576457059)
+> 原文：<https://lifehacker.com/you-can-text-911-in-an-emergency-starting-tomorrow-1576457059>
 
 如果你是聋子或者在紧急情况下不能说话，拨打 911 是有问题的。几个小时后，美国领先的移动服务提供商将开始支持在某些地区向 911 发送紧急短信。
 

@@ -1,6 +1,6 @@
 # 如何用一本价格手册在你的杂货预算上节省最多的钱
 
-> 原文:[https://life hacker . com/how-to-save-the-most money on-your-that-1518202640](https://lifehacker.com/how-to-save-the-most-money-on-your-grocery-budget-with-1518202640)
+> 原文：<https://lifehacker.com/how-to-save-the-most-money-on-your-grocery-budget-with-1518202640>
 
 一本记录你最常购买的产品的最低价格的价格手册是在杂货和家庭用品上省钱的最好工具。有了它，你将永远知道什么时候打折真的很划算，什么时候农产品正当时令，什么时候储备必需品。以下是如何自己制作并保存这个经过时间考验的储蓄工具——并且每年节省多达 1000 美元。
 

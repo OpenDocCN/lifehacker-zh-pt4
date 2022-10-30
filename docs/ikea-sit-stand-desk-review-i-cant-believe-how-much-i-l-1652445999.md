@@ -1,6 +1,6 @@
 # 宜家坐/站桌点评:我真不敢相信我有多喜欢这个
 
-> 原文:[https://gizmodo . com/IKEA-sit-stand-desk-review-I-cant-believe-how-much-I-l-1652445999](https://gizmodo.com/ikea-sit-stand-desk-review-i-cant-believe-how-much-i-l-1652445999)
+> 原文：<https://gizmodo.com/ikea-sit-stand-desk-review-i-cant-believe-how-much-i-l-1652445999>
 
 立式办公桌不便宜。或者至少，极其方便的电动汽车不是。这就是为什么当宜家宣布将以不到 500 美元的价格出售一款电动坐/立书桌 时，所有人——包括这位不知道书桌的博主——都吓坏了。最后，大众的健康办公桌选择。终于！
 

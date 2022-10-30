@@ -1,6 +1,6 @@
 # 被误解的金钱数学:为什么利息比你想象的更重要
 
-> 原文:[https://life hacker . com/misseded-money-math-why-interest-maths-tha-1635258906](https://lifehacker.com/misunderstood-money-math-why-interest-matters-more-tha-1635258906)
+> 原文：<https://lifehacker.com/misunderstood-money-math-why-interest-matters-more-tha-1635258906>
 
 利息很可能是普通人每天都要用到的最复杂的数学。就像原力一样，它可以被用来行善，也可以被用来作恶，它将整个银河系凝聚在一起。
 

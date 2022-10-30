@@ -1,6 +1,6 @@
 # 我怎样才能在短时间内辞职而不过河拆桥？
 
-> 原文:[https://life hacker . com/how-can-I-quit-my-job-on-short-not-burning-a-1458469589](https://lifehacker.com/how-can-i-quit-my-job-on-short-notice-without-burning-a-1458469589)
+> 原文：<https://lifehacker.com/how-can-i-quit-my-job-on-short-notice-without-burning-a-1458469589>
 
 亲爱的生活黑客，我刚得到一份很棒的新工作，但他们想让我昨天就开始工作。然而，我不想搞砸我和现在雇主的关系，所以我怎样才能在不造成巨大混乱的情况下立即离职呢？
 

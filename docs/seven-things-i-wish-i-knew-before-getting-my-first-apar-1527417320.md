@@ -1,6 +1,6 @@
 # 在买第一套公寓之前，我希望知道的七件事
 
-> 原文:[https://life hacker . com/seven-things-I-wish-I-know before-get-my-first-APAR-1527417320](https://lifehacker.com/seven-things-i-wish-i-knew-before-getting-my-first-apar-1527417320)
+> 原文：<https://lifehacker.com/seven-things-i-wish-i-knew-before-getting-my-first-apar-1527417320>
 
 每次你租一套公寓，你都会学到一些以前做错的新东西。有许多类型的房东、维修人员、问题和法律可以让你大吃一惊。虽然你不能提前做好一切准备，但有很多事情我希望在买第一套公寓之前就知道。
 

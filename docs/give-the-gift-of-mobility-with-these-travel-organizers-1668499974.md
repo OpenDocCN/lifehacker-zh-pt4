@@ -1,6 +1,6 @@
 # 用这些旅行组织者和工具赠送移动的礼物
 
-> 原文:[https://life hacker . com/give-the-give-gift-of-mobility with-these-travel-organizer-1668499974](https://lifehacker.com/give-the-gift-of-mobility-with-these-travel-organizers-1668499974)
+> 原文：<https://lifehacker.com/give-the-gift-of-mobility-with-these-travel-organizers-1668499974>
 
 对我们中的许多人来说，旅行会给我们带来一些最好的、大开眼界的经历。用这些旅行礼物中的一个来帮助某人满足他们的旅行欲望或使他们频繁的旅行不那么有压力。
 

@@ -1,6 +1,6 @@
 # 我们如何工作，2015 年:艾伦·亨利的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-2015-Alan-henrys-gear-and-productivity-tr-1686103861](https://lifehacker.com/how-we-work-2015-alan-henrys-gear-and-productivity-tr-1686103861)
+> 原文：<https://lifehacker.com/how-we-work-2015-alan-henrys-gear-and-productivity-tr-1686103861>
 
 每周，我们都会分享我们最喜欢的专家和名人的快捷方式、工作空间和生产力提示。本周，我们自言自语，今天，轮到我了。这是我最喜欢的装备、应用和工具，让我在工作时保持高效，在休息时享受乐趣。
 

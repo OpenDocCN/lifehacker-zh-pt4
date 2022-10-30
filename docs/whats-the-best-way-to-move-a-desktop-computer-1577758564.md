@@ -1,6 +1,6 @@
 # 移动台式电脑的最好方法是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-way-to-move a-desktop-computer-1577758564](https://lifehacker.com/whats-the-best-way-to-move-a-desktop-computer-1577758564)
+> 原文：<https://lifehacker.com/whats-the-best-way-to-move-a-desktop-computer-1577758564>
 
 亲爱的 Lifehacker，我马上就要搬家了，我想确保我心爱的电脑一路平安。我可以信任搬运工，但这明智吗？移动电脑和我所有的设备的最佳方式是什么？
 

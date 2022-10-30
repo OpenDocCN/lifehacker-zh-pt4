@@ -1,6 +1,6 @@
 # 航空主题的工作空间
 
-> 原文:[https://life hacker . com/the-aviation-themed-workspace-1660203897](https://lifehacker.com/the-aviation-themed-workspace-1660203897)
+> 原文：<https://lifehacker.com/the-aviation-themed-workspace-1660203897>
 
 这不是一张普通的桌子。相反，它是一个精心制作的铝覆盖的桌子，设计具有空气动力学的外观。
 

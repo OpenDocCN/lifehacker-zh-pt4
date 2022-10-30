@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名游戏设计师我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-a-a-game-designer-1702637007](https://lifehacker.com/career-spotlight-what-i-do-as-a-game-designer-1702637007)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-game-designer-1702637007>
 
 设计一个视频游戏听起来像是一份梦想的工作:生活在你的想象中，想象其他人会愉快地经历的新世界，并从中获得报酬。当然，将这些想法落实到最终产品中也是一项艰巨的工作。
 

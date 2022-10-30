@@ -1,6 +1,6 @@
 # 生产力 101:GTD 哲学入门
 
-> 原文:[https://life hacker . com/productivity-101-a-primer-to-the-getting-things-done-1551880955](https://lifehacker.com/productivity-101-a-primer-to-the-getting-things-done-1551880955)
+> 原文：<https://lifehacker.com/productivity-101-a-primer-to-the-getting-things-done-1551880955>
 
 把事情做完，或者 GTD，是一个让你变得有条理并保持高效的系统。表面上看起来可能很复杂，但最终目标是花更少的时间做你必须做的事情，这样你就有更多的时间做你想做的事情。让我们来分解一下，看看你如何将简化版应用到你的生活中。
 

@@ -1,6 +1,6 @@
 # 你现在可以合法解锁你的手机了，以下是这对你的意义
 
-> 原文:[https://life hacker . com/you-can-now-legal-unlock-your-phone-heres-what-I-1614787933](https://lifehacker.com/you-can-now-legally-unlock-your-cellphone-heres-what-i-1614787933)
+> 原文：<https://lifehacker.com/you-can-now-legally-unlock-your-cellphone-heres-what-i-1614787933>
 
 今天，总统兑现了他的承诺，签署了《解锁消费者选择和无线竞争法案》。这意味着解锁你的手机在其他运营商 上使用再次合法。然而，此举只是暂时的。以下是发生的事情以及它对你的影响。
 

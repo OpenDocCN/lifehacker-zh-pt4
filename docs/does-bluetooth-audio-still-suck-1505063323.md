@@ -1,6 +1,6 @@
 # 蓝牙音响还吸吗？
 
-> 原文:[https://life hacker . com/does-bluetooth-audio-still-suck-1505063323](https://lifehacker.com/does-bluetooth-audio-still-suck-1505063323)
+> 原文：<https://lifehacker.com/does-bluetooth-audio-still-suck-1505063323>
 
 亲爱的 Lifehacker，
 我想要一副无线耳机在我工作的时候戴，但是我一直听说蓝牙音频听起来很可怕。不久前我也有一双，通过它们的一切听起来都像机器人一样。我的朋友说他们已经走了很长的路。结论是什么？这年头蓝牙耳机好听吗？

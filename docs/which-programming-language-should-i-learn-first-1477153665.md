@@ -1,6 +1,6 @@
 # 应该先学哪种编程语言？
 
-> 原文:[https://life hacker . com/which-programming-language-should-I-learn-first-1477153665](https://lifehacker.com/which-programming-language-should-i-learn-first-1477153665)
+> 原文：<https://lifehacker.com/which-programming-language-should-i-learn-first-1477153665>
 
 亲爱的 Lifehacker，
 关于学习编码，我决定试一试。问题是，我不确定从哪里开始。对于我这样的初学者来说，最好的编程语言是什么？

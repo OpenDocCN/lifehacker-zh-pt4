@@ -1,6 +1,6 @@
 # 大通银行被黑，8300 万账户信息被盗
 
-> 原文:[https://life hacker . com/chase-bank-hacked-info-stocked-for-8300 万账户-1642063956](https://lifehacker.com/chase-bank-hacked-info-stolen-for-83-million-accounts-1642063956)
+> 原文：<https://lifehacker.com/chase-bank-hacked-info-stolen-for-83-million-accounts-1642063956>
 
 昨晚，摩根大通公司披露了影响 8300 万家庭和小企业账户的数据泄露范围。有好消息也有坏消息。
 

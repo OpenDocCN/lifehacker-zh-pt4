@@ -1,6 +1,6 @@
 # 系统管理员的有序背包
 
-> 原文:[https://life hacker . com/the-system-administrator s-organized-backpack-1631965675](https://lifehacker.com/the-system-administrators-organized-backpack-1631965675)
+> 原文：<https://lifehacker.com/the-system-administrators-organized-backpack-1631965675>
 
 系统管理员每天都需要为各种各样的问题做好准备。读者克里斯·柯林斯分享了他整理得很好的包，帮助他做到了这一点。
 

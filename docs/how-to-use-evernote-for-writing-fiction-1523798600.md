@@ -1,6 +1,6 @@
 # 如何使用 Evernote 写小说
 
-> 原文:[https://life hacker . com/how-to-use-evernote-for-writing-fiction-1523798600](https://lifehacker.com/how-to-use-evernote-for-writing-fiction-1523798600)
+> 原文：<https://lifehacker.com/how-to-use-evernote-for-writing-fiction-1523798600>
 
 Evernote 是一个跨平台的应用程序，它的工作方式有点像数字文件柜。我们已经讨论了为什么这么多人使用，以及如果你还没有上瘾的话，你应该如何再试试。但是今天，我们想更仔细地看看你会如何用它来做一些特定的事情:写小说。
 

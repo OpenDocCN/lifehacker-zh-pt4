@@ -1,6 +1,6 @@
 # 请教专家:关于内向
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-innervous-1634824190](https://lifehacker.com/ask-an-expert-all-about-introversion-1634824190)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-introversion-1634824190>
 
 内向和外向的话题一直是讨论的温床——尤其是在网上，我们都在化身背后展示自己，并控制我们如何与他人互动。这些术语到底是什么意思？人存在于两者之间的光谱上吗，你能改变吗？我们去问问心理医生吧。
 

@@ -1,6 +1,6 @@
 # 让我们看看你的思考点
 
-> 原文:[https://life hacker . com/show-us-your-thinking-spot-1458373485](https://lifehacker.com/show-us-your-thinking-spot-1458373485)
+> 原文：<https://lifehacker.com/show-us-your-thinking-spot-1458373485>
 
 当我们有一些真正的思考要做的时候，我们很多人都有一个特别喜欢去的地方。也许是一把舒适的椅子，一个晒太阳的地方，或者是你最喜欢的徒步旅行路线。我们想看看你在哪里完成你的思考。
 

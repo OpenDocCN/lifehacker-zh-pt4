@@ -1,6 +1,6 @@
 # 当讨债人开始打电话时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-when-due-collectors-start-calling-1710253131](https://lifehacker.com/what-to-do-when-debt-collectors-start-calling-1710253131)
+> 原文：<https://lifehacker.com/what-to-do-when-debt-collectors-start-calling-1710253131>
 
 如果你负债累累，讨债人很有可能会找到你。毕竟，那是他们的工作。当你的财务过去再次困扰你时，它可能是头痛和噩梦之间的任何地方，这取决于你的财务状况。当讨债人开始打电话来时，你应该这么做。
 

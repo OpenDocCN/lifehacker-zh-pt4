@@ -1,6 +1,6 @@
 # 如何在大规模枪击中保持安全
 
-> 原文:[https://life hacker . com/how-to-stay-safe-if-you-catch-in-a-mass-shooting-1536809247](https://lifehacker.com/how-to-stay-safe-if-youre-caught-in-a-mass-shooting-1536809247)
+> 原文：<https://lifehacker.com/how-to-stay-safe-if-youre-caught-in-a-mass-shooting-1536809247>
 
 在一个完美的世界里，当人们去购物、工作、上学、乘坐公共交通工具或只是处理日常事务时，没有人需要担心暴力的威胁。不幸的是，我们并不是生活在一个完美的世界里。在提供帮助你充分利用生活的建议中，我们至少能做的是在紧急情况下帮助你保护生活。
 

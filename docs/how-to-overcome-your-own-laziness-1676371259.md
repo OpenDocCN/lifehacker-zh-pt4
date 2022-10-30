@@ -1,6 +1,6 @@
 # 如何克服自己的懒惰
 
-> 原文:[https://life hacker . com/how-to-克服自己的懒惰-1676371259](https://lifehacker.com/how-to-overcome-your-own-laziness-1676371259)
+> 原文：<https://lifehacker.com/how-to-overcome-your-own-laziness-1676371259>
 
 尽管你的意图很好，但你可能会有休息日。也许是拖延症，也许是纯粹的懒惰——也许两者都是。不管怎样，你可能想把事情做完。当你觉得自己的问题只是单纯的懒惰时，以下是打破这种循环的方法。
 

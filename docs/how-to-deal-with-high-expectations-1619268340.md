@@ -1,6 +1,6 @@
 # 如何应对高期望值
 
-> 原文:[https://life hacker . com/how-to-deal-with-high-expectations-1619268340](https://lifehacker.com/how-to-deal-with-high-expectations-1619268340)
+> 原文：<https://lifehacker.com/how-to-deal-with-high-expectations-1619268340>
 
 我们努力实现自己和他人的期望。有时候，它们会让人望而生畏，但是忽视它们不会让它们消失。你需要学会如何应对它们，并迎接挑战。
 

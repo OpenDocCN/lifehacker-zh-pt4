@@ -1,6 +1,6 @@
 # 为什么休假可能是提高生产力的最佳方式
 
-> 原文:[https://life hacker . com/why-take-a-vacation-may-the-best-way to-improve-1641754592](https://lifehacker.com/why-taking-a-vacation-might-be-the-best-way-to-improve-1641754592)
+> 原文：<https://lifehacker.com/why-taking-a-vacation-might-be-the-best-way-to-improve-1641754592>
 
 帮助你生产更好的工作和过更好的生活质量的日常优化技术对你的日常生活非常有帮助，但是我们经常陷入工作中而忘记了放松。事实上，我们大大低估了我们需要休息的程度。真正的突破。
 

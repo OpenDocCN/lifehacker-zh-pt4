@@ -1,6 +1,6 @@
 # 如何停止工作，晚上回家
 
-> 原文:[https://life hacker . com/how-to-stop-work-and-home-night-5832503](https://lifehacker.com/how-to-stop-working-and-go-home-at-night-5832503)
+> 原文：<https://lifehacker.com/how-to-stop-working-and-go-home-at-night-5832503>
 
 我们中的许多人在漫长的一天结束时都迫不及待地收拾行李回家:我们数着时间，一旦轮班结束，我们就出门了。对于其他人来说，准时离开是一种耻辱，或者更糟，我们很难强迫自己离开办公室，不管我们是否热爱我们的工作。这里有一些方法可以打破加班的怪圈，让你的夜晚和理智回来。
 

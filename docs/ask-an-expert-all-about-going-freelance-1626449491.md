@@ -1,6 +1,6 @@
 # 问专家:关于成为自由职业者
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-going-freelance-1626449491](https://lifehacker.com/ask-an-expert-all-about-going-freelance-1626449491)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-going-freelance-1626449491>
 
 全职自由职业者是一个困难的、有回报的、对一些人来说非常理想的选择。许多人放弃了朝九晚五的稳定工作，转而从事自由职业，还有一些人只是想兼职赚点外快。但是当你投身自由职业时，有很多未知的变量。
 

@@ -1,6 +1,6 @@
 # 如何开始烙画艺术(又名“木材燃烧”)
 
-> 原文:[https://life hacker . com/how-to-start-with-the-art-of-pyrography-aka-woo-1711882248](https://lifehacker.com/how-to-get-started-with-the-art-of-pyrography-aka-woo-1711882248)
+> 原文：<https://lifehacker.com/how-to-get-started-with-the-art-of-pyrography-aka-woo-1711882248>
 
 烙画是一种便宜又有趣的艺术，可以真正为你的 DIY 项目增添趣味。你只需要一支烙画笔、一块干净的木头和你的想象力，就能创造出独一无二的物品。
 

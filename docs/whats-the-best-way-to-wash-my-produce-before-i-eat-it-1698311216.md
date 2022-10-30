@@ -1,6 +1,6 @@
 # 在我吃之前，最好的清洗方法是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-way to-wash-my-product-before-I-eat-it 1698311216](https://lifehacker.com/whats-the-best-way-to-wash-my-produce-before-i-eat-it-1698311216)
+> 原文：<https://lifehacker.com/whats-the-best-way-to-wash-my-produce-before-i-eat-it-1698311216>
 
 亲爱的生活黑客，杀虫剂和致病细菌在我的水果和蔬菜上是不受欢迎的客人。但是洗涤产品真的能去除它们吗？我必须买一种特殊的产品吗，或者我可以在家里做一些同样好的东西吗？
 

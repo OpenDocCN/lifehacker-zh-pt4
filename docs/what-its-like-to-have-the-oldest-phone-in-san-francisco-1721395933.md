@@ -1,6 +1,6 @@
 # 拥有旧金山最古老的电话是什么感觉
 
-> 原文:[https://gizmodo . com/what-its-like-to-have-the-old-phone-in-San Francisco-1721395933](https://gizmodo.com/what-its-like-to-have-the-oldest-phone-in-san-francisco-1721395933)
+> 原文：<https://gizmodo.com/what-its-like-to-have-the-oldest-phone-in-san-francisco-1721395933>
 
 我住在世界上最著名的科技城，周围都是最先进的个人电子设备。然而，没有一款手机能像我自己的手机一样吸引如此多的关注。
 

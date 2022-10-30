@@ -1,6 +1,6 @@
 # 全局监视器桌面
 
-> 原文:[https://life hacker . com/the-global-monitor-desktop-1691706838](https://lifehacker.com/the-global-monitor-desktop-1691706838)
+> 原文：<https://lifehacker.com/the-global-monitor-desktop-1691706838>
 
 [杰罗姆](http://jeromemasson.kinja.com/) 对他的工作笔记本电脑没有管理员权限(这是有道理的)，但他不想让这阻止他给它添加一点个性。结果是这个好看的，信息丰富的，自定义的 Windows 桌面。他是这样设计的。
 

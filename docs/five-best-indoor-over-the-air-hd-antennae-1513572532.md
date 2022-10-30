@@ -1,6 +1,6 @@
 # 五款最佳室内无线高清天线
 
-> 原文:[https://life hacker . com/five-best-室内无线高清天线-1513572532](https://lifehacker.com/five-best-indoor-over-the-air-hd-antennae-1513572532)
+> 原文：<https://lifehacker.com/five-best-indoor-over-the-air-hd-antennae-1513572532>
 
 切断联系并不意味着你必须完全放弃看电视。肯定有流媒体视频，但一个好的空中(OTA)天线可以从你所在地区的电视台捕捉免费的数字高清广播，并在你的大屏幕上漂亮地显示出来。本周，我们将根据您的提名，选出五款最佳 OTA 天线。
 

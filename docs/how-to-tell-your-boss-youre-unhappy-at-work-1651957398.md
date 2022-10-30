@@ -1,6 +1,6 @@
 # 如何告诉你的老板你工作不开心
 
-> 原文:[https://life hacker . com/how-to-tell-your-boss-you-uncle-in-work-1651957398](https://lifehacker.com/how-to-tell-your-boss-youre-unhappy-at-work-1651957398)
+> 原文：<https://lifehacker.com/how-to-tell-your-boss-youre-unhappy-at-work-1651957398>
 
 在一个理想的世界里，我们的工作总是充满挑战、引人入胜、回报丰厚，但情况并非总是如此。你如何处理工作中的不愉快？理想情况下，可能只需要一点小小的调整就能让你的职业生涯重回更令人满意的轨道，你可以从告诉你的老板开始。
 

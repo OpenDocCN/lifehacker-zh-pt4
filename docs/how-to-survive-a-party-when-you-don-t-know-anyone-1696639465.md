@@ -1,6 +1,6 @@
 # 如何在一个不认识任何人的派对上生存
 
-> 原文:[https://life hacker . com/how-to-survive-a-party-when you-know-any one-1696639465](https://lifehacker.com/how-to-survive-a-party-when-you-don-t-know-anyone-1696639465)
+> 原文：<https://lifehacker.com/how-to-survive-a-party-when-you-don-t-know-anyone-1696639465>
 
 聚会应该是有趣的，而不是可怕的——但是试图在一个全是陌生人的房间里开始一场对话可能是令人痛苦的。然而，不要害怕:用正确的技巧，你不仅可以生存，而且可以真正享受生活。
 

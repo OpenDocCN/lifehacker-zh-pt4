@@ -1,6 +1,6 @@
 # 请教专家:学习编码的全部内容
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-learning-to-code-1623241460](https://lifehacker.com/ask-an-expert-all-about-learning-to-code-1623241460)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-learning-to-code-1623241460>
 
 有些人说，不管你在哪个领域工作，我们都应该了解一点编码，至少帮助我们理解我们每天使用的无处不在的软件工具。但是有这么多编程语言，您从哪里开始呢？
 

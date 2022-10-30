@@ -1,6 +1,6 @@
 # 世界上最伟大的天才的日程安排
 
-> 原文:[https://gizmodo . com/youll-be-shock-in-the-world-great-genius-d-1556947182](https://gizmodo.com/youll-be-surprised-at-the-worlds-greatest-geniuses-d-1556947182)
+> 原文：<https://gizmodo.com/youll-be-surprised-at-the-worlds-greatest-geniuses-d-1556947182>
 
 贝多芬、莫扎特、弗洛伊德、狄更斯、达尔文、勒·柯布西耶或本杰明·富兰克林是如何做到如此多产，并创作出艺术和科学史上一些最重要的作品的？看看 Info We Trust 的这个伟大的可视化，并在他们中的一些人实际上并没有工作那么多的事实中找到安慰。
 

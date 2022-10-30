@@ -1,6 +1,6 @@
 # 我是瑞安·哈乐黛，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Ryan-holiday-and-this-is-how-I-work-1485776137](https://lifehacker.com/im-ryan-holiday-and-this-is-how-i-work-1485776137)
+> 原文：<https://lifehacker.com/im-ryan-holiday-and-this-is-how-i-work-1485776137>
 
 在过去的一周里，Ryan Holiday 读了七本书，从奥斯汀飞往亚特兰大，迈阿密，亚特兰大，洛杉矶，毛伊岛，并忙于两份高要求的工作:有争议的服装零售商 American Apparel 的营销总监和创意营销公司 StoryArk 的合伙人。(光是写那句话就让我累了。)瑞安也是畅销书作家和 Gawker chatter 的 [临时主题](http://gawker.com/5860826/tucker-max-and-dov-charney-together-in-a-single-book) 。我采访了这位 26 岁的媒体奇才，看看他是如何应付这一切的。
 

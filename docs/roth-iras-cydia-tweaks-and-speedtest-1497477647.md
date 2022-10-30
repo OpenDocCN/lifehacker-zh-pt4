@@ -1,6 +1,6 @@
 # 罗斯个人退休帐户、Cydia 调整和 Speedtest
 
-> 原文:[https://life hacker . com/Roth-iras-cy dia-tweaks-and-speed test-1497477647](https://lifehacker.com/roth-iras-cydia-tweaks-and-speedtest-1497477647)
+> 原文：<https://lifehacker.com/roth-iras-cydia-tweaks-and-speedtest-1497477647>
 
 读者提供了最大化 Roth IRAs、更新 Cydia 调整和在命令行运行 Speedtest 的最佳技巧。
 

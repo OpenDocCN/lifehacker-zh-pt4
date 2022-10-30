@@ -1,6 +1,6 @@
 # 在每个州，100 美元到底值多少钱
 
-> 原文:[https://life hacker . com/how-much-100-is-really-value-in-every-state-1624621738](https://lifehacker.com/how-much-100-is-really-worth-in-every-state-1624621738)
+> 原文：<https://lifehacker.com/how-much-100-is-really-worth-in-every-state-1624621738>
 
 100 美元的面值在所有 50 个州都是一样的，但说到实际购买力，你的里程数可能会因你所在的地方而异。这些州为你的钱提供了最大的回报。
 

@@ -1,6 +1,6 @@
 # 最好的万能遥控器是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-universal-remote-control-1726729528](https://lifehacker.com/whats-the-best-universal-remote-control-1726729528)
+> 原文：<https://lifehacker.com/whats-the-best-universal-remote-control-1726729528>
 
 自从我们谈论通用遥控器 以来，已经有一段时间了，情况已经发生了显著的变化。仍然有很多很棒的产品，从红外遥控器到可以从一个控制器或你的手机控制你家里一切的新型号。本周我们想听听你认为哪些是最好的。
 

@@ -1,6 +1,6 @@
 # 中央情报局逃脱和逃避生存袋
 
-> 原文:[https://life hacker . com/the-CIA-escape-and-escape-survival-bag-1648475030](https://lifehacker.com/the-cia-escape-and-evasion-survival-bag-1648475030)
+> 原文：<https://lifehacker.com/the-cia-escape-and-evasion-survival-bag-1648475030>
 
 中情局特工要做好一切准备，有时这意味着依靠有限的资源生存。他们的生存工具包很小，但包括出城住一段时间所需的一切。
 

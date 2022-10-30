@@ -1,6 +1,6 @@
 # 以下是如何诊断无法启动的发动机
 
-> 原文:[https://jalopnik . com/heres-how-you-diagnose-a-engine-that won-start-1717491831](https://jalopnik.com/heres-how-you-diagnose-an-engine-that-wont-start-1717491831)
+> 原文：<https://jalopnik.com/heres-how-you-diagnose-an-engine-that-wont-start-1717491831>
 
 每一个糟糕的日子都是从一辆发动不了的车开始的。我们在电影里看到过，在书里读到过，事情就是这样。所以，这里有一些简单的步骤，你可以把糟糕的一天扼杀在萌芽状态。让我们弄清楚为什么你的车不跑了！
 

@@ -1,6 +1,6 @@
 # 改善你整天盯着的显示器的十大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-improve-you-monitor-the-screen-you-sta-1681451262](https://lifehacker.com/top-10-ways-to-improve-your-monitor-the-screen-you-sta-1681451262)
+> 原文：<https://lifehacker.com/top-10-ways-to-improve-your-monitor-the-screen-you-sta-1681451262>
 
 我们中的许多人整天都呆在办公桌和电脑后面，这使得我们使用的硬件相当重要。让我们对我们的显示器进行更多的思考，用这十个技巧来充分利用这些屏幕。
 

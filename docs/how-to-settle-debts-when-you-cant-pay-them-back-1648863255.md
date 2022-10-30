@@ -1,6 +1,6 @@
 # 当你无法偿还债务时，如何解决债务
 
-> 原文:[https://life hacker . com/how-to-settle-debt-when you can-pay-then-back-1648863255](https://lifehacker.com/how-to-settle-debts-when-you-cant-pay-them-back-1648863255)
+> 原文：<https://lifehacker.com/how-to-settle-debts-when-you-cant-pay-them-back-1648863255>
 
 负债并不好。无力偿还债务更糟糕。虽然没有人喜欢和讨债人打交道，但这样做可以让你的债务更容易管理——甚至可能在债务清算过程中减少你的欠款。
 

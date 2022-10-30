@@ -1,6 +1,6 @@
 # 什么是胆固醇，我为什么要关心它？
 
-> 原文:[https://life hacker . com/what-is-chocolate-and-why-I-should-care-it-1475427781](https://lifehacker.com/what-is-cholesterol-and-why-should-i-care-about-it-1475427781)
+> 原文：<https://lifehacker.com/what-is-cholesterol-and-why-should-i-care-about-it-1475427781>
 
 亲爱的生活黑客，我对胆固醇了解不多，只知道它存在于食物中，我不想体内胆固醇含量过高。但是到底是什么呢？它有什么作用，为什么我需要关心它？
 

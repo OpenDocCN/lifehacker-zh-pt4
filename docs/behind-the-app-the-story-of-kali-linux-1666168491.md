@@ -1,6 +1,6 @@
 # 应用背后:Kali Linux 的故事
 
-> 原文:[https://life hacker . com/behind-the-app-the-story-of-kali-Linux-1666168491](https://lifehacker.com/behind-the-app-the-story-of-kali-linux-1666168491)
+> 原文：<https://lifehacker.com/behind-the-app-the-story-of-kali-linux-1666168491>
 
 如果你曾经尝试过用 [破解 Wi-FI 密码](https://lifehacker.com/how-to-hack-your-own-network-and-beef-up-its-security-w-1649785071) 或 [来测试你网络上的安全漏洞](http://lifehacker.com/linux-security-distros-compared-tails-vs-kali-vs-qub-1658139404) ，那么你很可能熟悉 [卡莉 Linux](https://www.kali.org/) 。这是一个以安全为中心的 Linux 版本，它提供了大量的工具来找出弱点并保护您的网络。
 

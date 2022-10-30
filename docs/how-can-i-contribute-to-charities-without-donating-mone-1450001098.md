@@ -1,6 +1,6 @@
 # 不捐钱怎么给慈善机构做贡献？
 
-> 原文:[https://life hacker . com/how-I-can-contribute-to-charities-without-done-1450001098](https://lifehacker.com/how-can-i-contribute-to-charities-without-donating-mone-1450001098)
+> 原文：<https://lifehacker.com/how-can-i-contribute-to-charities-without-donating-mone-1450001098>
 
 亲爱的生活黑客，我很想给慈善机构捐款，但我手头没有很多现金。如果我真的得到一些闲钱，我想确保这些钱是以负责任的方式捐赠的。我怎样才能以一种真正帮助人们的方式参与进来？
 

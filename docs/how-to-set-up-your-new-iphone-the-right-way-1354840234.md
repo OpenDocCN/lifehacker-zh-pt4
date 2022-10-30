@@ -1,6 +1,6 @@
 # 如何正确设置你的新 iPhone
 
-> 原文:[https://gizmodo . com/how-to-set-up-your-new-iphone-the-right-way-1354840234](https://gizmodo.com/how-to-set-up-your-new-iphone-the-right-way-1354840234)
+> 原文：<https://gizmodo.com/how-to-set-up-your-new-iphone-the-right-way-1354840234>
 
 你有一部新的 iPhone！可能是稍微大一点的 iPhone 6 或者更大的——还是 6 Plus。不管怎样，现在怎么办？无论你是第一次使用 iPhone 还是 iOS pro，以下是你开始使用新 iPhone 所需要的。
 

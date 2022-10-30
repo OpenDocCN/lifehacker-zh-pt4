@@ -1,6 +1,6 @@
 # 如何抛弃谷歌语音(并保留所有最好的功能)
 
-> 原文:[https://life hacker . com/how-to-ditch-Google-voice-and-keep-all-the-best-featur-1601649018](https://lifehacker.com/how-to-ditch-google-voice-and-keep-all-the-best-featur-1601649018)
+> 原文：<https://lifehacker.com/how-to-ditch-google-voice-and-keep-all-the-best-featur-1601649018>
 
 Google Voice 是我们已经喜欢了很久的服务，但是任何一个对自己诚实的语音用户都知道这项服务已经成为二等公民有一段时间了。如果你觉得是时候继续前进了，这里有一些方法可以帮助你轻松过渡(甚至在这个过程中保留你最喜欢的功能)。
 

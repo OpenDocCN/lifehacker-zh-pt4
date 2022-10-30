@@ -1,6 +1,6 @@
 # 最好的项目和装备来建立你的秘密巢穴
 
-> 原文:[https://life hacker . com/the-best-projects-and-gear-to-set-up-your-secret-lair-1456037488](https://lifehacker.com/the-best-projects-and-gear-to-set-up-your-secret-lair-1456037488)
+> 原文：<https://lifehacker.com/the-best-projects-and-gear-to-set-up-your-secret-lair-1456037488>
 
 有人称之为他们的战斗站，有人称之为他们的指挥中心。为了纪念邪恶周，我们将把你的家庭办公室称为你的秘密巢穴，这里有一些最好的 DIY 项目和设备，你可以用来保持它的安全，并为你接下来可能制定的任何邪恶计划做好准备。
 

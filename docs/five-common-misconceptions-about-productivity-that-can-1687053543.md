@@ -1,6 +1,6 @@
 # 关于生产力的五个常见误解会阻碍你的发展
 
-> 原文:[https://life hacker . com/five-common-misconcepts-on-productivity-than-can-1687053543](https://lifehacker.com/five-common-misconceptions-about-productivity-that-can-1687053543)
+> 原文：<https://lifehacker.com/five-common-misconceptions-about-productivity-that-can-1687053543>
 
 我们都想更聪明地工作，但我们是在进步还是在原地打转？例如，你可能会听到有人说他们在压力下工作得最好，但这可能是一个证明拖延的空洞说法。这里有一些常见的生产率谎言，我们告诉自己，这些谎言不仅没有帮助我们的工作，反而阻碍了我们的工作。
 

@@ -1,6 +1,6 @@
 # 当你的收入变化时，你如何做预算？
 
-> 原文:[https://life hacker . com/how-do-you-budget-when your-income-variable-1612398981](https://lifehacker.com/how-do-you-budget-when-your-income-varies-1612398981)
+> 原文：<https://lifehacker.com/how-do-you-budget-when-your-income-varies-1612398981>
 
 也许你是一个自由职业者，每个月都有不同的项目。或者你有一份副业，收入不可预测。我们中的许多人都有不稳定的收入来源，有时每月的收入会有很大的变化。如果你在这条船上，你怎么做预算？
 

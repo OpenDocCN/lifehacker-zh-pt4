@@ -1,6 +1,6 @@
 # iOS 8 的最佳第三方键盘
 
-> 原文:[https://life hacker . com/the-best-third-party-keyboards-for-IOs-8-1636566071](https://lifehacker.com/the-best-third-party-keyboards-for-ios-8-1636566071)
+> 原文：<https://lifehacker.com/the-best-third-party-keyboards-for-ios-8-1636566071>
 
 现在 iOS 8 已经上市，它带来了大量第三方键盘，这些键盘提供了苹果内置键盘所没有的功能。从更好的预测文本到云同步和滑动输入，有几个可供选择，包括一些你会认识的名字。让我们来看看精英中的精英。
 

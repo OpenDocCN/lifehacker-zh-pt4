@@ -1,6 +1,6 @@
 # 高端耳机真的物有所值吗？
 
-> 原文:[https://life hacker . com/are-高端-耳机-真正物超所值-1597964432](https://lifehacker.com/are-high-end-headphones-really-worth-the-money-1597964432)
+> 原文：<https://lifehacker.com/are-high-end-headphones-really-worth-the-money-1597964432>
 
 亲爱的 Lifehacker，
 你们经常谈论耳机，其中一些真的很贵——比如 200 美元或更多。我有一副 20 美元的耳机，我很喜欢，我一直想知道:那些高端耳机真的值得吗？贵的耳机有什么特别的地方让它们更好？

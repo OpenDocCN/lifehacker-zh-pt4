@@ -1,6 +1,6 @@
 # 如何将一个树莓派变成一个私人流媒体音乐服务
 
-> 原文:[https://life hacker . com/how-to-turn-a-raspberry-pi-to-a-private-streaming-mus-1583221462](https://lifehacker.com/how-to-turn-a-raspberry-pi-into-a-private-streaming-mus-1583221462)
+> 原文：<https://lifehacker.com/how-to-turn-a-raspberry-pi-into-a-private-streaming-mus-1583221462>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-2aca18JURvg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-2aca18JURvg&start=0) 
 

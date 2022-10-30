@@ -1,6 +1,6 @@
 # 我应该用 CCleaner 清洗什么？
 
-> 原文:[https://life hacker . com/what-should-I-be-clean er-1677083816](https://lifehacker.com/what-should-i-be-cleaning-with-ccleaner-1677083816)
+> 原文：<https://lifehacker.com/what-should-i-be-cleaning-with-ccleaner-1677083816>
 
 亲爱的 Lifehacker，
 我听说过你(和其他人) [推荐 CCleaner 作为 Windows](https://lifehacker.com/what-kind-of-maintenance-do-i-need-to-do-on-my-windows-5815256) 的维护工具，但我真的不知道该怎么处理它。我应该打扫所有的东西吗？那真的会让我的电脑更快吗？我有点不知所措了，救命！

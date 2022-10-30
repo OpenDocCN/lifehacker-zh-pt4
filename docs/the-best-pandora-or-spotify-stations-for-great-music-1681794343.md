@@ -1,6 +1,6 @@
 # 工作时欣赏美妙音乐的最佳 Pandora(或 Spotify)电台
 
-> 原文:[https://life hacker . com/the-best-Pandora-or-Spotify-stations-for-great-music-1681794343](https://lifehacker.com/the-best-pandora-or-spotify-stations-for-great-music-1681794343)
+> 原文：<https://lifehacker.com/the-best-pandora-or-spotify-stations-for-great-music-1681794343>
 
 工作时听音乐是生活的乐趣之一，但找到合适的音乐并不容易。你需要一些你喜欢的东西，但是一些不会让你分心或者需要大量管理的东西。让我们列出最好的 Pandora、Spotify 或其他电台风格的电台，让你在高效工作的同时欣赏美妙的音乐。
 

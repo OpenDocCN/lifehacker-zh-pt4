@@ -1,6 +1,6 @@
 # 如何避免使用过多的智能手机数据？
 
-> 原文:[https://life hacker . com/how-can-I-avoid-use-too-much-smart phone-data-1479097074](https://lifehacker.com/how-can-i-avoid-using-too-much-smartphone-data-1479097074)
+> 原文：<https://lifehacker.com/how-can-i-avoid-using-too-much-smartphone-data-1479097074>
 
 亲爱的 Lifehacker，
 我正在使用另外三部手机进行家庭共享计划。我们每个月都共享大约 4GB 的数据，但我必须确保没有人会超过。我该如何设置每个人的手机，让他们在用完配额后停止使用数据，并“鼓励”他们使用 Wi-Fi，包括我的手机？

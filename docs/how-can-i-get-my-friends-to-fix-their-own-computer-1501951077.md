@@ -1,6 +1,6 @@
 # 我如何能让我的朋友修理他们自己的电脑？
 
-> 原文:[https://life hacker . com/how-can-I-get-my-friends-fix-own-computer-1501951077](https://lifehacker.com/how-can-i-get-my-friends-to-fix-their-own-computer-1501951077)
+> 原文：<https://lifehacker.com/how-can-i-get-my-friends-to-fix-their-own-computer-1501951077>
 
 亲爱的生活黑客，我发现我总是在修理我朋友或亲戚的电脑。我不介意帮忙，但是我一次又一次地被叫去解决同样的问题。我怎样才能让人们学会如何解决他们自己的问题？
 

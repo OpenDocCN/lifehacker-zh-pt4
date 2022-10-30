@@ -1,6 +1,6 @@
 # 如果你的社会安全号码在黑客攻击中被盗，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-your-social-security-number-has-stol-1684690096](https://lifehacker.com/what-to-do-if-your-social-security-number-has-been-stol-1684690096)
+> 原文：<https://lifehacker.com/what-to-do-if-your-social-security-number-has-been-stol-1684690096>
 
 上周，健康保险公司 Anthem 丢失了超过 8000 万份患者记录，其中包括社会保险号、电子邮件和物理地址等敏感信息。余波已经开始，Anthem 的客户 [受到网络钓鱼诈骗](https://gizmodo.com/beware-anthem-hack-victims-are-getting-bombarded-by-ph-1684285394) 的狂轰滥炸。如果你是 Anthem 的客户——或者只是担心下一次被黑——以下是你需要做的保护自己的方法。
 

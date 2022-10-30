@@ -1,6 +1,6 @@
 # 五个最好的唱片播放器
 
-> 原文:[https://lifehacker.com/five-best-record-players-1721432938](https://lifehacker.com/five-best-record-players-1721432938)
+> 原文：<https://lifehacker.com/five-best-record-players-1721432938>
 
 无论你有黑胶唱片，你是一名 DJ，还是第一次接触黑胶唱片，你都需要一台好的唱机。可靠、耐用且易于维护的产品。本周我们将根据你们的提名选出五位最佳选手。
 

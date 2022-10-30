@@ -1,6 +1,6 @@
 # 十辆最适合青少年的新车
 
-> 原文:[https://jalopnik . com/the-ten-best-first-cars for a ten-gear head-1606532376](https://jalopnik.com/the-ten-best-first-cars-for-a-teenage-gearhead-1606532376)
+> 原文：<https://jalopnik.com/the-ten-best-first-cars-for-a-teenage-gearhead-1606532376>
 
 IIHS 的青少年最佳汽车排行榜推荐了一些安全的汽车，但不太好玩。这是年轻汽车爱好者的十大最佳选择。
 

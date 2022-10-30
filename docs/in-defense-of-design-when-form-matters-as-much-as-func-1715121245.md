@@ -1,6 +1,6 @@
 # 为设计辩护:当形式和功能同样重要
 
-> 原文:[https://life hacker . com/in-defense-of-design-when-form-matter-as-func-1715121245](https://lifehacker.com/in-defense-of-design-when-form-matters-as-much-as-func-1715121245)
+> 原文：<https://lifehacker.com/in-defense-of-design-when-form-matters-as-much-as-func-1715121245>
 
 每个人都认为自己理解好的设计，虽然我们都理解自己的品味，但要让产品设计得好，不仅仅是让它漂亮。形式和功能必须结合起来才能很好地协同工作，但它们都需要存在。这就是为什么形式很重要，当它使产品变得更好时，当过多的形式会使产品变得更差时。
 

@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名软件架构师，我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-a-software-architect-1699203274](https://lifehacker.com/career-spotlight-what-i-do-as-a-software-architect-1699203274)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-software-architect-1699203274>
 
 设计和编码软件时要考虑成千上万的因素，当团队为多个客户开发多个应用程序时，必须有人提供总体方向。代码辩论者是软件架构师，他指导项目从概念到工作产品。
 

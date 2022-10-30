@@ -1,6 +1,6 @@
 # Raspberry Pi 2 更快、更强大，并且现在就可以使用
 
-> 原文:[https://life hacker . com/the-raspberry-pi-2-is-fast-more-powerful-and-avail a-1682814956](https://lifehacker.com/the-raspberry-pi-2-is-faster-more-powerful-and-availa-1682814956)
+> 原文：<https://lifehacker.com/the-raspberry-pi-2-is-faster-more-powerful-and-availa-1682814956>
 
 树莓派很容易成为我们最喜欢的 DIY 设备之一，今天一个全新的模型已经上市。Raspberry Pi 2 的特点是运行速度为 900mHZ 的四核 ARMv7(速度提高了约 6 倍)和 1GB RAM(是 B+型号的两倍)。它仍然只是 35 美元。它现在也可以运行 Windows。
 

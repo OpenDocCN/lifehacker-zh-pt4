@@ -1,6 +1,6 @@
 # 如何选择燃气灶、电磁灶还是电灶
 
-> 原文:[https://life hacker . com/how-to-choose-a-gas-induction-or-electric-sto-1695010555](https://lifehacker.com/how-to-choose-between-a-gas-induction-or-electric-sto-1695010555)
+> 原文：<https://lifehacker.com/how-to-choose-between-a-gas-induction-or-electric-sto-1695010555>
 
 改造厨房意味着很多决定，但对你的烹饪来说，最重要的是你想要什么类型的炉灶。这里有一个关于这三个选项的初级读本，可以帮助你选择最适合你的一个。
 

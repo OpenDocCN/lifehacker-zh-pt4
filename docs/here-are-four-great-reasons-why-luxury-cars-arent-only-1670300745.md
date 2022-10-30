@@ -1,6 +1,6 @@
 # 以下是为什么豪华车不仅仅属于富人的四大理由
 
-> 原文:[https://jalopnik . com/here-is-four-great-rean-why-luxury-cars-arent-only-1670300745](https://jalopnik.com/here-are-four-great-reasons-why-luxury-cars-arent-only-1670300745)
+> 原文：<https://jalopnik.com/here-are-four-great-reasons-why-luxury-cars-arent-only-1670300745>
 
 买二手车，价值才是王道。你需要知道你所得到的每一美元都能带来最好的整体体验。没有什么地方比现代豪华车的低调奢华更能体现这种体验了，幸运的是，这种体验不再局限于非常富有的人。
 

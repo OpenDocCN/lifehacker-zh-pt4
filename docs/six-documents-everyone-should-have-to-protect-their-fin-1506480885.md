@@ -1,6 +1,6 @@
 # 每个人都应该拥有的保护自己财务的六份文件
 
-> 原文:[https://life hacker . com/six-documents-every one-should-has-to-protect-their-fin-1506480885](https://lifehacker.com/six-documents-everyone-should-have-to-protect-their-fin-1506480885)
+> 原文：<https://lifehacker.com/six-documents-everyone-should-have-to-protect-their-fin-1506480885>
 
 抱歉，我们必须这么做。这不是最令人兴奋的话题，但如果你没有完成关键的文书工作，你就不能称自己受到了全面保护。以下是你需要控制的六件事。
 

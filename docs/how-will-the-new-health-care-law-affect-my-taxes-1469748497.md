@@ -1,6 +1,6 @@
 # 新的医疗保健法将如何影响我的税收？
 
-> 原文:[https://life hacker . com/how-will-the-new-health-care-law-affect-my-taxes-1469748497](https://lifehacker.com/how-will-the-new-health-care-law-affect-my-taxes-1469748497)
+> 原文：<https://lifehacker.com/how-will-the-new-health-care-law-affect-my-taxes-1469748497>
 
 *[*平价医疗法案*](http://en.wikipedia.org/wiki/Patient_Protection_and_Affordable_Care_Act) *【奥巴马医改】的一个方面就是税收影响。如果你已经有雇主的保险，你还有其他选择吗？在* [*栈交换*](http://money.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=money-94) *的金钱专家都在这里帮忙。**
 

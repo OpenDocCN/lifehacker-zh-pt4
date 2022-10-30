@@ -1,6 +1,6 @@
 # 花费超过其价值的家庭装修项目
 
-> 原文:[https://life hacker . com/home-improvement-projects-than-cost-than-they are-w-1511442981](https://lifehacker.com/home-improvement-projects-that-cost-more-than-theyre-w-1511442981)
+> 原文：<https://lifehacker.com/home-improvement-projects-that-cost-more-than-theyre-w-1511442981>
 
 这里或那里的深度清洁、装饰或翻新项目并没有错，可以提高你的房子的价值(或者只是让它住起来更舒适)。然而，其中一些项目可能是骗局，或者完全没有必要。让我们来看看一些最糟糕的情况，这样你就不会浪费你的钱。
 

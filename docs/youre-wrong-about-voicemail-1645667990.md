@@ -1,6 +1,6 @@
 # 你对语音信箱的看法是错误的
 
-> 原文:[https://gizmodo.com/youre-wrong-about-voicemail-1645667990](https://gizmodo.com/youre-wrong-about-voicemail-1645667990)
+> 原文：<https://gizmodo.com/youre-wrong-about-voicemail-1645667990>
 
 我母亲是不可捉摸的。至少，就语音邮件而言。我们一遍又一遍地重复同一首歌和舞蹈。我:别再给我留语音邮件了。她:*我不懂。这种情况持续了好几年，直到我发现她一直都是对的。*
 

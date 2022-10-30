@@ -1,6 +1,6 @@
 # 新的 Google 相册如何让你的图片库变得更棒
 
-> 原文:[https://life hacker . com/how-the-new-Google-photos-makes-your-picture-library-aw-1708189976](https://lifehacker.com/how-the-new-google-photos-makes-your-picture-library-aw-1708189976)
+> 原文：<https://lifehacker.com/how-the-new-google-photos-makes-your-picture-library-aw-1708189976>
 
 谷歌上周宣布了谷歌照片(Google Photos)，这是一种新的照片托管服务，结合了 Google+ Photos 的所有优点和高质量照片和高清视频的无限免费存储。无论你是第一次尝试，还是登录看看有什么不同，这里有什么新的，以及如何充分利用它。
 

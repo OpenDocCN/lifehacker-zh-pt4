@@ -1,6 +1,6 @@
 # 当你付不起抵押贷款时该怎么办
 
-> 原文:[https://life hacker . com/what-do-what-what-what-what-what-you-behable-your mortgage-payments-1560532857](https://lifehacker.com/what-to-do-when-you-can-t-afford-your-mortgage-payments-1560532857)
+> 原文：<https://lifehacker.com/what-to-do-when-you-can-t-afford-your-mortgage-payments-1560532857>
 
 取消抵押品赎回权是一个可怕的想法。但是许多房主发现他们有失去房子和信用的风险，因为他们不能支付每月的还款。在你到达那个点之前，这里有几个选择供你考虑。
 

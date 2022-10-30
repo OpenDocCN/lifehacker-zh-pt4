@@ -1,6 +1,6 @@
 # 如何从家庭影院电脑获得更好的画质
 
-> 原文:[https://life hacker . com/how-to-get-better-picture-quality-from your-home-theate-1700412363](https://lifehacker.com/how-to-get-better-picture-quality-from-your-home-theate-1700412363)
+> 原文：<https://lifehacker.com/how-to-get-better-picture-quality-from-your-home-theate-1700412363>
 
 一台 [家庭影院电脑](http://lifehacker.com/how-i-built-the-media-center-of-my-dreams-for-under-50-5936546) 让电视比以往任何时候都更方便，但你可能无法获得开箱后的最佳画质。这里有一些改善它的技巧。
 

@@ -1,6 +1,6 @@
 # 请教专家:求职时如何利用社交媒体
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-utilizing-social-media-while-j-1683232436](https://lifehacker.com/ask-an-expert-all-about-utilizing-social-media-while-j-1683232436)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-utilizing-social-media-while-j-1683232436>
 
 当你知道潜在雇主会在谷歌上搜索你的名字时，你会小心翼翼地编辑你的社交媒体形象，让它听起来很专业吗？还是你会漫不经心地让推文满天飞？此外，在找工作时，你如何利用社交媒体为自己带来优势？
 

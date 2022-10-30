@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名航空工程师我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-an-aerospace-engineer-1665681663](https://lifehacker.com/career-spotlight-what-i-do-as-an-aerospace-engineer-1665681663)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-an-aerospace-engineer-1665681663>
 
 从航空诞生到太空时代及以后，航空航天工业改变了运输、商业和通信。无数工程师努力工作，让推动现代世界的技术真正腾飞。但是这份工作到底需要什么呢？航天工程师的平均一天是怎样的？我们采访了该行业的一位资深人士，了解他们的工作到底是什么样的。
 

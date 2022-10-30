@@ -1,6 +1,6 @@
 # 如何在工作中退一步，关注大局
 
-> 原文:[https://life hacker . com/how-to-take-step-back-on-work-and-focus-the-big-pi-1640357922](https://lifehacker.com/how-to-take-a-step-back-at-work-and-focus-on-the-big-pi-1640357922)
+> 原文：<https://lifehacker.com/how-to-take-a-step-back-at-work-and-focus-on-the-big-pi-1640357922>
 
 工作时很容易迷失在杂草中。虽然低头有它的位置，但抬头也同样重要:反思事情的进展，考虑替代策略，问自己一些困难的、高层次的问题。怎么才能退一步看大局？
 

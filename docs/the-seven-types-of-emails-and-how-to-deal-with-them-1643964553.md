@@ -1,6 +1,6 @@
 # 电子邮件的七种类型及其处理方法
 
-> 原文:[https://life hacker . com/the-seven-types-of-emails-and-how-to-deal-them-1643964553](https://lifehacker.com/the-seven-types-of-emails-and-how-to-deal-with-them-1643964553)
+> 原文：<https://lifehacker.com/the-seven-types-of-emails-and-how-to-deal-with-them-1643964553>
 
 我们每天都要处理收件箱超负荷的问题，无论是来自工作的邮件还是关于令人惊讶的遗产的可疑问候。但是你可以把你收到的所有邮件分成七个基本类别，这样可以更容易地处理它们，而不用花一整天的时间。
 

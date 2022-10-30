@@ -1,6 +1,6 @@
 # 柔和的绿色主屏幕
 
-> 原文:[https://life hacker . com/the-soft-green-home-screen-1588896147](https://lifehacker.com/the-soft-green-home-screen-1588896147)
+> 原文：<https://lifehacker.com/the-soft-green-home-screen-1588896147>
 
 Android:我们在这里展示了很多大胆的，虽然有些粗糙的主屏幕。这一设计，承蒙我的彩屏用户 [Jobe1785](http://mycolorscreen.com/jobe1785/) 的好意，走的是一个更平静的外观，有容易看的半透明面板和轻量级图标。
 

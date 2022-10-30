@@ -1,6 +1,6 @@
 # 解决方案架构师的日常包
 
-> 原文:[https://life hacker . com/the-solutions-architects-daily-bag-1615808874](https://lifehacker.com/the-solutions-architects-everyday-bag-1615808874)
+> 原文：<https://lifehacker.com/the-solutions-architects-everyday-bag-1615808874>
 
 有时候，少即是多，解决方案架构师兼 Lifehacker 读者 James Steven 的包足够简约，同时还保留了他每天工作所需的一切。
 

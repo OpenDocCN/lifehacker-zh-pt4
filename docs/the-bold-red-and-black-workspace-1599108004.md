@@ -1,6 +1,6 @@
 # 醒目的红色和黑色工作区
 
-> 原文:[https://life hacker . com/the-bold-red-and-black-workspace-1599108004](https://lifehacker.com/the-bold-red-and-black-workspace-1599108004)
+> 原文：<https://lifehacker.com/the-bold-red-and-black-workspace-1599108004>
 
 没有什么比专门的配色方案更能把一个房间联系在一起了。在这个工作区的情况下，它是大胆的红色墙壁和全黑色的家具和硬件。
 

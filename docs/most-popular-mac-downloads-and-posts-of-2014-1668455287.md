@@ -1,6 +1,6 @@
 # 2014 年最受欢迎的 Mac 下载和帖子
 
-> 原文:[https://life hacker . com/most-popular-MAC-downloads-and-post-of-2014-1668455287](https://lifehacker.com/most-popular-mac-downloads-and-posts-of-2014-1668455287)
+> 原文：<https://lifehacker.com/most-popular-mac-downloads-and-posts-of-2014-1668455287>
 
 Mac 看到了新的(免费！)操作系统以及其他各种优秀的应用程序。让我们来回顾一下我们去年最大和最好的 Mac 帖子。
 

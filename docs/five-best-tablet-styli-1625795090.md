@@ -1,6 +1,6 @@
 # 五款最佳平板电脑触控笔
 
-> 原文:[https://lifehacker.com/five-best-tablet-styli-1625795090](https://lifehacker.com/five-best-tablet-styli-1625795090)
+> 原文：<https://lifehacker.com/five-best-tablet-styli-1625795090>
 
 平板电脑非常适合应用程序、电子邮件、游戏等，但它们也可以用于记笔记、批注甚至绘图。当你开始做这些事情时，一个好的手写笔是非常有用的。本周，我们将根据您的提名，来看看五款最佳平板电脑触控笔。
 

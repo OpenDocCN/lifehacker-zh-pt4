@@ -1,6 +1,6 @@
 # 最好的立式办公桌是什么样的？
 
-> 原文:[https://life hacker . com/whats-the-best-standing-desk-1526401630](https://lifehacker.com/whats-the-best-standing-desk-1526401630)
+> 原文：<https://lifehacker.com/whats-the-best-standing-desk-1526401630>
 
 立式办公桌是避免整天坐着的危险的好方法，但它们不是万灵药。除了 [你还是应该四处走动](http://lifehacker.com/the-desk-jockeys-schedule-to-healthy-living-behind-a-d-516248751) 之外，有些立式办公桌比其他的更可调，更实惠，也更容易摆放。本周我们想知道你认为哪些是最好的。
 

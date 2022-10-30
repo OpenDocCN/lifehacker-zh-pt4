@@ -1,6 +1,6 @@
 # “完美”的 GTD 书桌
 
-> 原文:[https://lifehacker.com/the-perfect-gtd-desk-1680695093](https://lifehacker.com/the-perfect-gtd-desk-1680695093)
+> 原文：<https://lifehacker.com/the-perfect-gtd-desk-1680695093>
 
 RestartGTD 的 Bill Meade 显然非常重视 GTD(或者说)的工作，因此他的工作空间已经被调整和更新了很多年，以实现最高效的工作流程。这是最新的版本。
 

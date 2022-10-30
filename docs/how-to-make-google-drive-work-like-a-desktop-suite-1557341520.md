@@ -1,6 +1,6 @@
 # 如何让 Google Drive 像桌面套件一样工作
 
-> 原文:[https://life hacker . com/how-to-make-Google-drive-work-like-a-desktop-suite-1557341520](https://lifehacker.com/how-to-make-google-drive-work-like-a-desktop-suite-1557341520)
+> 原文：<https://lifehacker.com/how-to-make-google-drive-work-like-a-desktop-suite-1557341520>
 
 Google Drive 和其中的应用程序——文档、表格和幻灯片——非常适合寻找简单办公套件的人。它是免费的，使协作变得容易，几乎任何人都可以使用它。但是如果你习惯了更传统的东西，比如微软 Office，你可能会犹豫是否使用它。以下是如何让 Google Drive 工作起来更像你习惯的桌面套件。
 

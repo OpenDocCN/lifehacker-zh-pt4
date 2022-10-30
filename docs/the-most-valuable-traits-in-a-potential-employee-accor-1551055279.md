@@ -1,6 +1,6 @@
 # 谷歌称，潜在雇员最有价值的特质
 
-> 原文:[https://life hacker . com/the-most-value-traits-in-a-potential-employee-accor-1551055279](https://lifehacker.com/the-most-valuable-traits-in-a-potential-employee-accor-1551055279)
+> 原文：<https://lifehacker.com/the-most-valuable-traits-in-a-potential-employee-accor-1551055279>
 
 弄清楚如何在拥挤的领域中脱颖而出并找到一份工作，这本身就是一项终身事业。如果你想弄清楚顶级雇主在寻找什么样的特质，你可以问。至少，谷歌似乎很乐意回答这个问题。
 

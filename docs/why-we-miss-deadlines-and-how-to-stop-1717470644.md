@@ -1,6 +1,6 @@
 # 为什么我们会错过最后期限，以及如何停止
 
-> 原文:[https://life hacker . com/why-we-miss-deadlines-and-how-to-stop-1717470644](https://lifehacker.com/why-we-miss-deadlines-and-how-to-stop-1717470644)
+> 原文：<https://lifehacker.com/why-we-miss-deadlines-and-how-to-stop-1717470644>
 
 我们沉迷于计划何时完成工作。但是当我们需要认真对待并把计划付诸行动时，我们会把任务越推越远，直到最后一刻——或者更糟，超过既定的最后期限。
 

@@ -1,6 +1,6 @@
 # 你的室友不需要成为你最好的朋友
 
-> 原文:[https://life hacker . com/your-室友不需要成为你最好的朋友-1707188626](https://lifehacker.com/your-roommate-doesnt-need-to-be-your-best-friend-1707188626)
+> 原文：<https://lifehacker.com/your-roommate-doesnt-need-to-be-your-best-friend-1707188626>
 
 当你一个人买不起公寓时，你将不得不与室友或室友分享这个宝贵的空间。有时候这种方式非常有效，你会和这些 Craigslist 上的陌生人成为最好的朋友，但更多时候，这只是和你几乎不认识的人(或者至少不是超级亲密的人)之间礼貌的居住关系。但是尽管大多数人都梦想和自己最好的朋友住在一起，那也没关系！你不需要和你的室友成为完美的伙伴来保持一个幸福的家庭。
 

@@ -1,6 +1,6 @@
 # 苏珊·桑塔格的最佳生产率诀窍
 
-> 原文:[https://life hacker . com/Susan-sontags-best-productivity-tricks-1616544419](https://lifehacker.com/susan-sontags-best-productivity-tricks-1616544419)
+> 原文：<https://lifehacker.com/susan-sontags-best-productivity-tricks-1616544419>
 
 苏珊·桑塔格 是个身兼多职的女人。她是作家、评论家、电影制片人和教师。她在 2004 年去世前做了很多事情。让我们来看看她是如何做到这一切的。
 

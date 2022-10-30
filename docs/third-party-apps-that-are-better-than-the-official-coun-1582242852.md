@@ -1,6 +1,6 @@
 # 比官方应用更好的第三方应用
 
-> 原文:[https://life hacker . com/third-party-apps-than-better-the-official-coun-1582242852](https://lifehacker.com/third-party-apps-that-are-better-than-the-official-coun-1582242852)
+> 原文：<https://lifehacker.com/third-party-apps-that-are-better-than-the-official-coun-1582242852>
 
 Twitter、Dropbox、YouTube 或维基百科等服务喜欢为自己的服务发布官方应用。通常情况下，第三方开发者会加入进来，开发比官方应用更好的应用来访问这些服务。我们希望收集这些应用程序中的精华。
 

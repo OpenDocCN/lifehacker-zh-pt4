@@ -1,6 +1,6 @@
 # 如何正确设置自己的技术清洗
 
-> 原文:[https://life hacker . com/how-to-right-set-up-for-a-technology-cleans-1691287746](https://lifehacker.com/how-to-properly-set-yourself-up-for-a-technology-cleans-1691287746)
+> 原文：<https://lifehacker.com/how-to-properly-set-yourself-up-for-a-technology-cleans-1691287746>
 
 每隔一段时间，停下来评估一下你在日常生活中是如何使用技术的是有好处的。这样做的一个方法是做一次“技术清洗”:离开网络，哪怕只是一小会儿，看看它对你有什么影响。但是你不应该突然戒烟。以下是如何为你的数字戒毒做准备。
 

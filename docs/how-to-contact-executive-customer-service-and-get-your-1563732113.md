@@ -1,6 +1,6 @@
 # 如何联系执行客户服务并解决您的问题
 
-> 原文:[https://life hacker . com/how-to-contact-executive-customer-service-and-get-your-1563732113](https://lifehacker.com/how-to-contact-executive-customer-service-and-get-your-1563732113)
+> 原文：<https://lifehacker.com/how-to-contact-executive-customer-service-and-get-your-1563732113>
 
 我们都经历过这种情况:你打电话给客户服务，被踢来踢去，被转移，然后被放弃。或者更糟的是，即使你和别人谈过，你的问题也永远不会得到解决。你可能知道你可以升级到经理，甚至更高，到“执行”支持。但是在那个层次，得到你想要的是一门艺术。以下是你需要知道的。
 

@@ -1,6 +1,6 @@
 # 我从《魔兽世界》中学到的六个现实生活中的教训
 
-> 原文:[https://life hacker . com/six-real-life-lessons-I-learn-from-world-of-魔兽世界-1505737517](https://lifehacker.com/six-real-life-lessons-i-learned-from-world-of-warcraft-1505737517)
+> 原文：<https://lifehacker.com/six-real-life-lessons-i-learned-from-world-of-warcraft-1505737517>
 
 大型多人在线角色扮演游戏(幸运的是，MMORPGs)因为是吸取生命的平行世界而受到恶评。然而，像魔兽世界这样的游戏是许多现实生活经历的缩影。不，真的。
 

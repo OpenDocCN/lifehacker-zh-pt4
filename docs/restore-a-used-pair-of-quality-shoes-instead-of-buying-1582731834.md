@@ -1,6 +1,6 @@
 # 修复一双二手的优质鞋子，而不是买双新的
 
-> 原文:[https://life hacker . com/restore-a-used-pair-of-quality-shoes-not-buying-1582731834](https://lifehacker.com/restore-a-used-pair-of-quality-shoes-instead-of-buying-1582731834)
+> 原文：<https://lifehacker.com/restore-a-used-pair-of-quality-shoes-instead-of-buying-1582731834>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-AJRuXGvLXSI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-AJRuXGvLXSI&start=0) 
 

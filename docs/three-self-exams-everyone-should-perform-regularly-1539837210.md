@@ -1,6 +1,6 @@
 # 每个人都应该定期进行三次自我检查
 
-> 原文:[https://life hacker . com/three-self-examinations-every-should-perform-regular-1539837210](https://lifehacker.com/three-self-exams-everyone-should-perform-regularly-1539837210)
+> 原文：<https://lifehacker.com/three-self-exams-everyone-should-perform-regularly-1539837210>
 
 癌症糟透了。我们仍然不知道到底是什么引起的，或者如何可靠地治愈它。我们最好的机会是及早发现，以便有机会进行治疗。而及早发现的最好方法就是知道要找什么，定期检查自己。
 

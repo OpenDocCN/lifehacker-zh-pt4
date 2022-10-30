@@ -1,6 +1,6 @@
 # 现代桌面
 
-> 原文:[https://lifehacker.com/the-modern-desktop-1710219086](https://lifehacker.com/the-modern-desktop-1710219086)
+> 原文：<https://lifehacker.com/the-modern-desktop-1710219086>
 
 Flickr 用户 [格雷格](https://www.flickr.com/photos/124958886@N04/) 使用 Windows 7 将这个桌面组合在一起，将我们喜欢的 Windows 8 平面设计的一些东西与其他地方的一些深度和一些放置得当、非常有用的小工具结合在一起。他是这样设置的。
 

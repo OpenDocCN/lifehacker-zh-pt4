@@ -1,6 +1,6 @@
 # 请教专家:为孩子的教育储蓄
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-saving for your-childs-educati-1723085708](https://lifehacker.com/ask-an-expert-all-about-saving-for-your-childs-educati-1723085708)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-saving-for-your-childs-educati-1723085708>
 
 也许你刚刚有了一个健康活泼的新生儿，也许你已经在计划他们的常春藤联盟志向了。开始为孩子的教育储蓄的最好方法是什么？你需要立即开始还是可以等一等？
 

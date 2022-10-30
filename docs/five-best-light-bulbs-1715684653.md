@@ -1,6 +1,6 @@
 # 五个最好的灯泡
 
-> 原文:[https://lifehacker.com/five-best-light-bulbs-1715684653](https://lifehacker.com/five-best-light-bulbs-1715684653)
+> 原文：<https://lifehacker.com/five-best-light-bulbs-1715684653>
 
 你可能认为灯泡是一种商品，对许多人来说，的确如此。尽管如此，他们并不都一样。有的有智能家居功能，有的超高效，有的会变色，有的甚至有 Wi-Fi！本周，我们将根据你的提名，来看看五款最能帮你省钱的灯泡，或者根据你的心情来定制照明。
 

@@ -1,6 +1,6 @@
 # 当你对自己的金钱目标感到沮丧时该怎么办
 
-> 原文:[https://life hacker . com/what-do-what-what-do-when-you-re-distressed-with your money-goal-1579309113](https://lifehacker.com/what-to-do-when-you-re-discouraged-with-your-money-goal-1579309113)
+> 原文：<https://lifehacker.com/what-to-do-when-you-re-discouraged-with-your-money-goal-1579309113>
 
 发誓改善你的财务状况可能是一个令人兴奋的决定。达到这些目标也是令人兴奋的。但是在这两点之间有一段很长的时间可以真正考验你的耐力。许多人在偿还信用卡、为退休储蓄或处理学生贷款时开始感到气馁。如果你的财务耐心正在受到考验，这里有如何处理它，并保持正轨。
 

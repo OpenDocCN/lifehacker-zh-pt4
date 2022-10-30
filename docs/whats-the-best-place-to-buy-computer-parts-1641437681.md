@@ -1,6 +1,6 @@
 # 哪里买电脑零件最好？
 
-> 原文:[https://life hacker . com/whats-the-best-place-to-buy-computer-parts-1641437681](https://lifehacker.com/whats-the-best-place-to-buy-computer-parts-1641437681)
+> 原文：<https://lifehacker.com/whats-the-best-place-to-buy-computer-parts-1641437681>
 
 如果你要组装一台新电脑或购买升级产品，你有很多地方可以选择。本周，我们想知道你最信任哪些线上和线下零售商，因为它们价格低、退货政策好、从 CPU 到显卡的各种商品都有很好的选择。
 

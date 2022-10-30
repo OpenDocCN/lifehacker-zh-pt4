@@ -1,6 +1,6 @@
 # 比尔·沃特森最佳生产力诀窍
 
-> 原文:[https://life hacker . com/bill-wattersons-best-productivity-tricks-1588738048](https://lifehacker.com/bill-wattersons-best-productivity-tricks-1588738048)
+> 原文：<https://lifehacker.com/bill-wattersons-best-productivity-tricks-1588738048>
 
 比尔·沃特森与卡尔文和何拔斯一起创作了历史上最令人愉快的连环漫画。众所周知，他有点离群索居，但他的漫画和他的想法对读者产生了很大的影响。让我们来看看他在漫画内外探索的一些技巧。
 

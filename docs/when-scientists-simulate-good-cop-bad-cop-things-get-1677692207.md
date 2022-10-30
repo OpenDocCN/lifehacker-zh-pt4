@@ -1,6 +1,6 @@
 # 这就是为什么“好警察，坏警察”的套路实际上有效
 
-> 原文:[https://gizmodo . com/when-scientists-simulate-good-COP-bad-COP-things-get-1677692207](https://gizmodo.com/when-scientists-simulate-good-cop-bad-cop-things-get-1677692207)
+> 原文：<https://gizmodo.com/when-scientists-simulate-good-cop-bad-cop-things-get-1677692207>
 
 你知道常规。一名强硬的警察斥责并恐吓一名嫌疑犯，直到他的搭档把他送出去。搭档让人放心，嫌疑人吐露心声。但是这有用吗？科学家们做了一些奇怪的实验来寻找答案。
 

@@ -1,6 +1,6 @@
 # 我是谷歌人力运营主管拉兹洛·博克，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Laszlo-bock-head-of-Google-people-ops-and-this-is-1713435446](https://lifehacker.com/im-laszlo-bock-head-of-googles-people-ops-and-this-is-1713435446)
+> 原文：<https://lifehacker.com/im-laszlo-bock-head-of-googles-people-ops-and-this-is-1713435446>
 
 谷歌大约有 5 万名员工。这是 50，000 份简历、面试和雇用，作为大机器中的一个齿轮进行管理和指导，正如我们今天所知，这个大机器塑造了互联网的许多方面。负责招募、分析和留住人才的是拉兹洛·博克。
 

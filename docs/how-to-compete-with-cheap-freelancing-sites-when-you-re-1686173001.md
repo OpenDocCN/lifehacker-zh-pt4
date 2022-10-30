@@ -1,6 +1,6 @@
 # 当你是专业人士时，如何与廉价的自由职业网站竞争
 
-> 原文:[https://life hacker . com/how-to-competite-with-cheap-freelancing-sites-when-you-re-1686173001](https://lifehacker.com/how-to-compete-with-cheap-freelancing-sites-when-you-re-1686173001)
+> 原文：<https://lifehacker.com/how-to-compete-with-cheap-freelancing-sites-when-you-re-1686173001>
 
 感谢像 Fiverr 这样的在线人才平台，现在外包工作比以往任何时候都容易。不到二十美元，你就可以找到作家、设计师或编辑。如果你在招聘，这很方便，但对于以这种方式谋生的员工来说，这很令人沮丧。以下是你如何与提供廉价工作的网站竞争的方法。
 

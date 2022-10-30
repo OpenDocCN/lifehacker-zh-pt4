@@ -1,6 +1,6 @@
 # Mozilla Webmaker 教你构建网站、应用程序等等
 
-> 原文:[https://life hacker . com/Mozilla-web maker-teaches-you-how-to-build-web-sites-AP-1553277374](https://lifehacker.com/mozilla-webmaker-teaches-you-how-to-build-web-sites-ap-1553277374)
+> 原文：<https://lifehacker.com/mozilla-webmaker-teaches-you-how-to-build-web-sites-ap-1553277374>
 
 如果你有兴趣建立自己的网站，或者开发一个供他人使用的网络应用程序或服务，你需要熟悉网络是如何工作的，以及你需要为此开发的工具。Mozilla 的 Webmaker 项目可以帮助你学习，为所有技能水平的人设计有趣的互动活动和课程计划。
 

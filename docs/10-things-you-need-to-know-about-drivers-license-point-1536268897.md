@@ -1,6 +1,6 @@
 # 关于驾照积分你需要知道的 10 件事
 
-> 原文:[https://life hacker . com/10-things-you-need-to-know-things-on-drivers-license-point-1536268897](https://lifehacker.com/10-things-you-need-to-know-about-drivers-license-point-1536268897)
+> 原文：<https://lifehacker.com/10-things-you-need-to-know-about-drivers-license-point-1536268897>
 
 得分是好事，除非你的驾驶记录上有。尽管如此，如果你知道你所在州的积分系统是如何工作的，你会有一个更好的计划来保持你的驾照——和你的汽车保险费率低。
 

@@ -1,6 +1,6 @@
 # 为什么社会工程应该是您最大的安全顾虑
 
-> 原文:[https://life hacker . com/why-social-engineering-should-be-your-maximum-security-1630321227](https://lifehacker.com/why-social-engineering-should-be-your-biggest-security-1630321227)
+> 原文：<https://lifehacker.com/why-social-engineering-should-be-your-biggest-security-1630321227>
 
 我们都知道基础知识—[双因素认证](http://lifehacker.com/heres-everywhere-you-should-enable-two-factor-authentic-5938565) 等等。然而，最近的安全和隐私泄露与糟糕的密码关系不大，而与社会工程关系更大。让我们看看那是什么，为什么它会在你不知情的情况下发生，以及你如何保护自己。
 

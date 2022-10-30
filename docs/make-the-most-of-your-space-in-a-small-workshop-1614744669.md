@@ -1,6 +1,6 @@
 # 充分利用小工作室的空间
 
-> 原文:[https://life hacker . com/make-the-most-my-space-in-a-small-workshop-1614744669](https://lifehacker.com/make-the-most-of-your-space-in-a-small-workshop-1614744669)
+> 原文：<https://lifehacker.com/make-the-most-of-your-space-in-a-small-workshop-1614744669>
 
 我们大多数强制购买电动工具的人没有无限空间的奢侈。以下是一些在任何规模的工作室中充分利用储物空间的方法。
 

@@ -1,6 +1,6 @@
 # 睡不着怎么办？
 
-> 原文:[https://life hacker . com/what-should-I-do-when-I-can-launch-sleep-1533434286](https://lifehacker.com/what-should-i-do-when-i-cant-fall-asleep-1533434286)
+> 原文：<https://lifehacker.com/what-should-i-do-when-i-cant-fall-asleep-1533434286>
 
 亲爱的 Lifehacker，
 我不是失眠什么的，但有时候就是睡不着。有什么我可以帮忙的吗？

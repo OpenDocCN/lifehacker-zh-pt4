@@ -1,6 +1,6 @@
 # 商店最常见的发放优惠券的日子
 
-> 原文:[https://life hacker . com/the-most-common-days for-stores-release-coupons-1603113558](https://lifehacker.com/the-most-common-days-for-stores-to-release-coupons-1603113558)
+> 原文：<https://lifehacker.com/the-most-common-days-for-stores-to-release-coupons-1603113558>
 
 在线优惠券可能看起来是随机发布的。但是，如果你仔细观察，就会发现一些模式。知道商店什么时候更有可能发布新的优惠可以让你制定省钱的策略——也许在这个过程中可以节省一些寻找折扣的时间。
 

@@ -1,6 +1,6 @@
 # 在手机和平板电脑上制作音乐的最佳应用
 
-> 原文:[https://life hacker . com/the-best-apps-for-making-your-phone and table t-1625141596](https://lifehacker.com/the-best-apps-for-making-music-on-your-phone-and-tablet-1625141596)
+> 原文：<https://lifehacker.com/the-best-apps-for-making-music-on-your-phone-and-tablet-1625141596>
 
 你的智能手机和平板电脑是制作音乐的绝佳硬件。正因为如此，你有大量的应用程序可供选择，但其中许多都很糟糕。让我们列出最好的几个。
 

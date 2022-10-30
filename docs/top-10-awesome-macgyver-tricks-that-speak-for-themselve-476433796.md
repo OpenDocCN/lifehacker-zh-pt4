@@ -1,6 +1,6 @@
 # 不言自明的 10 大精彩魔术
 
-> 原文:[https://life hacker . com/top-10-awesome-macgyver-tricks-the-speak-for-self-me-476433796](https://lifehacker.com/top-10-awesome-macgyver-tricks-that-speak-for-themselve-476433796)
+> 原文：<https://lifehacker.com/top-10-awesome-macgyver-tricks-that-speak-for-themselve-476433796>
 
 一些改变生活的技巧需要完整的指南来理解。其他人在他们的简单中是如此的天才，以至于他们不言自明。这里有 10 个我们最喜欢的不言自明的 MacGyver 式技巧。
 

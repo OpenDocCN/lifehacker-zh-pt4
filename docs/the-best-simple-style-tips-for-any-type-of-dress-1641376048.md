@@ -1,6 +1,6 @@
 # 适合任何类型服装的最佳简约风格建议
 
-> 原文:[https://life hacker . com/the-best-simple-style-tips-for-any-type-of-dress-1641376048](https://lifehacker.com/the-best-simple-style-tips-for-any-type-of-dress-1641376048)
+> 原文：<https://lifehacker.com/the-best-simple-style-tips-for-any-type-of-dress-1641376048>
 
 无论你的日常着装是一条牛仔裤和一件 t 恤，还是一条熨烫整齐的裙子或西装，你都有可能在出门前至少考虑一下自己的穿着。幸运的是，无论你穿什么，有一些简单的事情可以让你看起来最好，当你早上照镜子时，这些事情都值得记住。让我们把它们列一个清单。
 

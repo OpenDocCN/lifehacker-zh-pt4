@@ -1,6 +1,6 @@
 # 最好的小型机是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-small-form-factor-PC-1701069975](https://lifehacker.com/whats-the-best-small-form-factor-pc-1701069975)
+> 原文：<https://lifehacker.com/whats-the-best-small-form-factor-pc-1701069975>
 
 小型个人电脑可以在微小的封装中提供强大的功能，并为您提供现成的、可定制的硬件，您可以使用它做任何事情。本周我们想知道你认为这些小奇迹中哪些是最好的。
 

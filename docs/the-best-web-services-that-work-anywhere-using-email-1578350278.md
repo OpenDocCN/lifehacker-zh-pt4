@@ -1,6 +1,6 @@
 # 使用电子邮件在任何地方都能工作的最佳网络服务
 
-> 原文:[https://life hacker . com/the-best-web-services-the-work-anywhere-using-email-1578350278](https://lifehacker.com/the-best-web-services-that-work-anywhere-using-email-1578350278)
+> 原文：<https://lifehacker.com/the-best-web-services-that-work-anywhere-using-email-1578350278>
 
 一些智能网络应用程序可以做你想做的事情，只要你给它们发一封电子邮件。无论是创建网页，设置提醒，甚至是在 Kindle 上添加一本书，只要一封电子邮件就可以完成很多任务。
 

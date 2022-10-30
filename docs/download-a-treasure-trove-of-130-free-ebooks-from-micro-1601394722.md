@@ -1,6 +1,6 @@
 # 从微软下载 130 本免费电子书
 
-> 原文:[https://life hacker . com/download-a-treasure-trove-of-130-free-ebooks-from-micro-1601394722](https://lifehacker.com/download-a-treasure-trove-of-130-free-ebooks-from-micro-1601394722)
+> 原文：<https://lifehacker.com/download-a-treasure-trove-of-130-free-ebooks-from-micro-1601394722>
 
 [发生在](https://lifehacker.com/grab-over-80-free-ebooks-from-microsoft-and-learn-somet-5930800) 之前，现在又发生了。微软的 MSDN 博客发布了一批全新的免费技术电子书，涵盖了从 Windows 8 到 Office 2013，再到 SQL Server 等等。
 

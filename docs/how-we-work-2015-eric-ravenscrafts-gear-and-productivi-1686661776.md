@@ -1,6 +1,6 @@
 # 我们如何工作，2015: Eric Ravenscraft 的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-2015-Eric-ravenscrafts-gear-and-productivi-1686661776](https://lifehacker.com/how-we-work-2015-eric-ravenscrafts-gear-and-productivi-1686661776)
+> 原文：<https://lifehacker.com/how-we-work-2015-eric-ravenscrafts-gear-and-productivi-1686661776>
 
 每周，我们都会询问知名人士他们是如何工作的。轮到我了。我是埃里克，法庭命令我告诉你这是我做事的方式。
 

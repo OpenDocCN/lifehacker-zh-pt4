@@ -1,6 +1,6 @@
 # 每个初学者都应该知道的三个 Windows 快捷方式
 
-> 原文:[https://life hacker . com/three-windows-shortcut s-every-beginner-should-know-1545115910](https://lifehacker.com/three-windows-shortcuts-every-beginner-should-know-1545115910)
+> 原文：<https://lifehacker.com/three-windows-shortcuts-every-beginner-should-know-1545115910>
 
 如果有一样东西能让你在电脑上更快更有效率，那就是键盘快捷键。有 [很多键盘快捷键初学者都应该知道](https://lifehacker.com/six-keyboard-shortcuts-every-computer-user-should-know-5836288) ，但是这里有三个特定于 Windows 的快捷键，可以让你使用起来更加方便。
 

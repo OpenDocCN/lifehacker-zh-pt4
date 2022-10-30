@@ -1,6 +1,6 @@
 # 你是什么样的迈尔斯-布里格斯性格类型？
 
-> 原文:[https://life hacker . com/what-Myers-Briggs-personality-type-are-you-1456359323](https://lifehacker.com/what-myers-briggs-personality-type-are-you-1456359323)
+> 原文：<https://lifehacker.com/what-myers-briggs-personality-type-are-you-1456359323>
 
 无论你是否相信迈尔斯-布里格斯人格指数，它至少会引发一些有趣的讨论，甚至有希望引发一些个人反思。你是什么类型的？
 

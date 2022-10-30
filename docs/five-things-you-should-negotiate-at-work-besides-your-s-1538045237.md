@@ -1,6 +1,6 @@
 # 除了薪水，你在工作中应该协商的五件事
 
-> 原文:[https://life hacker . com/five-things-your-s-1538045237](https://lifehacker.com/five-things-you-should-negotiate-at-work-besides-your-s-1538045237)
+> 原文：<https://lifehacker.com/five-things-you-should-negotiate-at-work-besides-your-s-1538045237>
 
 现在，你可能知道薪水是可以商量的。但这只是工作场所的一项政策和额外津贴。不管有没有明说，像弹性工作安排、产假，甚至是你着手的项目，可能都不是一成不变的。
 

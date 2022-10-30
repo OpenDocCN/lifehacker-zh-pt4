@@ -1,6 +1,6 @@
 # 如何防止婴儿进入房间
 
-> 原文:[https://lifehacker.com/how-to-baby-proof-a-room-5827820](https://lifehacker.com/how-to-baby-proof-a-room-5827820)
+> 原文：<https://lifehacker.com/how-to-baby-proof-a-room-5827820>
 
 对迎接一个婴儿或蹒跚学步的孩子回家感到紧张是正常的。典型的房间里充满了看似无害的危险物品，比如硬币、室内植物和硬家具。这里有一些小贴士，可以让一个刚会走路的孩子的房间更安全。
 

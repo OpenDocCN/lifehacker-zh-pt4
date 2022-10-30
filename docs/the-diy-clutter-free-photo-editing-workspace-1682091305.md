@@ -1,6 +1,6 @@
 # DIY、整洁的照片编辑工作区
 
-> 原文:[https://life hacker . com/the-DIY-clutter-free-photo-editing-workspace-1682091305](https://lifehacker.com/the-diy-clutter-free-photo-editing-workspace-1682091305)
+> 原文：<https://lifehacker.com/the-diy-clutter-free-photo-editing-workspace-1682091305>
 
 伦敦肖像摄影师汤姆·巴恩斯为自己打造了一张令人印象深刻的大办公桌。它既实用又整洁，独一无二。
 

@@ -1,6 +1,6 @@
 # 为什么我是电脑游戏玩家
 
-> 原文:[https://lifehacker.com/why-im-a-pc-gamer-1471860201](https://lifehacker.com/why-im-a-pc-gamer-1471860201)
+> 原文：<https://lifehacker.com/why-im-a-pc-gamer-1471860201>
 
 新游戏机可能会成为头条新闻，但我不会买一个。从最初的 Xbox 开始我就没买过。为什么？我已经有了一台显卡更好、控制器更好、灵活性更高的游戏机...而且也没花多少钱。当然，我说的是个人电脑。
 

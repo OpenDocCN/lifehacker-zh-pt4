@@ -1,6 +1,6 @@
 # 适合每一只手腕的最佳智能手表
 
-> 原文:[https://gizmodo . com/the-best-for-ever-腕部智能手表-1671271995](https://gizmodo.com/the-best-smartwatch-for-every-wrist-1671271995)
+> 原文：<https://gizmodo.com/the-best-smartwatch-for-every-wrist-1671271995>
 
 从第一天 开始，我就非常热衷于智能手表 [。我收到很多电子邮件、短信和各种通知，大多数都是垃圾邮件，但也有一些非常重要。在我的手腕上有一个 glancable 屏幕让生活变得无比简单。但是自从几年前出现以来，智能手表已经走过了漫长的道路。哪些手表最能让我不掏出手机？我决定找出答案。](http://gizmodo.com/i-actually-really-want-a-smartwatch-1257227834)
 

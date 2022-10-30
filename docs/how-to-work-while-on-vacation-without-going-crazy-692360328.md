@@ -1,6 +1,6 @@
 # 如何在假期工作(不发疯)
 
-> 原文:[https://life hacker . com/how-to-work-while-vacation-with-not-to-made-692360328](https://lifehacker.com/how-to-work-while-on-vacation-without-going-crazy-692360328)
+> 原文：<https://lifehacker.com/how-to-work-while-on-vacation-without-going-crazy-692360328>
 
 最近的一项调查发现 60%的美国雇员在度假时工作。虽然我们通常建议完全拔掉插头，但当你无法完全抽离时，这里有一些如何保持高效(和放松)的方法。
 

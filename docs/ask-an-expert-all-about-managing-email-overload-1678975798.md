@@ -1,6 +1,6 @@
 # 请教专家:如何管理电子邮件霸主
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-managing-email-overload-1678975798](https://lifehacker.com/ask-an-expert-all-about-managing-email-overload-1678975798)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-managing-email-overload-1678975798>
 
 管理你收到的大量电子邮件是当代工作场所的现实，不管是不必要的备忘录还是不想要的简讯塞满了你的收件箱。你努力阅读和回应一切吗？还是“收件箱零”是一个不切实际的目标？
 

@@ -1,6 +1,6 @@
 # Neo 台式机
 
-> 原文:[https://lifehacker.com/the-neo-desktop-1711961890](https://lifehacker.com/the-neo-desktop-1711961890)
+> 原文：<https://lifehacker.com/the-neo-desktop-1711961890>
 
 Flickr 用户 [桑吉夫](https://www.flickr.com/photos/sanjeevneo/) 在他的 Mac 上组装了这个桌面，以展示 GeekTool 有多么有用。他是对的——它超级有用，我们印象深刻。以下是他如何设置的，你也可以这样做:
 

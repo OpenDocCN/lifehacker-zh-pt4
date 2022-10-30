@@ -1,6 +1,6 @@
 # 如何回答“你为什么想在这家公司工作？”
 
-> 原文:[https://life hacker . com/how-to-answer-why-do-you-want-to-work-the-company-1689639439](https://lifehacker.com/how-to-answer-why-do-you-want-to-work-at-this-company-1689639439)
+> 原文：<https://lifehacker.com/how-to-answer-why-do-you-want-to-work-at-this-company-1689639439>
 
 当你准备面试时，有几个问题你绝对必须知道如何回答(比如“告诉我关于你自己”)，因为它们是常见的，并将引导大部分面试。但是“为什么是这个公司呢？”可能是最棘手的，因为这不是关于你的。
 

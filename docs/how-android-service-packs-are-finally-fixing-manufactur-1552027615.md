@@ -1,6 +1,6 @@
 # Android 服务包如何最终修复制造商皮肤
 
-> 原文:[https://life hacker . com/how-Android-service-packs-are-finally-fixing-manufacture-1552027615](https://lifehacker.com/how-android-service-packs-are-finally-fixing-manufactur-1552027615)
+> 原文：<https://lifehacker.com/how-android-service-packs-are-finally-fixing-manufactur-1552027615>
 
 昨天，HTC [宣布了它的新手机](https://gizmodo.com/htc-one-2014-review-faster-stronger-better-1550841872) ，以及一大堆新功能。一个不太受欢迎但可能更重要的功能是新的 [HTC 服务包](https://play.google.com/store/apps/details?id=com.htc.sense.hsp) 。这个后台应用程序允许 HTC 独立于 OTA 更新分发其 Sense 应用程序。HTC 现在是第三家追随这一令人鼓舞的趋势的公司:将应用和服务分开。
 

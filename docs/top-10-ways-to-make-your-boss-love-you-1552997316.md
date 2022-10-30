@@ -1,6 +1,6 @@
 # 让老板爱你的十大方法
 
-> 原文:[https://life hacker . com/top-10-ways-make-your-boss-love-you-1552997316](https://lifehacker.com/top-10-ways-to-make-your-boss-love-you-1552997316)
+> 原文：<https://lifehacker.com/top-10-ways-to-make-your-boss-love-you-1552997316>
 
 除非你足够幸运为自己工作，否则我们都有一个老板，我们必须对他负责。如果他们不是魔鬼的化身，有很多方法可以确保你们有一段美好的关系。以下是你应该记住的。
 

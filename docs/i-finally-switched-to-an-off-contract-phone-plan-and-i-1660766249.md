@@ -1,6 +1,6 @@
 # 我终于换了一个合约外的电话计划，这太棒了
 
-> 原文:[https://life hacker . com/I-finally-switched-a-off-contract-phone-plan-and-I-1660766249](https://lifehacker.com/i-finally-switched-to-an-off-contract-phone-plan-and-i-1660766249)
+> 原文：<https://lifehacker.com/i-finally-switched-to-an-off-contract-phone-plan-and-i-1660766249>
 
 如果你厌倦了支付高昂的费用，却只能与威瑞森或美国电话电报公司签订合同，那么合同外或预付费计划是一个很好的选择——而且它没有你想象的那么多负面影响。
 

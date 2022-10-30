@@ -1,6 +1,6 @@
 # 沃伦·巴菲特的最佳理财建议
 
-> 原文:[https://life hacker . com/Warren-Buffett-s-best-money-advice-1597691871](https://lifehacker.com/warren-buffett-s-best-money-advice-1597691871)
+> 原文：<https://lifehacker.com/warren-buffett-s-best-money-advice-1597691871>
 
 沃伦·巴菲特是一位非常成功的投资者，他的投资秘诀出人意料地容易获得。他的大部分方法简单、直接、永恒。以下是巴菲特的一些最佳理财建议。
 

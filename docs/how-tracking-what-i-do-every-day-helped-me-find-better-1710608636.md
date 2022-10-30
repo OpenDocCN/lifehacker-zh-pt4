@@ -1,6 +1,6 @@
 # 跟踪我每天做的事情如何帮助我找到更好的工作和生活平衡
 
-> 原文:[https://life hacker . com/how-tracking-I-do-day-help-me-find-better-1710608636](https://lifehacker.com/how-tracking-what-i-do-every-day-helped-me-find-better-1710608636)
+> 原文：<https://lifehacker.com/how-tracking-what-i-do-every-day-helped-me-find-better-1710608636>
 
 这个世界上有两种人:一种是喜欢记录自己一整天都在做什么的人，另一种是我们这些宁愿看着油漆变干的人。我曾经属于后一类人...直到我发现我做错了。
 

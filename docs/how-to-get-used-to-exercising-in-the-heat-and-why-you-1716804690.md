@@ -1,6 +1,6 @@
 # 如何习惯在高温下锻炼
 
-> 原文:[https://life hacker . com/how-to-get-use-in-the-heat-and-why-you-1716804690](https://lifehacker.com/how-to-get-used-to-exercising-in-the-heat-and-why-you-1716804690)
+> 原文：<https://lifehacker.com/how-to-get-used-to-exercising-in-the-heat-and-why-you-1716804690>
 
 没有人喜欢感觉懒散和出汗，所以当太阳快要“炙烤”的时候，我们理解你宁愿去有空调的健身房锻炼。但是如果你在炎热中坚持下来，不仅锻炼会变得容易，当气温再次下降时，你也会有更好的耐力。
 

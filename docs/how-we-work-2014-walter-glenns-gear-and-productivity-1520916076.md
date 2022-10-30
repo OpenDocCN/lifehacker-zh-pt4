@@ -1,6 +1,6 @@
 # 《我们如何工作》, 2014 年:沃尔特·格伦的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-2014-Walter-glenns-gear-and-productivity-1520916076](https://lifehacker.com/how-we-work-2014-walter-glenns-gear-and-productivity-1520916076)
+> 原文：<https://lifehacker.com/how-we-work-2014-walter-glenns-gear-and-productivity-1520916076>
 
 每周，我们都会分享我们最喜爱的专家和互联网名人的快捷方式、工作空间和生产力提示。在过去的两周里，我们扭转了局面，让你们看看我们是如何工作的。今天，轮到我了。
 

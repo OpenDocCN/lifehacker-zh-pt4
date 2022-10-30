@@ -1,6 +1,6 @@
 # 帮助处理生活问题的五个治疗技巧
 
-> 原文:[https://life hacker . com/five-therapy-tips-to-help-manage-life-problems-1650428673](https://lifehacker.com/five-therapy-tips-to-help-manage-lifes-problems-1650428673)
+> 原文：<https://lifehacker.com/five-therapy-tips-to-help-manage-lifes-problems-1650428673>
 
 不是每个人都有机会接触专业治疗师或心理学家，但我们都面临着生活中的困难，需要找到应对它们的方法。通过一些简单的治疗策略和方法，你也许能够帮助自己克服更容易解决的问题。
 

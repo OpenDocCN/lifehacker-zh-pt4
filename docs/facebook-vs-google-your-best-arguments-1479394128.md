@@ -1,6 +1,6 @@
 # 脸书 vs. Google+:你最好的论据
 
-> 原文:[https://life hacker . com/Facebook-vs-Google-your-best-arguments-1479394128](https://lifehacker.com/facebook-vs-google-your-best-arguments-1479394128)
+> 原文：<https://lifehacker.com/facebook-vs-google-your-best-arguments-1479394128>
 
 曾经，脸书只是社交网络，但现在 Google+已经分了一杯羹。许多人觉得这两种选择要么令人沮丧，要么非常喜欢。那么哪个更好呢？以下是你最好的论据。
 

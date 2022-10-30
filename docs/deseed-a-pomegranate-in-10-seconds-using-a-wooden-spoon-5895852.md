@@ -1,6 +1,6 @@
 # 用木勺在 10 秒钟内将石榴去籽
 
-> 原文:[https://life hacker . com/deseed-a-石榴-10 秒-使用木勺-5895852](https://lifehacker.com/deseed-a-pomegranate-in-10-seconds-using-a-wooden-spoon-5895852)
+> 原文：<https://lifehacker.com/deseed-a-pomegranate-in-10-seconds-using-a-wooden-spoon-5895852>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-s451gUBsqa4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-s451gUBsqa4&start=0) 
 

@@ -1,6 +1,6 @@
 # 用这些咖啡壁纸获取咖啡因
 
-> 原文:[https://life hacker . com/get-caffeinated-with these-coffee-wallpapers-1632941326](https://lifehacker.com/get-caffeinated-with-these-coffee-wallpapers-1632941326)
+> 原文：<https://lifehacker.com/get-caffeinated-with-these-coffee-wallpapers-1632941326>
 
 毫不奇怪，我们是这里一杯好的热咖啡的忠实粉丝，事实是咖啡看起来就像啜饮和享受一样美丽。本周，让我们将一些屏幕空间献给我们最喜爱的提神饮料。
 

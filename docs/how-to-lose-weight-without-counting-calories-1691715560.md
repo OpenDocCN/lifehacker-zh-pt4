@@ -1,6 +1,6 @@
 # 如何不算卡路里减肥
 
-> 原文:[https://life hacker . com/how-to-weight-not-calories-1691715560](https://lifehacker.com/how-to-lose-weight-without-counting-calories-1691715560)
+> 原文：<https://lifehacker.com/how-to-lose-weight-without-counting-calories-1691715560>
 
 减脂依赖于一件事:摄入的热量少于消耗的热量。但是没有人愿意整天坐着计算卡路里。大多数人都能学会完全跟踪他们，但有些人可能需要完全不同的策略。如果跟踪在过去让你感到头疼，考虑尝试一下。
 

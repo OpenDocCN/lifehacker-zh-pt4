@@ -1,6 +1,6 @@
 # 雾湖桌面
 
-> 原文:[https://lifehacker.com/the-foggy-lake-desktop-1648461034](https://lifehacker.com/the-foggy-lake-desktop-1648461034)
+> 原文：<https://lifehacker.com/the-foggy-lake-desktop-1648461034>
 
 有时候定制的小部件是可行的，有时候最小化是最好的方法——我们肯定已经看到了向最小化方向发展的趋势。Flickr 用户[imminant Fate](https://www.flickr.com/photos/116237792@N02/)不久前提交了这个好看的桌面，但它仍然吸引了我们的眼球。以下是你也可以设置它的方法。
 

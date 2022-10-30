@@ -1,6 +1,6 @@
 # 2014 年最受欢迎的 Windows 下载和帖子
 
-> 原文:[https://life hacker . com/most-popular-windows-downloads-and-post-of-2014-1668234882](https://lifehacker.com/most-popular-windows-downloads-and-posts-of-2014-1668234882)
+> 原文：<https://lifehacker.com/most-popular-windows-downloads-and-posts-of-2014-1668234882>
 
 每年，我们都会发现新的 Windows 下载，并重点介绍可以帮助您充分利用系统的提示和指南。以下是我们今年最受欢迎的 Windows 帖子。
 

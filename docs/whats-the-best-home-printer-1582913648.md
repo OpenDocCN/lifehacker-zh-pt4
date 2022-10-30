@@ -1,6 +1,6 @@
 # 最好的家用打印机是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-home-printer-1582913648](https://lifehacker.com/whats-the-best-home-printer-1582913648)
+> 原文：<https://lifehacker.com/whats-the-best-home-printer-1582913648>
 
 一台好的打印机很难找到，但我们愿意打赌，你们中的一些人有一台经过考验的真正的打印机，你会推荐给其他人，最好是一台可以在家庭办公室中执行多项任务的打印机。本周，我们想知道你认为哪些家庭办公打印机最好。
 

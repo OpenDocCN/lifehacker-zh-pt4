@@ -1,6 +1,6 @@
 # 如何应对最尴尬的约会时刻
 
-> 原文:[https://life hacker . com/how-to-应付最尴尬的约会时刻-1699600445](https://lifehacker.com/how-to-deal-with-the-most-embarrassing-dating-moments-1699600445)
+> 原文：<https://lifehacker.com/how-to-deal-with-the-most-embarrassing-dating-moments-1699600445>
 
 我们都会时不时地做一些令人尴尬的事情，但是约会会激发出我们所有人身上真正特别的东西。从公然的失礼到鬼鬼祟祟的放屁，以下是如何处理你在与新人约会初期遇到的一些更尴尬的时刻。
 

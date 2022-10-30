@@ -1,6 +1,6 @@
 # 签署竞业禁止协议前您需要了解的内容
 
-> 原文:[https://life hacker . com/what-you-need-to-know-before-sign-a-non-competite-agree-1592786728](https://lifehacker.com/what-you-need-to-know-before-signing-a-noncompete-agree-1592786728)
+> 原文：<https://lifehacker.com/what-you-need-to-know-before-signing-a-noncompete-agree-1592786728>
 
 你得到了一份新工作，你未来的雇主希望你签署一份竞业禁止协议。你应该吗？许多人并不真正理解这些协议意味着什么，或者他们需要问什么问题。
 

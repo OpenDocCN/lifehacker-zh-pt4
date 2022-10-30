@@ -1,6 +1,6 @@
 # 平面彩色主屏幕
 
-> 原文:[https://life hacker . com/the-flat-color-home-screen-1639284900](https://lifehacker.com/the-flat-color-home-screen-1639284900)
+> 原文：<https://lifehacker.com/the-flat-color-home-screen-1639284900>
 
 就像一颗垂死的恒星奔向一个奇点，移动设计一直在自我崩塌，形成扁平设计。为此，我的彩色屏幕用户 [Pitoko](http://mycolorscreen.com/pitoko/) 创造了这个简单、明亮的主屏幕。
 

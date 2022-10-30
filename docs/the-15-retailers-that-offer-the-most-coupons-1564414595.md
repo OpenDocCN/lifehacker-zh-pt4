@@ -1,6 +1,6 @@
 # 提供最多优惠券的 15 家零售商
 
-> 原文:[https://life hacker . com/the-15-提供最多优惠券的零售商-1564414595](https://lifehacker.com/the-15-retailers-that-offer-the-most-coupons-1564414595)
+> 原文：<https://lifehacker.com/the-15-retailers-that-offer-the-most-coupons-1564414595>
 
 虽然优惠券可以在购物时节省额外的现金，但有些人在结账前会跳过寻找优惠券的尽职调查。也许他们认为这花费了太多的时间，或者，更有可能的是，没有一个可用的，使它值得。这就是为什么我们深入我们的优惠券数据库，找出哪些商店是最好的。
 

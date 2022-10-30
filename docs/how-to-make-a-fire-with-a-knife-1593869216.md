@@ -1,6 +1,6 @@
 # 如何用刀子生火
 
-> 原文:[https://gizmodo . com/how-to-make-a-fire with-a-knife-1593869216](https://gizmodo.com/how-to-make-a-fire-with-a-knife-1593869216)
+> 原文：<https://gizmodo.com/how-to-make-a-fire-with-a-knife-1593869216>
 
 恶劣天气时在户外？刀子给了你在不可能的情况下点火的能力。每次像这样生火都是很好的生存练习。
 

@@ -1,6 +1,6 @@
 # 如何避免最常见的烧烤错误
 
-> 原文:[https://life hacker . com/how-to-避免最常见的烧烤错误-1708861803](https://lifehacker.com/how-to-avoid-the-most-common-grilling-mistakes-1708861803)
+> 原文：<https://lifehacker.com/how-to-avoid-the-most-common-grilling-mistakes-1708861803>
 
 随着烧烤季节的到来，是时候让 [精通你的烧烤](https://lifehacker.com/know-how-to-cook-anything-on-the-grill-with-this-infogr-1599262922) 了。但是知道做什么和知道不做什么一样重要。不要让你的烤串烤过头，你的汉堡变得淡而无味，或者你的牛排变干。这里有一些基本原则，遵循这些原则可以避免最常见的烧烤错误。
 

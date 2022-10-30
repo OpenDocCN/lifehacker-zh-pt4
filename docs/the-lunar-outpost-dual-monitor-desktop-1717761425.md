@@ -1,6 +1,6 @@
 # 月球前哨双显示器桌面
 
-> 原文:[https://life hacker . com/the-lunar-outpost-dual-monitor-desktop-1717761425](https://lifehacker.com/the-lunar-outpost-dual-monitor-desktop-1717761425)
+> 原文：<https://lifehacker.com/the-lunar-outpost-dual-monitor-desktop-1717761425>
 
 不久前， [hehe13](http://hehe13.kinja.com/) 向我们的 [桌面展示区](http://kinja.com/tag/desktop-showcase) 提交了这个好看的双显示器桌面，因为我们已经有一段时间没有进行双显示器设置了，所以是时候了。这是他用来设置的。
 

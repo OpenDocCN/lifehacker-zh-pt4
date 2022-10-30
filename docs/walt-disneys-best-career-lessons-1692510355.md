@@ -1,6 +1,6 @@
 # 华特·迪士尼最好的职业经验
 
-> 原文:[https://life hacker . com/Walt-Disney-best-career-lessons-1692510355](https://lifehacker.com/walt-disneys-best-career-lessons-1692510355)
+> 原文：<https://lifehacker.com/walt-disneys-best-career-lessons-1692510355>
 
 作为华特·迪士尼公司的创始人，迪斯尼制作了轰动一时的电影和世界前所未见的沉浸式主题公园。尽管华特·迪士尼的名声有过黑暗的一面，但任何人都可以从他的职业生涯中学到很多东西。以下是他成功的一些经验。
 

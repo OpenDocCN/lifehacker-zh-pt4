@@ -1,6 +1,6 @@
 # 有哪些事情是合法的，但人们认为是非法的？
 
-> 原文:[https://life hacker . com/what-some-than-some-things-that-is-a-1648959467](https://lifehacker.com/what-are-some-things-that-are-legal-but-people-think-a-1648959467)
+> 原文：<https://lifehacker.com/what-are-some-things-that-are-legal-but-people-think-a-1648959467>
 
 乍一看，美国的法律似乎相当简单。毕竟，你可能不能在身边放一个喷火器或者养一只宠物老虎，对吗？事实上，在某些州，你可以。记住这一点，让我们列出一些你一直认为是非法的，但实际上完全可以做的事情。
 

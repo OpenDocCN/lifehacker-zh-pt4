@@ -1,6 +1,6 @@
 # 超越基础:改进 Microsoft Word 格式的六个技巧
 
-> 原文:[https://life hacker . com/beyond-the-basics-six-tips-for-better-formatting-in-mi-1546090595](https://lifehacker.com/beyond-the-basics-six-tips-for-better-formatting-in-mi-1546090595)
+> 原文：<https://lifehacker.com/beyond-the-basics-six-tips-for-better-formatting-in-mi-1546090595>
 
 如果您曾经使用过 Word，您就会知道按照您想要的方式设置格式是多么令人沮丧。虽然您不能消除所有的挫折感，但是通过了解 Word 中的格式如何工作以及有哪些工具可以帮助您控制它，您可以消除很多挫折感。
 

@@ -1,6 +1,6 @@
 # 电子烟安全吗？这是我们所知道的
 
-> 原文:[https://life hacker . com/are-e-chickens-safe-here-s-what-we-know-1721157349](https://lifehacker.com/are-e-cigarettes-safe-here-s-what-we-know-1721157349)
+> 原文：<https://lifehacker.com/are-e-cigarettes-safe-here-s-what-we-know-1721157349>
 
 每个人对电子烟都有自己的看法:问十个人关于电子烟的安全性，你会得到十个不同的答案。激烈的辩论可能会很激烈，因为还没有大量的数据，但专家们可以就一些事情达成一致。我们来看看细节。
 

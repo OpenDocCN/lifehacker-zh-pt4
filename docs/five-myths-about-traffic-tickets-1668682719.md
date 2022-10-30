@@ -1,6 +1,6 @@
 # 关于交通罚单的五个误区
 
-> 原文:[https://jalopnik . com/five-myths-about-traffic-tickets-1668682719](https://jalopnik.com/five-myths-about-traffic-tickets-1668682719)
+> 原文：<https://jalopnik.com/five-myths-about-traffic-tickets-1668682719>
 
 我们经常从不是律师的人那里听到如何逃避交通罚单的“窍门”。律师不告诉这些技巧的原因之一是它们通常不起作用。但是有些人愿意相信他们可以通过欺骗警察或法庭来避免巨额罚款。这里有五件人们经常说的关于逃票的事情是不正确的。
 

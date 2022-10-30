@@ -1,6 +1,6 @@
 # 这就是为什么在雷雨时你不躲在树下
 
-> 原文:[https://gizmodo . com/this-is-why-you-don-hide-under-a-a-light ni-1587652722](https://gizmodo.com/this-is-why-you-dont-hide-under-a-tree-during-a-lightni-1587652722)
+> 原文：<https://gizmodo.com/this-is-why-you-dont-hide-under-a-tree-during-a-lightni-1587652722>
 
 通过美国国家气象局传来了这个惊人的镜头，一个闪电在纽约北部用一棵树做火柴杆。
 

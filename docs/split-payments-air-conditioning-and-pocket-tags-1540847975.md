@@ -1,6 +1,6 @@
 # 分期付款、空调和口袋标签
 
-> 原文:[https://life hacker . com/split-payments-air-conditioning-and-pocket-tags-1540847975](https://lifehacker.com/split-payments-air-conditioning-and-pocket-tags-1540847975)
+> 原文：<https://lifehacker.com/split-payments-air-conditioning-and-pocket-tags-1540847975>
 
 读者们提供了他们最好的建议，比如在不同的小组之间分摊费用，建造一台台式空调，以及增加阅读口袋文章标签的时间。
 

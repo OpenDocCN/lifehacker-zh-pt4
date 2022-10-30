@@ -1,6 +1,6 @@
 # 我是如何通过管理自己的财务生活获得成功的
 
-> 原文:[https://life hacker . com/how-I-get-my-financial-life-together-by-managing-it-MYS-1691833013](https://lifehacker.com/how-i-got-my-financial-life-together-by-managing-it-mys-1691833013)
+> 原文：<https://lifehacker.com/how-i-got-my-financial-life-together-by-managing-it-mys-1691833013>
 
 金钱可能买不到幸福，但是理顺你的财务状况是非常令人满意的。这需要一些努力，但我发现管理自己的钱——而不是雇佣专业人士——在理顺我的财务生活方面有很大的不同。
 

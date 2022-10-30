@@ -1,6 +1,6 @@
 # 真正有效沟通者的五个习惯
 
-> 原文:[https://life hacker . com/five-habits-of-true-effective-communicator-1628470134](https://lifehacker.com/five-habits-of-truly-effective-communicators-1628470134)
+> 原文：<https://lifehacker.com/five-habits-of-truly-effective-communicators-1628470134>
 
 我们都有提高沟通技巧的空间——有些人想要更加自信，有些人需要冲突管理方面的帮助，还有一些人发现很难在群体环境中说出自己的想法。这里有一些技巧可以帮助你表达你的想法。
 

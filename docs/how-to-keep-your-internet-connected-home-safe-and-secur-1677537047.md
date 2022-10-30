@@ -1,6 +1,6 @@
 # 如何让您的联网家庭安全无虞
 
-> 原文:[https://life hacker . com/how-to-keep-your-internet-connected-home-safe-and-secur-1677537047](https://lifehacker.com/how-to-keep-your-internet-connected-home-safe-and-secur-1677537047)
+> 原文：<https://lifehacker.com/how-to-keep-your-internet-connected-home-safe-and-secur-1677537047>
 
 从 [像 Nest](https://lifehacker.com/what-can-a-smart-thermostat-do-that-mine-can-t-already-472975733) 这样的智能恒温器到 [永远开启的安全摄像头](http://lifehacker.com/psa-change-your-ip-webcams-default-password-if-you-ha-1656886609) ，每年我们都会给家里增加更多连接互联网的电器和小工具。有些提供远程监控等强大功能，有些则利用数据来帮助您优化家居环境并节省资金。即便如此，任何连接到互联网的东西都有被黑客攻击的风险。以下是如何保证所有新装备安全的方法。
 

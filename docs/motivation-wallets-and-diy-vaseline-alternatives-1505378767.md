@@ -1,6 +1,6 @@
 # 动机、钱包和 DIY 凡士林替代品
 
-> 原文:[https://life hacker . com/motivation-wallets-and-DIY-凡士林-替代品-1505378767](https://lifehacker.com/motivation-wallets-and-diy-vaseline-alternatives-1505378767)
+> 原文：<https://lifehacker.com/motivation-wallets-and-diy-vaseline-alternatives-1505378767>
 
 读者们提供了他们的最佳建议，让你变得更有动力，制作一个超薄的 DIY 钱包，制作你自己的凡士林替代品。
 

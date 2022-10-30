@@ -1,6 +1,6 @@
 # 当你从电脑上删除一些东西时，会发生什么
 
-> 原文:[https://life hacker . com/what-really-occurs-when-you-delete-something-from-your-1659889380](https://lifehacker.com/what-really-happens-when-you-delete-something-from-your-1659889380)
+> 原文：<https://lifehacker.com/what-really-happens-when-you-delete-something-from-your-1659889380>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-T87iyGiXb7o&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-T87iyGiXb7o&start=0) 
 

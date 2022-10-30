@@ -1,6 +1,6 @@
 # 你的期望如何扰乱你对现在的看法
 
-> 原文:[https://life hacker . com/how-your-expectations-mess-with-your-view of the-presen-1685353419](https://lifehacker.com/how-your-expectations-mess-with-your-view-of-the-presen-1685353419)
+> 原文：<https://lifehacker.com/how-your-expectations-mess-with-your-view-of-the-presen-1685353419>
 
 我们都对即将到来的事件、当前的事件、自己和他人有所期待。这些期望会比你想象的更多地改变你对现在的看法。有时是好的，有时是坏的。让我们来看看它是如何工作的。
 

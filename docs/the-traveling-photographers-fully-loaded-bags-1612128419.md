@@ -1,6 +1,6 @@
 # 旅行摄影师满载的包
 
-> 原文:[https://life hacker . com/the-traveling-photos-full-loaded-bags-1612128419](https://lifehacker.com/the-traveling-photographers-fully-loaded-bags-1612128419)
+> 原文：<https://lifehacker.com/the-traveling-photographers-fully-loaded-bags-1612128419>
 
 人们每天随身携带的东西很棒，但有时看到人们需要更长时间的停留也很好。举个例子，摄影师 Romain 与 Carry 分享了他为期两周的摄影之旅。
 

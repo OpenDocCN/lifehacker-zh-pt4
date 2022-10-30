@@ -1,6 +1,6 @@
 # 不要因为偶尔的暴风雪而丢弃你的车
 
-> 原文:[https://jalopnik . com/do-not-get-dead-of-the-casualty-sn-1666679054](https://jalopnik.com/do-not-get-rid-of-your-car-because-of-the-occasional-sn-1666679054)
+> 原文：<https://jalopnik.com/do-not-get-rid-of-your-car-because-of-the-occasional-sn-1666679054>
 
 我住在南泽西，开着一辆野马 GT 加州特别版。我花了很长时间才找到这辆车，我绝对喜欢它…当天气暖和到可以放下车顶的时候。但是当下雪时，那是一场噩梦。我在考虑把它换成一辆[*【WRX】*](https://jalopnik.com/2015-subaru-wrx-the-jalopnik-review-1515746913)*，这是一个好的举动吗？*
 

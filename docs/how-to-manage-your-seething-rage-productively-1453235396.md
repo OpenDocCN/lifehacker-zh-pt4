@@ -1,6 +1,6 @@
 # 如何有效地控制你的怒火
 
-> 原文:[https://life hacker . com/how-to-manage-you-feather-productive-1453235396](https://lifehacker.com/how-to-manage-your-seething-rage-productively-1453235396)
+> 原文：<https://lifehacker.com/how-to-manage-your-seething-rage-productively-1453235396>
 
 在适当的情况下，任何人都可以变成绿巨人，迷失在他们沸腾的怒火中。虽然愤怒会让你看起来疯狂并引发各种各样的问题，但你也可以利用它来提高你的生活效率。
 

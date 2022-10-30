@@ -1,6 +1,6 @@
 # 当你陷入困境时如何选择大学专业
 
-> 原文:[https://life hacker . com/how-to-choose-a-college-major-when-you-stuck-1678175742](https://lifehacker.com/how-to-choose-a-college-major-when-youre-stuck-1678175742)
+> 原文：<https://lifehacker.com/how-to-choose-a-college-major-when-youre-stuck-1678175742>
 
 选择大学专业是一个重大的决定，如果匆忙做出，可能会让你失业，回到学校，或者从事你出于错误原因选择的职业。你可能会理解这些后果，并因恐惧或简单的犹豫不决而感到困顿，但你可以做一些事情来选择一个你感到更安全和快乐的专业。
 

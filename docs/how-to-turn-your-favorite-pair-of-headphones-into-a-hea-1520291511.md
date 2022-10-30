@@ -1,6 +1,6 @@
 # 如何把自己喜欢的一副耳机变成耳麦
 
-> 原文:[https://life hacker . com/how-to-turn-a-hea-1520291511](https://lifehacker.com/how-to-turn-your-favorite-pair-of-headphones-into-a-hea-1520291511)
+> 原文：<https://lifehacker.com/how-to-turn-your-favorite-pair-of-headphones-into-a-hea-1520291511>
 
 无论你是有一副听起来很棒的耳机，还是找不到一副麦克风符合你的品味、像你喜欢的那样便携、或者不会在音乐质量上妥协的耳机，都不要担心。将您最喜爱的耳机转变为可以录制语音、接听电话和处理视频聊天的耳机非常简单。
 

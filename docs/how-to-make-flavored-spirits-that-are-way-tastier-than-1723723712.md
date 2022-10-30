@@ -1,6 +1,6 @@
 # 如何制作比商店购买的味道更好的调味酒
 
-> 原文:[https://life hacker . com/how-to-make-flavored-the-way-than-taste-than-1723723712](https://lifehacker.com/how-to-make-flavored-spirits-that-are-way-tastier-than-1723723712)
+> 原文：<https://lifehacker.com/how-to-make-flavored-spirits-that-are-way-tastier-than-1723723712>
 
 走进任何一家大型酒类商店，你很可能会看到货架上摆放着包装丰富多彩的伏特加，口味从“曲奇”到“瑞典鱼”。尽管这是香味化学的奇迹，但这些烈酒尝起来往往令人作呕或不自然，除了新奇一击之外没什么好处。然而，自制输液是一个完全不同的故事，并且有让你控制结果的额外好处。
 

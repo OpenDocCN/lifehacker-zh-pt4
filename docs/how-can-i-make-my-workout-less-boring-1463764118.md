@@ -1,6 +1,6 @@
 # 我怎样才能让我的锻炼不那么无聊？
 
-> 原文:[https://life hacker . com/how-can-I-make-my-workout-less-boring-1463764118](https://lifehacker.com/how-can-i-make-my-workout-less-boring-1463764118)
+> 原文：<https://lifehacker.com/how-can-i-make-my-workout-less-boring-1463764118>
 
 亲爱的 Lifehacker，我在健身的时候非常无聊。当我去跑步时，我只是在倒计时，直到我回家。当我运动的时候，我太分心了。听音乐没有帮助。我能做些什么让锻炼变得更有趣，这样我就不会放弃，去做一些对我的大脑更有趣的事情？
 

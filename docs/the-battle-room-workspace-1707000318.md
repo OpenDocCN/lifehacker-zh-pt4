@@ -1,6 +1,6 @@
 # 作战室工作区
 
-> 原文:[https://lifehacker.com/the-battle-room-workspace-1707000318](https://lifehacker.com/the-battle-room-workspace-1707000318)
+> 原文：<https://lifehacker.com/the-battle-room-workspace-1707000318>
 
 今天的特色工作空间来自于战斗站子网站，但这不是一个普通的战斗站。它更像是一个战斗室，或者是所有游戏和极客的圣地。
 

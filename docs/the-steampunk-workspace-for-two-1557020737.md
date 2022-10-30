@@ -1,6 +1,6 @@
 # 双人蒸汽朋克工作室
 
-> 原文:[https://life hacker . com/the-steam punk-workspace-for-two-1557020737](https://lifehacker.com/the-steampunk-workspace-for-two-1557020737)
+> 原文：<https://lifehacker.com/the-steampunk-workspace-for-two-1557020737>
 
 蒸汽朋克，这种结合了工业古董和技术的独特风格，并不适合每个人，但很难不欣赏这对夫妇如何致力于将他们的家庭办公室完全注入蒸汽朋克风格。
 

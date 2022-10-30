@@ -1,6 +1,6 @@
 # 八个顽固的酒精神话，被科学揭穿
 
-> 原文:[https://life hacker . com/eight-顽固-酒精-神话-被科学揭穿-1589574974](https://lifehacker.com/eight-stubborn-alcohol-myths-debunked-by-science-1589574974)
+> 原文：<https://lifehacker.com/eight-stubborn-alcohol-myths-debunked-by-science-1589574974>
 
 饮酒的行为被神话所包围。无论是你可以欺骗酒精测试仪的想法，还是咖啡因可以让你清醒的建议，让我们揭穿这些误解，这样我们就可以真正享受我们的饮料了。
 

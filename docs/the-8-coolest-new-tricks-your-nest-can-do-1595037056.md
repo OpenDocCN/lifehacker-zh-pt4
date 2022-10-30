@@ -1,6 +1,6 @@
 # 你的窝能做的 8 个最酷的新把戏
 
-> 原文:[https://gizmodo . com/the-8-cool-new-tricks-your-nest-can-do-1595037056](https://gizmodo.com/the-8-coolest-new-tricks-your-nest-can-do-1595037056)
+> 原文：<https://gizmodo.com/the-8-coolest-new-tricks-your-nest-can-do-1595037056>
 
 昨晚晚些时候，Nest [宣布了其开发者计划](http://gizmodo.com/nests-new-developer-program-will-connect-all-your-devic-1595045380/all) :这是一项将允许超过 5000 名开发者修补和构建新的 Nest 功能的倡议。首先，它推出了一些合作伙伴支持的功能，从您的奔驰在离家近时告诉您的恒温器，到如果 Protect 检测到烟雾，LIFX 灯泡会闪烁红光。
 

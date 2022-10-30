@@ -1,6 +1,6 @@
 # 喝好茶的十大秘诀和窍门
 
-> 原文:[https://life hacker . com/top-ten-tips-and-tricks-for-terrible-tea-1688489186](https://lifehacker.com/top-ten-tips-and-tricks-for-terrific-tea-1688489186)
+> 原文：<https://lifehacker.com/top-ten-tips-and-tricks-for-terrific-tea-1688489186>
 
 就饮料受欢迎程度而言，茶仅次于水——如此受欢迎以至于它的消费量相当于咖啡、软饮料和酒精的总和。不过，总会有时间喝更好的茶，所以这里有 10 个建议和技巧，让你的茶更上一层楼。
 

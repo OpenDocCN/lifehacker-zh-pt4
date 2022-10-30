@@ -1,6 +1,6 @@
 # 如何决定没有车能不能活
 
-> 原文:[https://life hacker . com/how-to-decision-you can-live without a car-1651713372](https://lifehacker.com/how-to-decide-whether-you-can-live-without-a-car-1651713372)
+> 原文：<https://lifehacker.com/how-to-decide-whether-you-can-live-without-a-car-1651713372>
 
 汽车是美国(以及全世界)的一种生活方式。虽然我们大多数人都享受它们提供的自由，但它们的成本可能会成为预算的负担。不是每个人都可以在账本上没有那个红色标记的情况下生活，但是我们会帮你找出你是否是一个候选人。
 

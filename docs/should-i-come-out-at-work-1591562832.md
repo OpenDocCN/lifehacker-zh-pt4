@@ -1,6 +1,6 @@
 # 我应该在工作的时候出来吗？
 
-> 原文:[https://lifehacker.com/should-i-come-out-at-work-1591562832](https://lifehacker.com/should-i-come-out-at-work-1591562832)
+> 原文：<https://lifehacker.com/should-i-come-out-at-work-1591562832>
 
 亲爱的生活黑客，我正在申请工作，我不确定是否以及何时应该向我的潜在雇主透露我是同性恋。我不想在一个不接受我的地方工作，但我也需要钱来支付账单。我该怎么办？
 

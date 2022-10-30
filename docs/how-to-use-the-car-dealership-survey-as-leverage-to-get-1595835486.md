@@ -1,6 +1,6 @@
 # 如何利用汽车经销商调查作为获得更好交易的杠杆
 
-> 原文:[https://jalopnik . com/how-to-use-the-car-deadline-survey-as-leverage-to-get 1595835486](https://jalopnik.com/how-to-use-the-car-dealership-survey-as-leverage-to-get-1595835486)
+> 原文：<https://jalopnik.com/how-to-use-the-car-dealership-survey-as-leverage-to-get-1595835486>
 
 我总是建议购车者在经销商之外进行谈判，最好是通过电子邮件。然而，以这种方式购物并不总是容易的，你最终将不得不拜访经销商。如果你需要最后一张牌，你可以使用 CSI(客户服务指数)或“调查”作为额外的杠杆。
 

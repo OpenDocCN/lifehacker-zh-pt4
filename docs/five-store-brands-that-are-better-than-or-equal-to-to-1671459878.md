@@ -1,6 +1,6 @@
 # 五个优于(或等于)顶级品牌的商店品牌
 
-> 原文:[https://life hacker . com/five-store-brands-than-be-or-equal-to-1671459878](https://lifehacker.com/five-store-brands-that-are-better-than-or-equal-to-to-1671459878)
+> 原文：<https://lifehacker.com/five-store-brands-that-are-better-than-or-equal-to-to-1671459878>
 
 说到食品杂货，不可否认的是，商店品牌通常比名牌商品便宜。下面是来自 [《消费者报告》](http://www.consumerreports.org/cro/index.htm) 的 10 种受欢迎的杂货和商店品牌的比较，这些品牌实际上比更昂贵的名牌要好。
 

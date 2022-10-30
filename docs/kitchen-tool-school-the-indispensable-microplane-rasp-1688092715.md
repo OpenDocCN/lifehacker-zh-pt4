@@ -1,6 +1,6 @@
 # 厨房工具学校:不可或缺的微型刨丝器
 
-> 原文:[https://life hacker . com/kitchen-tool-school-the-essential-micro plane-rasp-1688092715](https://lifehacker.com/kitchen-tool-school-the-indispensable-microplane-rasp-1688092715)
+> 原文：<https://lifehacker.com/kitchen-tool-school-the-indispensable-microplane-rasp-1688092715>
 
 说到厨房设备，有些情况下你必须接受没有替代品。就像一把锋利的厨师刀，或者一把厚底的[铁煎锅](https://lifehacker.com/kitchen-tool-school-all-about-the-cast-iron-skillet-1685315104) 。或者微型锉刀磨碎机。
 

@@ -1,6 +1,6 @@
 # 通过此信息图了解 60 多个 Google Now 命令
 
-> 原文:[https://life hacker . com/learn-over-60-Google-now-commands-with this-infograph-1471859787](https://lifehacker.com/learn-over-60-google-now-commands-with-this-infographic-1471859787)
+> 原文：<https://lifehacker.com/learn-over-60-google-now-commands-with-this-infographic-1471859787>
 
 你可以用 Google Now 做很多 [很酷的事情，但是随着 Google 不断添加更多的语音命令(并将 Google Now 与](https://lifehacker.com/everything-you-didnt-know-you-could-do-with-google-voi-512727229) [Android KitKat](http://lifehacker.com/all-the-new-stuff-in-android-4-4-kitkat-1456286732) 集成得更多)，很容易忘记你所有的选项。这张图显示了许多最新的指示，如果你只是说“好的谷歌…”或者点击麦克风。
 

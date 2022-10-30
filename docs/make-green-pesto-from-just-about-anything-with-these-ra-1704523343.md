@@ -1,6 +1,6 @@
 # 用这些比例制作绿色香蒜酱
 
-> 原文:[https://life hacker . com/make-green-pesto-from just-about-what-with things-ra-1704523343](https://lifehacker.com/make-green-pesto-from-just-about-anything-with-these-ra-1704523343)
+> 原文：<https://lifehacker.com/make-green-pesto-from-just-about-anything-with-these-ra-1704523343>
 
 翠绿、辛辣、亮绿色的香蒜酱是我们可以放在任何东西上的东西之一——见鬼，你可以把它放在胶鞋上，它可能仍然味道鲜美。它通常由新鲜的罗勒、松子、帕尔马干酪、大蒜和橄榄油制成，但是你知道吗，你可以用几乎任何东西来做香蒜酱。
 

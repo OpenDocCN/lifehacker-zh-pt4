@@ -1,6 +1,6 @@
 # 如何阻止 Google+接管你所有的谷歌应用
 
-> 原文:[https://life hacker . com/how-to-stop-Google-from-taking-over-all-of-your-Google-1490281845](https://lifehacker.com/how-to-stop-google-from-taking-over-all-of-your-google-1490281845)
+> 原文：<https://lifehacker.com/how-to-stop-google-from-taking-over-all-of-your-google-1490281845>
 
 如果你还没有注意到，谷歌正在认真地确保每个人都注册和使用 Google+。无论是在 YouTube 上发表评论，发布和分享照片，甚至是与他人分享谷歌地图或驾驶路线，都需要通过 Google+。然而，并不是所有的都失去了！我们来看看哪里可以逃脱 Google+的魔掌，哪里又是你除了屈服别无选择的地方。
 

@@ -1,6 +1,6 @@
 # 在新城市定居的无压力指南
 
-> 原文:[https://life hacker . com/the-stress-free-guide-to-settling-in-a-new-city-5798087](https://lifehacker.com/the-stress-free-guide-to-settling-down-in-a-new-city-5798087)
+> 原文：<https://lifehacker.com/the-stress-free-guide-to-settling-down-in-a-new-city-5798087>
 
 无论你是搬到城镇的另一边，还是搬到整个国家(或更远)，在一个新的城市安顿下来总是有点伤脑筋。这里有一些熟悉你的新家和结交新朋友的最好方法。
 

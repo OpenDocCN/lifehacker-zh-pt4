@@ -1,6 +1,6 @@
 # 什么是咖啡因恐惧症——你如何消除它们？
 
-> 原文:[https://gizmodo . com/what-are-caffeine-jitters-and-how-do-out-of-t-1652272515](https://gizmodo.com/what-are-caffeine-jitters-and-how-do-you-get-rid-of-t-1652272515)
+> 原文：<https://gizmodo.com/what-are-caffeine-jitters-and-how-do-you-get-rid-of-t-1652272515>
 
 过多的咖啡因，无论是咖啡、茶还是能量饮料，都会毁了你的一天。以下是为什么你每天的颠簸会让你神经过敏，以及你可以做些什么来摆脱不想要的嗡嗡声。
 

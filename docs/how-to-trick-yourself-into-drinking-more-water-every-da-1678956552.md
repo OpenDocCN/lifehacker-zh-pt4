@@ -1,6 +1,6 @@
 # 如何骗自己每天多喝水
 
-> 原文:[https://life hacker . com/how-to-trick you-to-drinking to-drinking-more-water-every-da-1678956552](https://lifehacker.com/how-to-trick-yourself-into-drinking-more-water-every-da-1678956552)
+> 原文：<https://lifehacker.com/how-to-trick-yourself-into-drinking-more-water-every-da-1678956552>
 
 水是你能摄入体内的最好的东西，然而我们很多人一整天都忽略了它。这里有一些很好的方法来欺骗自己养成每天大量饮水的健康习惯。
 

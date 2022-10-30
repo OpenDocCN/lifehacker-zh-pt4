@@ -1,6 +1,6 @@
 # 如何还清债务，还能享受你梦想中的假期
 
-> 原文:[https://life hacker . com/how-to-pay-off-debt-and-take-your dream-vacation-1708571367](https://lifehacker.com/how-to-pay-off-debt-and-still-take-your-dream-vacation-1708571367)
+> 原文：<https://lifehacker.com/how-to-pay-off-debt-and-still-take-your-dream-vacation-1708571367>
 
 当我还学生贷款和信用卡债务时，我知道明智的做法是还清债务。但是我也想去旅行。这是一个棘手的问题:你想继续偿还债务，但又不想在还有时间的时候放弃旅行梦想。或者见鬼，也许你只是想要一个假期。
 

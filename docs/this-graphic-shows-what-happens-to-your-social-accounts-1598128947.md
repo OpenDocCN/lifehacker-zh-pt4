@@ -1,6 +1,6 @@
 # 这张图展示了当你死后，你的社交账户会发生什么
 
-> 原文:[https://life hacker . com/this-graphic-shows-what-happens-to-your-social-accounts-1598128947](https://lifehacker.com/this-graphic-shows-what-happens-to-your-social-accounts-1598128947)
+> 原文：<https://lifehacker.com/this-graphic-shows-what-happens-to-your-social-accounts-1598128947>
 
 我们都不愿意去想我们的死亡或者我们所爱的人的死亡，但是死亡是一件需要准备的事情。当它来临时，你不想被困在试图进入你爱的人的 Gmail 或脸书帐户来关闭它。这张图向你展示了你的处境，以及你或你所爱的人应该做好的准备。
 

@@ -1,6 +1,6 @@
 # 如何安排你和特雷罗的整个生活
 
-> 原文:[https://life hacker . com/how-to-use-trello-to-organize-your-all-life-1683821040](https://lifehacker.com/how-to-use-trello-to-organize-your-entire-life-1683821040)
+> 原文：<https://lifehacker.com/how-to-use-trello-to-organize-your-entire-life-1683821040>
 
 [Trello](https://trello.com) 是一个很棒的项目管理工具， [让协作变得简单，我敢说，甚至有趣](https://lifehacker.com/trello-makes-project-collaboration-simple-and-kind-of-e-5839942) 。但是这个可视化列表工具可以做更多的事情，无论你是组织工作项目，家庭琐事，旅行计划，还是其他任何事情。以下是一些让特雷罗管理你整个生活的方法。
 

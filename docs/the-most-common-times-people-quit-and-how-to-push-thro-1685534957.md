@@ -1,6 +1,6 @@
 # 人们退出的最常见时机，以及如何度过
 
-> 原文:[https://life hacker . com/the-most-common-times-people-quit-and-how-to-push-thro-1685534957](https://lifehacker.com/the-most-common-times-people-quit-and-how-to-push-thro-1685534957)
+> 原文：<https://lifehacker.com/the-most-common-times-people-quit-and-how-to-push-thro-1685534957>
 
 有时候，放弃是最好的选择——不管是副业、工作、关系还是生活的其他部分。然而，当事情变得艰难时，当时机让我们“感觉”必须要做时，我们也会因为没有资源去完成某事而放弃。以下是人们退出的最常见的情况，以及你可以做些什么来度过难关。
 

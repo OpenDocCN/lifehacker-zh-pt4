@@ -1,6 +1,6 @@
 # 最常见的债务类型以及如何解决它们
 
-> 原文:[https://life hacker . com/the-most-common-types of-the-debt-and-how-toggling-them-1688461004](https://lifehacker.com/the-most-common-types-of-debt-and-how-to-tackle-them-1688461004)
+> 原文：<https://lifehacker.com/the-most-common-types-of-debt-and-how-to-tackle-them-1688461004>
 
 积累债务可能看起来像掉进了一个陡峭的峡谷，试图爬出来，却没有任何东西可以抓住。但是你可以用一些资源和方法武装自己来控制(并还清)你的债务。以下是开始的方法。
 

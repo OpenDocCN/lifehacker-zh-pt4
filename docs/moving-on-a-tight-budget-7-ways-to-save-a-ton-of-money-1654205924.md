@@ -1,6 +1,6 @@
 # 在预算紧张的情况下行动:节省大量金钱的七种方法
 
-> 原文:[https://life hacker . com/move-on-a-tight-budget-7-ways-save-a-ton-of-money-1654205924](https://lifehacker.com/moving-on-a-tight-budget-7-ways-to-save-a-ton-of-money-1654205924)
+> 原文：<https://lifehacker.com/moving-on-a-tight-budget-7-ways-to-save-a-ton-of-money-1654205924>
 
 除非你是一个虔诚的极简主义者，否则搬家会让人望而生畏——尤其是当你预算紧张的时候。你如何把你所有的东西从你现在的家搬到你的新家，而不会在这个过程中损失一大笔钱？这里有一些在预算紧张的情况下行动的技巧和策略。
 

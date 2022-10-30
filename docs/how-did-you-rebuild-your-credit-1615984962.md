@@ -1,6 +1,6 @@
 # 你是如何重建信用的？
 
-> 原文:[https://life hacker . com/how-do-you-rebuild-you-credit-1615984962](https://lifehacker.com/how-did-you-rebuild-your-credit-1615984962)
+> 原文：<https://lifehacker.com/how-did-you-rebuild-your-credit-1615984962>
 
 生活在不良信用中会是一种巨大的痛苦。它会影响一切，从你的信用卡使用到你的抵押贷款利率。对于那些已经重建了信用的人，我们想知道:你们是怎么做到的？
 

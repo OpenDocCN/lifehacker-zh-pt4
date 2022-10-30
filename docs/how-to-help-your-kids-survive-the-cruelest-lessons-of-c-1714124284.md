@@ -1,6 +1,6 @@
 # 如何帮助你的孩子度过童年最残酷的一课
 
-> 原文:[https://life hacker . com/how-to-help-your-kids-survive-the-crude-lessons-of-c-1714124284](https://lifehacker.com/how-to-help-your-kids-survive-the-cruelest-lessons-of-c-1714124284)
+> 原文：<https://lifehacker.com/how-to-help-your-kids-survive-the-cruelest-lessons-of-c-1714124284>
 
 我们成年人往往带着一种羡慕的眼光看着孩子:无忧无虑、放暑假、重新享受青春不是很好吗？我们忘记了成长也意味着经历许多痛苦的领悟。为了唤起我们的记忆，这里有一些我们必须帮助孩子度过的课程。
 

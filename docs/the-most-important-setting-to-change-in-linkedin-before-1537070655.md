@@ -1,6 +1,6 @@
 # 找工作之前，LinkedIn 最重要的改变是什么
 
-> 原文:[https://life hacker . com/the-most-important-setting-to-change-in-LinkedIn-before-1537070655](https://lifehacker.com/the-most-important-setting-to-change-in-linkedin-before-1537070655)
+> 原文：<https://lifehacker.com/the-most-important-setting-to-change-in-linkedin-before-1537070655>
 
 LinkedIn 是你职业生涯中最好的社交网络，无论你是想用它来 [找工作](https://lifehacker.com/how-can-i-make-linkedin-more-useful-in-landing-a-job-1066870899) 还是只是 [提高你的就业率](http://lifehacker.com/how-to-use-linkedin-to-increase-your-hirability-5836507) 。然而，它也不是没有烦恼。如果你特别为找工作准备你的个人资料，在一切变得糟糕之前，你会想先去 LinkedIn 上看看这个设置。
 

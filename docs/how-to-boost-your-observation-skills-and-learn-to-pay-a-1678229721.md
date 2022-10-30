@@ -1,6 +1,6 @@
 # 如何提高你的观察技能并学会集中注意力
 
-> 原文:[https://life hacker . com/how-to-boost-your-observation-skills and-learn-to-pay-a-1678229721](https://lifehacker.com/how-to-boost-your-observation-skills-and-learn-to-pay-a-1678229721)
+> 原文：<https://lifehacker.com/how-to-boost-your-observation-skills-and-learn-to-pay-a-1678229721>
 
 很容易不关注这个世界。我们走路时会垂下眼睛，在超市里会避免目光接触。对于我们大多数人来说，我们的默认状态往往是忽视我们周围的事情。但是这样做让我们错过了灵感，也没有发展我们的好奇心。以下是如何训练自己对周围的世界多一点关注。
 

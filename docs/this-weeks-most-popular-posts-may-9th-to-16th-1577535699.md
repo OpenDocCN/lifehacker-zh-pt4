@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:5 月 9 日至 16 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-may-9-to-16-1577535699](https://lifehacker.com/this-weeks-most-popular-posts-may-9th-to-16th-1577535699)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-may-9th-to-16th-1577535699>
 
 本周我们 [学习了在好市多](https://lifehacker.com/what-to-buy-and-not-buy-at-costco-according-to-consu-1573463028) ， [获得了文字 911](http://lifehacker.com/you-can-text-911-in-an-emergency-starting-tomorrow-1576457059) ， [谈妥更好的折扣](http://twocents.lifehacker.com/this-phrase-will-help-you-negotiate-better-discounts-1573190685) ， [获得了我们的路由器](http://lifehacker.com/the-most-important-security-settings-to-change-on-your-1573958554) 。这里回顾一下。
 

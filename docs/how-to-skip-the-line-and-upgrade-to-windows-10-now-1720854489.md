@@ -1,6 +1,6 @@
 # 现在如何跳过线升级到 Windows 10
 
-> 原文:[https://life hacker . com/how-to-skip-the-line-and-upgrade-to-windows-10-now-1720854489](https://lifehacker.com/how-to-skip-the-line-and-upgrade-to-windows-10-now-1720854489)
+> 原文：<https://lifehacker.com/how-to-skip-the-line-and-upgrade-to-windows-10-now-1720854489>
 
 如果你已经预订了 Windows 10 的副本，但还没有得到升级提示，这里有一个秘密:你可以跳过这一行，现在就升级。
 

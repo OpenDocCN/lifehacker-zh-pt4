@@ -1,6 +1,6 @@
 # 如何通过国税局的规则，现在就拿到你的退休金
 
-> 原文:[https://life hacker . com/how-to-navigate-the-IRS-rules-and-get-your-retirement-1690933443](https://lifehacker.com/how-to-navigate-the-irs-rules-and-get-your-retirement-1690933443)
+> 原文：<https://lifehacker.com/how-to-navigate-the-irs-rules-and-get-your-retirement-1690933443>
 
 为退休存钱很重要，税收优惠也很大，但是如果你现在需要钱怎么办？如果你需要动用你的退休储蓄，有很多方法可以实现。但是所有的具体规则使它变得令人困惑。
 

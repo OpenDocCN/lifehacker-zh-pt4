@@ -1,6 +1,6 @@
 # 你每天都在破坏你的创造力
 
-> 原文:[https://life hacker . com/how-you-deserting-you-creativity-every-day-1696610464](https://lifehacker.com/how-youre-sabotaging-your-creativity-every-day-1696610464)
+> 原文：<https://lifehacker.com/how-youre-sabotaging-your-creativity-every-day-1696610464>
 
 我们经常谈论你可以做的 [简单的事情来提高创造力](http://lifehacker.com/top-10-ways-to-get-your-creative-juices-flowing-5792708) 并创造更多神奇的灵光一现，但是我们中的许多人倾向于破坏创造力而不是培养它。以下是一些你可能每天都在做的自毁行为。
 

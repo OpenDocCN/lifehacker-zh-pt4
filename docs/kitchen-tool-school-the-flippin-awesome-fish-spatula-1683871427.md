@@ -1,6 +1,6 @@
 # 厨房工具学校:神奇的鱼铲
 
-> 原文:[https://life hacker . com/kitchen-tool-school-the-flippin-awesome-fish-spatula-1683871427](https://lifehacker.com/kitchen-tool-school-the-flippin-awesome-fish-spatula-1683871427)
+> 原文：<https://lifehacker.com/kitchen-tool-school-the-flippin-awesome-fish-spatula-1683871427>
 
 让我们发起一个运动，重新命名鱼铲。不仅“鱼锅铲”这个名字很不性感——它的其他绰号“鱼锅铲”和“开槽锅铲”也是如此——而且这个术语也没有反映出这个小厨房工具能够完成的所有不同功能。
 

@@ -1,6 +1,6 @@
 # 五个最佳备用电池/UPS 单元
 
-> 原文:[https://life hacker . com/five-best-battery-backups-units-1465536280](https://lifehacker.com/five-best-battery-backups-ups-units-1465536280)
+> 原文：<https://lifehacker.com/five-best-battery-backups-ups-units-1465536280>
 
 断电、电涌和限电都会对你的电子设备造成严重破坏，虽然一个好的电涌保护器 肯定会有所帮助，但一个坚固的备用电池会让你的设备免受电涌的影响，在电源到来时调节电源，并保持设备运行，直到你可以在断电的情况下安全关闭它。本周，我们将根据你们的提名选出五位最佳选手。
 

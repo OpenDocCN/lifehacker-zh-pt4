@@ -1,6 +1,6 @@
 # 孩子们成年前应该学习的最重要的课程
 
-> 原文:[https://life hacker . com/the-most-the-important-lessons-children-should-before-learn 1582861166](https://lifehacker.com/the-most-important-lessons-children-should-learn-before-1582861166)
+> 原文：<https://lifehacker.com/the-most-important-lessons-children-should-learn-before-1582861166>
 
 当孩子们高中毕业时，他们将学会如何解决复杂的数学问题，撰写评论文章，甚至可能编写自己的程序。但是，最有价值的课程和技能可能会在课外传授，尤其是由父母或其他成年人的榜样。在孩子们独立之前，你认为他们都应该学习哪些人生课程？
 

@@ -1,6 +1,6 @@
 # 如果我没有获得晋升，我该怎么办？
 
-> 原文:[https://life hacker . com/what-should-I-do-if-I-ve-be-over-for-promote I-1558813533](https://lifehacker.com/what-should-i-do-if-ive-been-passed-over-for-a-promoti-1558813533)
+> 原文：<https://lifehacker.com/what-should-i-do-if-ive-been-passed-over-for-a-promoti-1558813533>
 
 亲爱的 Lifehacker，
 我在我的工作岗位上已经呆了很长时间，我很擅长我所做的事情，我的老板和我的同事都给了我很好的评价，所以当我们组出现一个高级职位空缺时，我想当我们的老板为这份工作挑选人选时，我会得到它。他选了别人，对此我有点生气。我应该吗？我应该把这当成一个信息并退出吗？我该如何反应？

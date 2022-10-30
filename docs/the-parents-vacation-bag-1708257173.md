@@ -1,6 +1,6 @@
 # 父母的度假包
 
-> 原文:[https://lifehacker.com/the-parents-vacation-bag-1708257173](https://lifehacker.com/the-parents-vacation-bag-1708257173)
+> 原文：<https://lifehacker.com/the-parents-vacation-bag-1708257173>
 
 照顾一家四口不是一件容易的事。你需要为各种疯狂的事情做好准备。在《日常携带》中，迈克尔·沃斯伯格分享了他使用的工具。
 
