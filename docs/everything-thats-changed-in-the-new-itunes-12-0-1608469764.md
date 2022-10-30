@@ -1,0 +1,33 @@
+# 新 iTunes 12.0 中的所有变化
+
+> 原文:[https://gizmodo . com/everything-thas-changed-in-the-new-itunes-12-0-1608469764](https://gizmodo.com/everything-thats-changed-in-the-new-itunes-12-0-1608469764)
+
+苹果 [刚刚发布了](http://9to5mac.com/2014/07/21/apple-seeds-revamped-itunes-12-and-os-x-yosemite-preview-4-to-developers/) 最新版本的 OS X Yosemite，包括一个全新的 iTunes。只是有点反高潮。12.0 版本确实看起来很像 11.3 版本，也就是你电脑上可能有的版本。但是它还是有一些可爱的小东西。
+
+Watch
+
+当然，你首先会注意到的是新图标。为红色欢呼！还是粉色的？
+
+除此之外，新的 iTunes 超级简单，如果在房地产方面稍微经济一点的话。顶部的导航栏已经被清理过了，因此中间的显示一直延伸到边缘，并且渐变与 Yosemite 的其余部分相匹配。左栏(或下拉菜单，过去在菜单栏的左侧，取决于您的视图)已被一行音乐、电影、电视节目、有声读物和应用程序的小图标所取代，其中一个…下拉菜单用于所有其他内容。
+
+同时，你不能在歌曲、专辑、艺术家等之间切换。在上面。现在右手边是一个下拉菜单。因此，我们失去了一个下拉菜单，以获得一个下拉菜单。不管怎样，看起来更好。查看旧的 iTunes:
+
+请看，新的 iTunes:
+
+这是另一种观点:
+
+戏剧性的不同？不，不是真的。增量更新使导航稍微容易一些，而不会使事情变得太复杂？当然，为什么不呢？不满意这个有限的预览？嗯，幸运的是我今天想截图。
+
+看看这个令人惊叹的复选框菜单，它可以让您更改想要显示的新图标:
+
+这是新的应用程序屏幕，实际上与旧的应用程序屏幕几乎相同:
+
+这是新的 iTunes 商店，实际上和旧商店几乎一样:
+
+值得指出的是，iTunes 仍在探索新的方式，让你更容易在 iTunes 中买东西。歌曲标题旁边的按钮可让您购买正在 iTunes Radio 上播放的歌曲。以前也是下拉菜单，但是 [按钮让购买更容易](http://gizmodo.com/all-your-favorite-social-networks-are-turning-into-stor-1606873068) ！
+
+iTunes Radio 仍然存在，提醒人们它本可以是什么样子，而 [对它是什么样子的](http://gizmodo.com/itunes-radio-isnt-for-you-its-for-apple-1342593360) 感到失望。(不过，La Roux 的新专辑相当不错。)
+
+更新中不可避免地隐藏着其他小调整。我们会继续挖掘，但如果你碰巧运行的是最新版本的优胜美地，请让我们知道你的发现！
+
+<small>*图片通过 iTunes / Gizmodo*</small>

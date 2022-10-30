@@ -1,0 +1,18 @@
+# 小型团体和团队的最佳协作工具
+
+> 原文:[https://life hacker . com/the-best-collaboration-tools-for-small-groups-and-teams-1477548590](https://lifehacker.com/the-best-collaboration-tools-for-small-groups-and-teams-1477548590)
+
+在 Lifehacker，我们经常谈论个人生产力工具，但有时你并不是唯一一个需要完成项目或工作才能成功的人。无论你是想组织一次家庭装修，组织一个少年棒球联盟队，计划一次家庭度假，还是让办公室里的每个人都致力于相同的项目和优先事项，都有很多很好的工具可以帮助你。
+
+Watch
+
+我们有一些自己的，我们将在下面的讨论中分享它们，但我们希望你也能在同样的条件下与我们分享你自己的，而不是仅仅将一系列项目放在一起。**以下是如何格式化你最喜欢的协作应用或工具**:
+
+1.  **附一张图！**给我们展示一下这个工具的样子，或者至少给我们一个 logo。一点视觉趣味不会伤害任何人。
+2.  **每个评论一个工具请**！让它简单易读——如果你有多个应用或服务，把它们作为单独的评论添加进来！
+3.  **尽量不要重复 app**！如果您看到有人已经分享了您的选择，请点按星号或回复他们的评论，为您的选择加油打气！
+4.  **告诉我们它是如何为你工作的**。养猫很难——这个应用对你有什么作用，你用它做什么？是付费使用，还是免费使用？为什么喜欢？
+
+那么，让我们开始吧！我们将在讨论中为您介绍一些我们最喜欢的节省时间的技巧，但我们对您的技巧非常感兴趣，所以请继续。
+
+<small>*标题照片由*</small>[<small>*Laias*</small>](http://www.shutterstock.com/pic.mhtml?id=114857449&src=id)<small>*(Shutterstock)和*</small>[<small>*Kapreski*</small>](http://www.shutterstock.com/pic.mhtml?id=102179725&src=id)<small>*(Shutterstock)。*</small>

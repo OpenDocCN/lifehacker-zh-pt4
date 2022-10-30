@@ -1,0 +1,11 @@
+# 用这些科幻壁纸飞向未来
+
+> 原文:[https://life hacker . com/blast-off-to-future with the-this-sci-fi-wallpapers-1531541180](https://lifehacker.com/blast-off-into-the-future-with-these-sci-fi-wallpapers-1531541180)
+
+无论未来是科技乌托邦还是反乌托邦噩梦，你都可以用这些壁纸在当下享受。
+
+Watch
+
+伙计们，我们要稍微改变一下周三壁纸系列。每周我们都会分享一些壁纸，只是为了让你们在评论中分享同样精彩的壁纸，所以从本周开始，我们会将我们的壁纸转移到你们的评论中，这样我们就可以每周创建一个协作收藏。这样，我们会对你的建议和我们的建议给予同等的重视，每个系列都不会只关注一个人的品味或风格。
+
+所以下面分享一下你的壁纸(最好有链接和分辨率哦！

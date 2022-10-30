@@ -1,0 +1,33 @@
+# 最好的树莓派案例是什么？
+
+> 原文:[https://life hacker . com/whats-the-best-raspberry-pi-case-1573169657](https://lifehacker.com/whats-the-best-raspberry-pi-case-1573169657)
+
+你知道我们喜欢树莓派，但当你得到一个时，你应该做的第一件事就是为它找到一个像样的盒子。一个好的案例将保证它的安全，保护端口，很好地适应您的构建项目，同时增加一点风格。本周，我们想听听你最喜欢的 Pi 案例。
+
+Watch
+
+我们在这件事上开了一个很大的口子。我们知道你们中的许多人使用覆盆子 Pis 做不同的事情，所以不同的情况确实适用。然而，我们希望你们中的一些人有一些社区会喜欢到足以上升到前五名。
+
+竞争者的征集已经截止！为了看看你的提名者获得了足够的支持，使其进入前五名，我们的蜂巢五大特色， [*五大最佳覆盆子案例*](https://lifehacker.com/five-best-raspberry-pi-cases-1574306176) *！别忘了为全力以赴的获胜者投票！*
+
+让我们在下面的讨论中听到你的投票吧！请遵循以下指南进行投票:
+
+1.  **请按照以下格式投票，包括粗体字**。如果没有，就不算:
+
+    > **最佳树莓派案例照片**
+    > 
+    > **投票:【最佳覆盆子 PI 案例】**
+    > 
+    > **为什么:**为什么这个案例是您更喜欢或会推荐给他人的？也许它很坚固，或者通风良好，或者它很便宜，看起来很好。提出你的理由！尽量保持在一个段落，也许两个。
+
+    不要重复提名！相反，如果有人提名了你的作品，给它加星(推荐),然后回复你的故事。
+
+    **请勿留非入，直接评论本帖。**他们只会被推倒。把你的故事留给别人来写吧！
+
+如果你不确定我们的意思，就看看下面我们的作者的提名吧。我们会给你一个良好的开端，它们都应该是适当的格式，所以你可以跟着我们的领导。
+
+*<small></small>*<small>[*<small>Hive Five</small>*](http://lifehacker.com/tag/hive-five)*<small>是我们的每周系列，在这里你可以为任何给定的工作投票选出你最喜欢的应用和工具。对题目有什么建议？发送邮件至</small>*[*<small>tips+hivefive@lifehacker.com</small>*](mailto:tips+hivefive@lifehacker.com)*<small>！</small>*</small>
+
+<small><small>*照片由*</small>[<small></small>](https://www.flickr.com/photos/sbardella/7473604878)*<small>*。*T15】</small>*</small>
+
+<small></small>
