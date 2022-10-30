@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/email-etiquette-for-entrepreneurs-1624055561>
 
-[Get Ready To...](https://worksmarter.kinja.com)) : title[![](../Images/6df5a12c55ead4b12ad20872c9620c3d.png)](https://worksmarter.kinja.com)[Get Ready To...](https://worksmarter.kinja.com)Running a small business is hard work, but we're here to help. Welcome to Work Smarter, your one-stop-shop for tips and tricks to help small business owners save time and energy.
+
 
 经营一家初创公司几乎等同于“发送大量电子邮件”，但当你给别人发邮件寻求帮助或介绍时，你不会想变得垃圾邮件和令人讨厌。以下是企业家的一些最佳电子邮件实践。
 
