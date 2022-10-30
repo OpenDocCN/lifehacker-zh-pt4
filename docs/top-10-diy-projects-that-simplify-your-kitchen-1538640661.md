@@ -4,7 +4,7 @@
 
 对某些人来说，你的厨房就是那个你不得不做饭的讨厌的房间。但是如果你已经在家里 [开始做饭](https://lifehacker.com/how-can-i-get-more-into-cooking-at-home-5914303) ，这是最需要效率改造的房间。这里有 10 个让你的厨房变得更好的 DIY 项目。
 
-Watch
+
 
 ### 10.在橱柜中腾出更多空间
 

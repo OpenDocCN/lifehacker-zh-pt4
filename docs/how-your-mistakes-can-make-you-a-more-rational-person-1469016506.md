@@ -4,7 +4,7 @@
 
 作为人类，我们无时无刻不在犯错误，但我们并不经常认识到它们的本质:那些需要被视为有用的教训的挫折。这里有一些惊人的大脑技巧，可以帮助你从失败中吸取教训，变得更加理性。
 
-Watch
+
 
 为了了解更多，我们采访了斯潘塞·格林伯格和 T3。你可能还记得斯潘塞，今年早些时候他告诉我们 [贝叶斯法则如何让我们更加理性](https://gizmodo.com/how-bayes-rule-can-make-you-a-better-thinker-471233405) 。他是一位 [数学家](http://www.askamathematician.com/) ，人工智能驱动的投资公司[Rebellion Research](http://rebellionresearch.com/main.html)的联合创始人，也是[clear thinking](http://www.clearerthinking.org)的创始人，这是一个提供免费决策培训项目的在线项目，包括帮助人们从错误中学习的项目。
 

@@ -4,7 +4,7 @@
 
 [Pixelmator](http://www.pixelmator.com/) 现在是我们 [最喜欢的 Mac 图像编辑应用](https://lifehacker.com/the-best-image-editing-app-for-mac-os-x-5874394) ，因为它便宜得令人难以置信(29.99 美元)，而且几乎和昂贵得多的 Adobe Photoshop 一样强大。但是如果你是从 Photoshop 过来的，你会注意到事情有点不同。让我们来看看如何在 Pixelmator 中做一些最常见的 Photoshop 东西，这样你就可以马上开始使用它。
 
-Watch
+
 
 正如你所料，Pixelmator 看起来与 Photoshop 不同，但对于编辑照片来说，它几乎做了 Photoshop 做的一切——特别是针对普通用户的需求。它也更容易使用，特别是如果你是图像编辑的新手。也就是说，Pixelmator 非常相似，使用许多相同的工具栏图标，如果 [你在](https://lifehacker.com/learn-the-basics-of-photoshop-the-complete-guide-5758404) 之前使用过 Photoshop，你不到一个小时就可以掌握 Pixelmator。如果你厌倦了 Adobe 昂贵的订阅价格，现在是做出改变的好时机。如果你不是 Mac 用户，GIMP 可以被定制成和 Photoshop 一样好用，你可以 [点击这里](http://lifehacker.com/how-to-make-the-gimp-work-more-like-photoshop-1551318983) 查看我们的指南。
 

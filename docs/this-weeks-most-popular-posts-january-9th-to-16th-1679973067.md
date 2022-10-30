@@ -4,7 +4,7 @@
 
 这一周我们 [跑下来最好的 Gmail 功能](https://lifehacker.com/top-10-gmail-labs-and-features-you-should-enable-5721986)[学会了一些管教孩子的小技巧](http://lifehacker.com/six-tips-on-disciplining-children-from-an-experienced-t-1679048782)[发现了最好的密码管理器](http://lifehacker.com/the-five-best-password-managers-5529133)[发现了剪电缆能省多少钱](http://lifehacker.com/use-this-calculator-to-decide-if-dropping-cable-will-sa-1679043694) 。这里回顾一下。
 
-Watch
+
 
 ## [您应该启用的十大 Gmail 实验室和功能](http://lifehacker.com/top-10-gmail-labs-and-features-you-should-enable-5721986)
 

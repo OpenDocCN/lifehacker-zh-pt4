@@ -4,7 +4,7 @@
 
 自从我开始远程工作以来，我变得更有效率，学会了更快地完成工作，并且更善于区分工作的优先级。我也学到了更多关于我如何工作，以及什么时候我工作得最好。
 
-Watch
+
 
 ***本帖原载于*** [***剧组博客***](http://blog.pickcrew.com/how-to-find-the-perfect-remote-working-setup-for-you/) ***。**T15】*
 

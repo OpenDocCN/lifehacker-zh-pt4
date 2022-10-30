@@ -4,7 +4,7 @@
 
 实际上日历上的每一天都有一个你可以庆祝的“节日”，从元旦的“北极熊跳水日”到一年最后一天的“下定决心日”。尽管这些特殊的日子有些愚蠢(许多是由组织和营销人员想象出来的)，但有些是获得免费东西的好时机，比如免费食物、免费娱乐等等。以下是你全年都可以用免费赠品来庆祝的方法。
 
-Watch
+
 
 除了典型的假日，如 [情人节](https://lifehacker.com/grab-a-free-dvd-rental-ben-and-jerrys-ice-cream-and-m-5884960) 甚至 [纳税日](http://lifehacker.com/get-free-document-shredding-plus-other-free-goodies-f-5994402) ，事实证明，公司喜欢在相当晦涩的年度假日赠送免费的东西。请关注下面的人，并在评论中添加不在此列表中的人，以便我们更新我们的日历。我已经创建了一个 [公共谷歌日历](http://www.google.com/calendar/embed?src=lifehacker.com_n98psf3du9ckkdun4hbhm4abbo%40group.calendar.google.com&ctz=America/New_York%20) 你可以添加到你的日历中，或者只是添加个别事件。(对于每年都不一样的假期，我只是把它们加到月初作为提醒，并且用不同的颜色。)
 

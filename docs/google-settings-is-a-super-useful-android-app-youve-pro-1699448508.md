@@ -4,7 +4,7 @@
 
 早在 2013 年，谷歌就悄悄的 [给安卓添加了“谷歌设置”app](http://www.androidpolice.com/2013/02/26/silently-installing-itself-on-a-device-near-you-the-green-google-settings-icon-its-just-google-play-services-3-0/) (不要和安卓正常的“设置”app 混淆)。起初它没有太多功能，但多年来，它增加了大量有用的功能，尤其是对注重隐私的人来说。如果你已经有一段时间没有查看它了，那就值得再看一眼。
 
-Watch
+
 
 ### 禁用帐户历史记录中的大量活动跟踪
 

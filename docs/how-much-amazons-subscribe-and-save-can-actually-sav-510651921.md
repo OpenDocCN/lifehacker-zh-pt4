@@ -4,7 +4,7 @@
 
 我们是亚马逊 [订阅并保存](http://www.amazon.com/gp/subscribe-and-save/details/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-much-amazons-subscribe-and-save-can-actually-sav-510651921&asc_source=&tag=kinjalifehackerlink-20) 订阅的粉丝，它允许你定期将家居用品运送给你，但它是否真的能为你节省那么多钱一直有争议。Simple Dollar 查看了 Subscribe and Save，并将其与当地的仓库俱乐部进行了比较，以了解可以节省多少钱。
 
-Watch
+
 
 经过一番挖掘和价格比较后，Simple Dollar 分析了一些数据，发现在大量搜索后，订阅和保存可以省钱，但有几个注意事项:
 

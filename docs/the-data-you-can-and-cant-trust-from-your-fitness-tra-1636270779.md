@@ -4,7 +4,7 @@
 
 每个人都在追踪健康的趋势。Apple Watch 会跟踪你的心跳、步数和活动。Fitbit 和 Fuelband 多年来一直在做类似的事情。但是它们并不完美。往好里说，数据是很好的鼓励，往坏里说，是不可靠的，误导的。这就是为什么所有的数据并不等于更好的健康，以及你实际上可以使用的。
 
-Watch
+
 
 当谷歌宣布 [Android Wear](http://www.android.com/intl/en_us/wear/) 和苹果上周再次宣布 [Apple Watch](http://www.apple.com/watch/) 时，健身专家观察两家公司是否会尝试一些不同的东西，或者采用 [Fitbit](http://www.fitbit.com/) 和 [Nike Fuelband](http://www.nike.com/us/en_us/c/nikeplus-fuelband) 的方法来进行活动跟踪。两家公司都选择了后者，这意味着 Android Wear 设备和 Apple Watch 将更像是你已经可以买到的小工具，而不是健身和健康方面的任何新东西。
 

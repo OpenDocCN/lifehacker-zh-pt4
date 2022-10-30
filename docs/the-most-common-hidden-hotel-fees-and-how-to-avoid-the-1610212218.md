@@ -4,7 +4,7 @@
 
 当你在一个不错的旅游预订网站 上用 [预订酒店房间时，你可能会认为你得到了一笔大交易。然后，当你到达时，你会遇到你不知道的费用。以下是一些最常见的罪魁祸首，以及一些可以避免它们的方法。](https://lifehacker.com/five-best-cheap-travel-booking-sites-5795117)
 
-Watch
+
 
 酒店费用是一笔大生意，而且一直在上涨。根据 NYU 酒店、旅游和体育管理中心的数据， [酒店在 2013 年](http://www.usatoday.com/story/dispatches/2013/08/13/hotels-fees-surcharges-nyu/2649739/) 实现了创纪录的 21 亿美元。鲍勃·苏利文在 Credit.com 博客 [中列举了一些大的错误:](http://blog.credit.com/2014/07/hotel-gotchas-87810/)
 

@@ -4,7 +4,7 @@
 
 如果你是 DIY 新手，像我一样刚刚进入 [Arduino](http://makezine.com/category/electronics/arduino/) 的 [项目建设，你可能会感到有点不知所措。你可能认为你学不会这些东西。我对微控制器、编程和设计的世界还比较陌生...但是我做到了，而且比我想象的要容易！以下是我学到的。](https://lifehacker.com/how-to-get-started-with-diy-electronics-projects-5975190)
 
-Watch
+
 
 ***本帖原载于***[](http://makezine.com/2014/02/10/my-first-original-arduino-project-what-i-learned-about-learning/)*****。**T15】***
 

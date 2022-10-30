@@ -4,7 +4,7 @@
 
 今天我们这里有一位专业的厨师来回答你关于烹饪肉类的各种不同方法的迫切问题！向主厨安吉·玛尔 问好——她是纽约比阿特丽斯酒店[的行政总厨，最近在美食网上赢得了](http://thebeatriceinn.com/) [切肉烧烤大师](http://blog.foodnetwork.com/fn-dish/2015/08/chopped-grill-masters-grand-champion-angie-mar/) 。
 
-Watch
+
 
 如果你正在寻找比较烧烤技巧或努力争取完美的牛排，肉是安吉的领域，她无疑知道如何得到它。如果你碰巧近期在尼加拉瓜旅行，安吉将参加 9 月 3 日至 7 日的 Rancho Santa 烹饪周末 。
 

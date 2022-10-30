@@ -4,7 +4,7 @@
 
 本周我们 [庆祝了 Lifehacker 的 10 岁生日](https://lifehacker.com/top-10-lifehacker-posts-of-all-time-1682801558)[得到了理想的睡眠量](http://lifehacker.com/the-ideal-amount-of-sleep-for-each-age-group-according-1683344371)[做了一些认真的学习](http://lifehacker.com/study-less-study-smart-the-best-ways-to-retain-more-1683362205)[为我们的脸挑选了最好的发型](http://lifehacker.com/pick-the-best-mens-hairstyle-for-your-face-with-this-ch-1683541152) 。这里回顾一下。
 
-Watch
+
 
 ## [有史以来十大生活黑客帖子](http://lifehacker.com/top-10-lifehacker-posts-of-all-time-1682801558)
 

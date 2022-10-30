@@ -4,7 +4,7 @@
 
 其他人挣多少钱，他们如何做预算，以及其他财务细节的真实例子可以帮助你正确看待事情，更好地管理你的财务(正如我们在 之前 [看到的](https://lifehacker.com/three-people-three-salaries-how-they-spend-and-save-1509314956) [)。《消费主义评论》( Consumerism Commentary)的《裸着钱》(Naked With Cash)系列吸引人的名字就提供了这样的例子:人们(或许和你一样)每月都在用自己的钱做些什么。](http://lifehacker.com/4-dual-income-families-how-they-spend-and-save-1458698835)
 
-Watch
+
 
 该网站的精选读者每月公开跟踪他们的现金流和资产净值报表，以及他们对金钱问题和目标的想法。注册理财规划师也提供建议和意见。
 

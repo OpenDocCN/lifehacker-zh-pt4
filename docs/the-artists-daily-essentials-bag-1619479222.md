@@ -4,7 +4,7 @@
 
 作为一名艺术家意味着随时准备创作，这正是 Lifehacker 读者 [卡洛斯阿森西奥](http://cargocollective.com/chensio) 准备用他的日常必需品包做的事情。
 
-Watch
+
 
 卡洛斯的背包是一款 [赫歇尔经典背包](http://shop.herschelsupply.com/collections/backpacks/products/classic-backpack-mid-volume-black) 。这是里面的内容:
 

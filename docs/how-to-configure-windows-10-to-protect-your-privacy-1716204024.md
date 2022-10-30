@@ -4,7 +4,7 @@
 
 当你第一次得到一台新的 Windows 电脑(或设置一台旧电脑)时，你可能会专注于下载你最喜欢的应用程序和传输你的文件。这也是一个很好的时间来配置您的机器，以保护您的隐私。
 
-Watch
+
 
 我们都需要 [保护我们的私人数据](http://lifehacker.com/why-your-privacy-matters-even-if-youre-not-doing-anyt-1645884650#_ga=1.168197988.431406394.1415821409) 。无论你携带的是敏感的工作文件、 [敏感的图片，还是仅仅是你的密码](https://lifehacker.com/from-saucy-pics-to-passwords-how-to-share-sensitive-in-5910408) ，总有一些信息是你不想让别人知道的。当你第一次安装一台电脑时，你就已经养成了在你拥有这台电脑的整个过程中都会用到的习惯。与其等到以后才关心你的隐私，不如现在就开始行动。
 

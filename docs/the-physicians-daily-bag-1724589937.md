@@ -4,7 +4,7 @@
 
 作为一名医生是一项艰巨的工作，对于《每日电讯报》的读者李来说，这意味着要保持一个装满必需品的有序的袋子(其中也包括一件非常古老的技术)。
 
-Watch
+
 
 这个包是一个 [Timbuk2 笔记本电脑斜挎包](http://www.amazon.com/dp/B00M47IFTU?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-physicians-daily-bag-1724589937&asc_source=&tag=kinjalifehackerlink-20) 。这是里面的内容:
 

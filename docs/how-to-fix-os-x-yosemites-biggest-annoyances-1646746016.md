@@ -4,7 +4,7 @@
 
 约塞米蒂今天在这里，苹果的新操作系统似乎总是如此，除了它的 [新功能](https://lifehacker.com/all-the-new-stuff-in-os-x-10-10-yosemite-1584870045) 之外，它还带来了一些麻烦。不过不要担心，大多数常见的烦恼只需点击几下鼠标就能解决。
 
-Watch
+
 
 如果你正在跨越小牛，一定要看看我们的 [指南，解决小牛的一些烦恼](https://lifehacker.com/how-to-fix-os-x-mavericks-biggest-annoyances-1450220339) ，它们在这里仍然适用。
 

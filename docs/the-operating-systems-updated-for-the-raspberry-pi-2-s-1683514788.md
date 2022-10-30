@@ -4,7 +4,7 @@
 
 昨天 发布了 [Raspberry Pi 2，它配备了一个新的 SoC，需要稍加调整才能让操作系统与之配合工作。因此，我们决定深入研究，看看哪些操作系统已经增加了支持。](https://lifehacker.com/the-raspberry-pi-2-is-faster-more-powerful-and-availa-1682814956)
 
-Watch
+
 
 到目前为止，一些大型操作系统正在使用 Pi 2。以下是可行的方法:
 

@@ -4,7 +4,7 @@
 
 如今，有很多适用于 Mac 和 Windows 的软件问世，但总有一些游戏或应用程序没有进入 OS X。谢天谢地，你可以通过一个名为 Wineskin 的免费应用程序，轻松地将许多 Windows 程序移植到 OS X。
 
-Watch
+
 
 Wineskin 是一个免费的开源工具，可以将 Windows 程序移植到 OS X，这样你就可以在本地运行它们。它建立在 [酒](http://en.wikipedia.org/wiki/Wine_(software)) 之上，是一个为开发者快速移植软件而打造的引擎。有几个应用程序可以做到这一点，如前面提到的[wine bottler](http://lifehacker.com/winebottler-turns-windows-programs-into-standalone-os-x-5440703)或商业软件如 [CrossOver](https://www.codeweavers.com/products/) ，但我们最好的运气是与 Wineskin 一起工作。
 

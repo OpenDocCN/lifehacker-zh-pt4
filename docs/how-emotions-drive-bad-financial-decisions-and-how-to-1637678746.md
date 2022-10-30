@@ -4,7 +4,7 @@
 
 情绪化的情况会导致你做出糟糕的财务决策。如果你对自己的财务状况感到嫉妒或尴尬，最好在感情用事之前权衡一下你的逻辑选择。这里有八种情绪会导致你做出糟糕的财务决策，以及如何控制它们。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/2014/09/emotions-that-can-sabotage-your-finances/)***。**T15】*
 

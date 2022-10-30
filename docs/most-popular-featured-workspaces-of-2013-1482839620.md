@@ -4,7 +4,7 @@
 
 每周，我们都会看看独特的家庭办公室和其他工作空间。从极简主义到折衷主义，这里是我们今年看到的 15 个最受欢迎的特色工作空间。
 
-Watch
+
 
 ## [背光钉板工作区](http://lifehacker.com/the-backlit-pegboard-workspace-977224958)
 

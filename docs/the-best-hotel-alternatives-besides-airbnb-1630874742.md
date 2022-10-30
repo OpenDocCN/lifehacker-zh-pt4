@@ -4,7 +4,7 @@
 
 Airbnb 已经成为传统酒店最受欢迎的替代品，但还有其他选择。这里有几项服务分享了很多相同的好处。
 
-Watch
+
 
 ### HomeAway、VRBO、TravelMob 和度假租赁
 

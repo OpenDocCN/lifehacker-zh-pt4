@@ -4,7 +4,7 @@
 
 幸运的话，你永远都不需要依赖紧急无线电，但它们是任何急救包中必不可少的部分。然而，并不是所有的应急收音机都是一样的，买一个可靠的并不像从货架上拿一个那么简单。以下是你需要寻找的东西，以及一些应急包的好选择。
 
-Watch
+
 
 我们已经给了你 [在灾难](https://lifehacker.com/the-complete-guide-to-what-to-do-before-during-and-af-5976362) 之前、期间和之后应该做什么的完整指南，甚至向你 [展示了一个伟大的短期灾难工具包](http://lifehacker.com/make-sure-youre-prepared-for-disaster-with-a-72-hour-ki-5780934) 和一些关于 [长期生存工具包](http://lifehacker.com/what-to-put-in-a-doomsday-or-disaster-survival-kit-5892839) 的想法，以防在救援到来之前需要一段时间。任何应急装备中必不可少的一项就是应急无线电。它可以让你从国家海洋和大气管理局(NOAA)获得天气和灾难警报，这样你就可以做好准备并了解你所在地区发生的任何事情，从火灾、龙卷风到黄色警报和化学品泄漏。
 

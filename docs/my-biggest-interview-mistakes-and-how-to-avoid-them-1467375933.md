@@ -4,7 +4,7 @@
 
 我不是最棒的受访者。我 [会前极度紧张](http://www.thedailymuse.com/job-search/5-ways-to-look-confident-in-an-interview-even-when-youre-freaking-out/) :心跳加速，手心冒汗，胡思乱想——整整九码。然后，一旦我走进办公室，真正的乐趣就开始了:我忘记了我想说什么，笨嘴拙舌，让自己被桌子对面的人吓倒。
 
-Watch
+
 
 ***本帖原载于*** [***每日缪斯***](http://www.thedailymuse.com/job-search/my-biggest-interview-mistakes-ever-and-how-to-avoid-them/) ***。**T15】*
 

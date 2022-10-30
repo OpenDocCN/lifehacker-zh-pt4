@@ -4,7 +4,7 @@
 
 现在是下午 3 点，你发现自己很难集中精力工作。你似乎不能停止检查脸书。你欢迎像短信和同事过来聊天这样的干扰，而不是高效。欢迎来到下午的低迷期:在工作日的这段时间里，你的大脑拒绝与你合作，你无法停止拖延。
 
-Watch
+
 
 ***本帖原载于***[***iDoneThis***](http://blog.idonethis.com/post/77279353446/afternoon-slump-procrastination-science)***。**T15】*
 

@@ -4,7 +4,7 @@
 
 让我们发起一个运动，重新命名鱼铲。不仅“鱼锅铲”这个名字很不性感——它的其他绰号“鱼锅铲”和“开槽锅铲”也是如此——而且这个术语也没有反映出这个小厨房工具能够完成的所有不同功能。
 
-Watch
+
 
 除了翻转精致的片状鱼之外，翻鱼器还非常适合翻转、转移和刮除各种食物。寻找一种又长又平又结实，但又非常薄又容易操作的型号，有很宽的槽，可以排出像油一样的液体。如果你还没有，我个人最喜欢的是 [全包不锈钢专业柔性开槽抹刀](http://www.amazon.com/All-Clad-Stainless-Flexible-Slotted-Turner/dp/B00BYAHNLE/ref=sr_1_3?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/kitchen-tool-school-the-flippin-awesome-fish-spatula-1683871427&asc_source=&ie=UTF8&qid=1423094328&s=kitchen&sr=1-3&tag=kinjalifehackerlink-20) 。它有适当的弯曲度，但它构造良好，多年来没有扭曲一点。它还可以用洗碗机清洗，易于保持清洁；这种设计似乎能抵抗食物或油脂的堆积。虽然 24 美元的价格对于一个厨房工具来说似乎太贵了，但考虑到每次使用的长期成本，我认为它绝对物有所值。对于所有左撇子，一些品牌，如 LamsonSharp 和 Wusthof，甚至制造了 [左撇子版本](http://www.jbprince.com/cutlery-spatulas/slotted-turner-left-hand.asp) 。
 

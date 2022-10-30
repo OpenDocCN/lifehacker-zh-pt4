@@ -4,7 +4,7 @@
 
 当你期待 的时候，你可能已经知道 [会期待什么了也许你的女性朋友和亲戚不能停止给你建议。也许你已经不止一次怀孕了。不管怎样，当涉及到怀孕的时候，有些事情我们不会轻易讨论。是时候说漏嘴了。](https://www.amazon.com/dp/0761148574?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/three-things-that-surprised-me-about-pregnancy-1545866742&asc_source=&linkCode=ogi&psc=1&smid=A3RPXKKLQBGXG0&tag=kinjalifehackerlink-20&th=1)
 
-Watch
+
 
 教训很明显:许多人认为怀孕(以及生育和抚养孩子)是一件公共事务。为了应对粗鲁的评论和建议，你可以告诉那些想摸你肚子的陌生人(就像你是个幸运星一样)，你害怕晨吐症要来了。对不请自来的评论，用“有趣”或“是的”， [SheKnows 建议](http://www.sheknows.com/parenting/articles/979577/unwanted-pregnancy-advice) 。每个人对怀孕和婴儿都有自己的看法，所以你需要经常保持沉默。对以后的岁月是很好的练习。
 

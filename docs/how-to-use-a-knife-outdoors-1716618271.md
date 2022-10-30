@@ -4,7 +4,7 @@
 
 刀子是你外出时可以随身携带的最基本、最有用的工具。但是，你知道如何充分利用它吗？让我们复习一下基础知识，给你看看刀子能做的所有事情。
 
-Watch
+
 
 想开始在户外用刀吗？碳钢 的基本 [摩拉伴侣成本不到 15 美元，擅长这里描述的任何工作。在刀上花更多的钱是因为你想，而不是因为你需要。莫拉也很轻，是超轻背包客的好伙伴。](http://www.amazon.com/Morakniv-Companion-Outdoor-Military-4-1-Inch/dp/B004TNWD40/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://gizmodo.com/how-to-use-a-knife-outdoors-1716618271&asc_source=&ie=UTF8&keywords=mora+clipper&qid=1399440756&rawdata=[r|http://indefinitelywild.gizmodo.com/tag/knives[t|mod-title[p|1572811597[a|B004TNWD40[au|5742849424874333163&sr=8-1&tag=kinjagizmodolink-20)
 

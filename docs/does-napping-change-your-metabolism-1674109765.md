@@ -4,7 +4,7 @@
 
 亲爱的生活黑客，我听说高新陈代谢有利于减肥和保持健康，所以我努力保持活跃。然而，我喜欢我的午睡！有时候我只是累了，但是 [他们让我保持高效](https://lifehacker.com/the-science-behind-why-power-naps-help-you-stay-product-5932754) 。尽管睡觉会减缓你的新陈代谢。我正在放弃我所有的好工作吗？
 
-Watch
+
 
 真诚地，活动班长
 

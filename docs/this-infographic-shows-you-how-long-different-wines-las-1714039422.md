@@ -6,6 +6,6 @@
 
 信息图还显示了如何正确储存每种酒的。例如，我很惊讶起泡酒可以持续三天——对第二天早上的含羞草酒来说很棒。你还可以在下面的链接中找到更多关于 Wine Folly 如何获得这些数字以及如何正确储存葡萄酒类型的细节。
 
-Watch
+
 
 [酒开多久？](http://winefolly.com/tutorial/how-long-opened-wine-lasts/) |酒愚

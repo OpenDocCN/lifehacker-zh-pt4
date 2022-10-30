@@ -4,7 +4,7 @@
 
 没有什么比一个小玩意坏了，发现要花几百美元才能修好更糟糕的了。没钱花在维修上？即使你的保修不适用，这里也有一些修理它的技巧。
 
-Watch
+
 
 *这篇经典的帖子被重新发布，是我们在 Lifehacker 的* [*邪恶周*](https://lifehacker.com/welcome-to-lifehackers-fifth-annual-evil-week-1647621043) *系列的一部分，在这里我们看到了做事的阴暗面。知道邪恶意味着知道如何打败它，所以你可以用你的邪恶力量做好事。想要更多吗？查看我们的* [*恶周标签页*](http://lifehacker.com/tag/evilweek) *。*
 

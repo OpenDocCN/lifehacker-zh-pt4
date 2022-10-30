@@ -4,7 +4,7 @@
 
 Firefox 可能不像以前那么受欢迎了，但我们在 Lifehacker 仍然喜欢它。以下是我们在 2014 年推出的最受欢迎的火狐扩展和指南。
 
-Watch
+
 
 今年，我们 [收集了另一批令人敬畏的扩展](https://lifehacker.com/lifehacker-pack-for-firefox-our-list-of-the-essential-896766794) ， [收集了由附加组件](http://lifehacker.com/top-10-apps-and-services-made-better-by-add-ons-1558382325) ， [改进的最佳网络服务，利用开发者工具](http://lifehacker.com/get-free-airport-wi-fi-using-chrome-or-firefoxs-develo-1607111327) ， [用新的 HTTP 缓存](http://lifehacker.com/speed-up-firefox-by-enabling-its-new-http-cache-1570488335) 加速了火狐，并且 [检查了火狐新的、有争议的接口](http://lifehacker.com/firefox-gets-a-brand-new-even-more-customizable-design-1569221733) 。
 

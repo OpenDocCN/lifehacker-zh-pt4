@@ -4,7 +4,7 @@
 
 你有没有注意到列一个待办事项清单是多么容易，但是实际上完成它有多难？当谈到真正完成任务清单时，优先顺序有很大的不同 。诀窍是尽你所能无情。
 
-Watch
+
 
 ***本帖原载于*** [***Zapier 博客***](https://zapier.com/blog/prioritize-task-list-methods/) ***。**T15】*
 

@@ -4,7 +4,7 @@
 
 在过去的几年里，我很幸运地走遍了世界的许多地方。旅行的机会对我产生了和对许多人一样的影响:我看到的越多，我就越想看到。我*越想让*看到，我就越意识到我的收入不能完全满足我所有的旅行需求。
 
-Watch
+
 
 ***本帖原载于***[***ReadyForZero***](http://blog.readyforzero.com/how-to-afford-travel-when-you-want-to-travel-everywhere/)***。*T15】**
 

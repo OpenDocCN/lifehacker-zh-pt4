@@ -4,7 +4,7 @@
 
 即使你只是粗略地关注一下网上的科技文化，维罗妮卡·贝尔蒙特也可能是一张熟悉的面孔。近十年来，维罗妮卡一直与 CNET 一起主持和制作播客和视频，包括 Revision3 的 [Tekzilla](http://revision3.com/tekzilla/) ，以及现在 Engadget 的 [亲爱的维罗妮卡](http://www.engadget.com/dear-veronica/)——还有十几个其他项目。
 
-Watch
+
 
 对于一个如此多产的人来说，我不知道她是如何找到时间阅读如此多的书籍，了解最新的科技新闻，并在周末爬上文字山的，所以我们采访了 Veronica，了解她是如何工作的。
 

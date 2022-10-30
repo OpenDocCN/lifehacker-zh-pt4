@@ -4,7 +4,7 @@
 
 准备接受一份新工作还是协商加薪？你可能想阅读谈判的策略，并熟悉一点博弈论。职场专家在 [*栈交流*](http://workplace.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=workplace-114) *提供一些建议。*
 
-Watch
+
 
 当谈到薪资谈判时，“第一个给出数字的人会输”已经成了一种普遍的看法那就是 [**史蒂夫哈诺夫**](http://stevehanov.ca/blog/index.php?id=67) **和** [**别人**](http://www.knocks.com/News/articles/SalaryStrat.html) **说的。这是真的吗？**
 

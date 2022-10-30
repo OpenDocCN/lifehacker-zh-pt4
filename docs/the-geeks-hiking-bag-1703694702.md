@@ -4,7 +4,7 @@
 
 作为一名科技发烧友，意味着当你去徒步旅行时要多带几件。以下是《生活黑客》读者兰登·米歇尔和丈夫外出旅行时随身携带的物品。
 
-Watch
+
 
 米歇尔和她的丈夫回家后喜欢拍很多照片，并制作他们徒步旅行的 GPS 地图。他们的包里有一个 [高塞拉利昂外交官腰包](http://www.amazon.com/High-Sierra-Diplomat-Lumbar-Tungsten/dp/B000OZE4J4?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-geeks-hiking-bag-1703694702&asc_source=&tag=kinjalifehackerlink-20) 里面有什么:
 

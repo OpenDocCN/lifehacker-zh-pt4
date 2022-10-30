@@ -4,7 +4,7 @@
 
 无论你是靠薪水过活，还是被意外支出搞得措手不及，退休时在银行里一无所有并不理想。
 
-Watch
+
 
 在我们开始讨论你应该做些什么之前，这可能会让你感觉好一点:很多其他人也处于同样的困境。美联储关于美国家庭经济福祉的最新 [报告](http://www.federalreserve.gov/econresdata/2013-report-economic-well-being-us-households-201407.pdf) 中，几乎一半的受访者表示他们没有退休财务计划，而 [美国新闻报道](http://money.usnews.com/money/blogs/the-smarter-mutual-fund-investor/2014/08/19/the-tiny-house-movement-and-binge-saving-the-new-retirement) 称，约 36%的美国工人为退休后的几年储蓄不足 1000 美元。
 

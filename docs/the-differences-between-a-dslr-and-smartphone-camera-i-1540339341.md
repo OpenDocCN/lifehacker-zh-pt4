@@ -6,7 +6,7 @@
 
 你可能不需要我们告诉你，一个合适的 DSLR 相机比你智能手机上的相机更好。但是如果你想知道它到底有多好，Bammo 的人有一个(有点 NSFW 的)视频，可以解释你需要知道的一切。
 
-Watch
+
 
 这个视频有一年多了，用 iPhone 5 做比较，但即使在今天，基本要点仍然是正确的。DSLR 可以在弱光下拍摄更好的照片，可以拍摄更好的动作镜头，并可以产生更好的原始图像。如果你正确使用 iPhone(Lumia 相机甚至更好)，iPhone 并不差，但 DSLR 仍然能拍出明显更好的照片。如果你以前没有试用过 [好的 DSLR](http://lifehacker.com/five-best-dslrs-5982944) 或 [无反光镜相机](http://lifehacker.com/five-best-mirrorless-interchangeable-lens-cameras-5992048) ，你应该知道它们之间的差异是巨大的。
 

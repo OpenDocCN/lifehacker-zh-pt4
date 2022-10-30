@@ -4,7 +4,7 @@
 
 你的选择是吹或吸或咽。除非你更喜欢让鼻涕流出来，留在你的人中，让你的上唇潮湿、病态地发亮。哪个，不，你多大了，7 岁吗？该是你像一个见多识广的成年人那样学会去除粘液的时候了。
 
-Watch
+
 
 #### <small>图片来源:</small> [<small>安娜·古特穆斯</small>](https://flic.kr/p/7PkEXg)<small>via Flickr | CC BY 2.0</small>
 

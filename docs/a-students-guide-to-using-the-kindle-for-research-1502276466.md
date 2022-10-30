@@ -4,7 +4,7 @@
 
 Kindle 非常适合阅读临时书籍，但你可能不知道它对学生来说也是一个非常棒的工具。如果使用得当，它本质上可以作为一个便携式工具，将你所有的书籍、笔记和研究放在一个地方。以下是如何让 Kindle 成为你在学校的新朋友。
 
-Watch
+
 
 首先，你需要一个 [Kindle](http://www.amazon.com/gp/product/B007HCCNJU/ref=topnav_storetab_kstore?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/a-students-guide-to-using-the-kindle-for-research-1502276466&asc_source=&tag=kinjalifehackerlink-20) 或者一个适用于 Mac、Windows、iOS、Android 或 Windows Phone 的 [Kindle 应用](http://www.amazon.com/gp/feature.html?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/a-students-guide-to-using-the-kindle-for-research-1502276466&asc_source=&docId=1000493771&tag=kinjalifehackerlink-20) 。由于 Kindle 无疑是最受欢迎的电子阅读器，我们决定在这里集中讨论它的功能，但其中许多技巧也适用于其他电子阅读器或阅读应用程序。
 

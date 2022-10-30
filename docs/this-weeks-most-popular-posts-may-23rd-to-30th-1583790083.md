@@ -4,7 +4,7 @@
 
 本周我们 [了解了人们在我们的 LinkedIn 个人资料上真正看到的东西](https://lifehacker.com/how-recruiters-really-look-at-your-linkedin-profile-and-1580589303)[做了六种酱料的无尽大餐](http://lifehacker.com/six-more-sauces-everyone-should-learn-how-to-make-1580465771)[欢呼第三方应用的荣耀](http://lifehacker.com/third-party-apps-that-are-better-than-the-official-coun-1582242852)[赢得了一些争论](http://lifehacker.com/win-an-argument-by-asking-the-other-person-to-outline-a-1582077330) 。这里回顾一下。
 
-Watch
+
 
 ## [招聘人员到底怎么看你的 LinkedIn 简介和网上简历](http://lifehacker.com/how-recruiters-really-look-at-your-linkedin-profile-and-1580589303)
 

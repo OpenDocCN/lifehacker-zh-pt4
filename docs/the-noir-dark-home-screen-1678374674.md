@@ -4,7 +4,7 @@
 
 [Widgets](https://lifehacker.com/how-widgets-can-actually-make-your-phone-more-productiv-1333180508) 对于不打开 app 快速获取信息很有用。这种设计完全跳过图标，在黑暗的老式主屏幕上给你所需的信息。
 
-Watch
+
 
 这个设计是主题中的一个特色。要在手机上使用它，请在手机上打开主题，长按主屏幕，选择主题，然后搜索“黑色”
 

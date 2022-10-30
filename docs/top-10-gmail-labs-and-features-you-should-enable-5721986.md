@@ -4,7 +4,7 @@
 
 如果 Gmail 的 [不够强大的话](https://lifehacker.com/master-the-new-gmail-with-these-tips-shortcuts-and-ad-5861810) ，你可以在 [Gmail Labs](http://lifehacker.com/tag/gmaillabs/) 中找到各种好东西和额外功能。这个列表非常庞大，所以我们缩小了 10 个最喜欢的实验室，以帮助提高您的电子邮件工作效率。
 
-Watch
+
 
 这篇文章最初发表于 2011 年，但 Gmail 已经发展了很多——它有了一些新的实验室，而其他实验室已经升级到现实生活的功能。因此，我们更新了这篇文章，以包括我们当前最喜欢的 10 个实验室和以前的实验室，以及在哪里可以找到它们。
 

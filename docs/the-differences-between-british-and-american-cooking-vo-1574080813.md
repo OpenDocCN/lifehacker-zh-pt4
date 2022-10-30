@@ -4,7 +4,7 @@
 
 如果你在其他说英语的国家旅行，你可能会惊讶地发现普通的食物和配料有完全不同的名字。在英国，茄子是茄子，芝麻菜是火箭！在 [*栈交换*](http://coooking.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=cooking-117) *的旅行厨师们帮助我们跨过池塘。*
 
-Watch
+
 
 这里有一个方便的参考指南，可以帮助你记录不同英语方言之间的食物术语，或者在一些方言中存在而在另一些方言中不存在的食物术语。无论你是英国人、澳大利亚人、加拿大人还是美国人，当谈到烹饪时，你可能需要做一些研究，并为你想要的东西找到合适的词。
 

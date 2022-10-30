@@ -4,7 +4,7 @@
 
 Windows 10 解决了 Windows 8 遗留下来的许多问题，但它也有一些自己的问题——尽管大多数问题可能都不大。以下是如何调整操作系统的一些新功能和修复它的小怪癖。
 
-Watch
+
 
 如果你不确定 Windows 10 带来了什么，请务必查看我们对其 [最佳新功能](http://lifehacker.com/the-best-new-features-of-windows-10-1680904614) 的综述，并阅读 [对你来说是否是一个好的升级](http://lifehacker.com/should-i-upgrade-to-windows-10-1720838625#_ga=1.72972688.2077799721.1438185154) 。很有可能你也能免费得到。
 

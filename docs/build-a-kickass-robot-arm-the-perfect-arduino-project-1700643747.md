@@ -4,7 +4,7 @@
 
 Arduino 是一种廉价、有趣的方式来建造自己的电子产品 。开始也可能令人望而生畏。在这里，我们将向您展示如何用一个杀手级项目获得一个从头到尾的 Arduino 入门:构建 [一个甜美的机械臂](http://store.hackaday.com/products/mearm-pocket-sized-robot-arm) 。
 
-Watch
+
 
 在本指南中，我们将使用 [meArm 机械臂](http://www.phenoptix.com/products/mearm-pocket-sized-robot-arm) 项目作为各种技能的指南，向您介绍 Arduino。meArm 是一个开源套件，包含构建一个小型 Arduino 驱动的机械臂所需的所有部件。你可以从 Hackaday 或 [等](http://www.thingiverse.com/thing:360108) [商店订购一套现成的，或者从 Thingiverse](http://store.hackaday.com/products/mearm-pocket-sized-robot-arm) 下载设计图，自己裁剪。你可以使用激光切割机、 [3D 打印机](http://lifehacker.com/how-to-get-started-with-3d-printing-without-spending-a-1340345210) ，甚至可以用木头雕刻出零件。这些工具包相对便宜(我的大约 50 美元)，所以很容易买到。
 

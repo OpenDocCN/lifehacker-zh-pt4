@@ -4,7 +4,7 @@
 
 有一个“养家糊口的人”和一个“家庭主妇”的家庭当然仍然存在，但它们越来越少了。根据美国劳工部 T3 的数据，1996 年至 2006 年间，美国双收入家庭的数量增加了 31%。事实上，在有孩子的家庭中，59%的父母都工作，2012 年来自 [劳动统计局](http://www.bls.gov/news.release/famee.nr0.htm) 的数据显示。换句话说，两个成年人养家糊口是新的标准。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/2013/11/how-we-spend-and-save-4-dual-income-families-budgets/)***。*T15】**
 

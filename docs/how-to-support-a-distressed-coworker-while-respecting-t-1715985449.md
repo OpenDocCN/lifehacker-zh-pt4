@@ -4,7 +4,7 @@
 
 当你每周花 40 多个小时和同一批人在一起时，你会情不自禁地产生感情。在办公室分享经验，与强硬的老板打交道，经常去喜欢的午餐地点可以把同事变成私人朋友，比如 T2 和 T3。但是当一个同事正经历个人危机时，你如何在尊重他们隐私的同时表示支持？
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](https://www.themuse.com/advice/how-to-support-a-coworker-through-a-personal-crisis-without-crossing-the-line) ***。**T15】*
 

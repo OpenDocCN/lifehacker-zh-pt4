@@ -4,7 +4,7 @@
 
 这可能是我们重复最多也最容易被忽视的建议: [永远备份你的文件](https://lifehacker.com/theres-no-excuse-for-not-backing-up-your-computer-do-1547987206) 。去做吧！所有的驱动器和磁盘最终都会出现故障，备份服务 [CrashPlan](http://lifehacker.com/five-best-online-backup-services-1006345049) 就是考虑到这一点而专门设计的。
 
-Watch
+
 
 CrashPlan 由 [Code42](http://www.code42.com/) 开发，该公司成立于 2001 年，当时是一家 IT 咨询公司，但后来已经转向消费者和企业软件。马修·多恩奎斯特(Matthew Dornquast)担任首席执行官，他是该公司的联合创始人，并继续运营该公司。我们采访了 Matthew，了解他的工作习惯以及他的团队在开发 CrashPlan 时所面临的挑战。
 

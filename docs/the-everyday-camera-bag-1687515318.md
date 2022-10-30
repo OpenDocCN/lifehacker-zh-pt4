@@ -4,7 +4,7 @@
 
 你有十亿种相机包和装备可供选择，但读者 ddakki 分享了他简单而有效的日常携带，包括他需要的一切。
 
-Watch
+
 
 包里是一个 [智库回顾 7](http://www.amazon.com/Think-Tank-Retrospective-Shoulder-Bag-Pinestone/dp/B0080F66YQ/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-everyday-camera-bag-1687515318&asc_source=&ie=UTF8&keywords=thinktank retrospective 7&qid=1424719228&sr=8-1&tag=kinjalifehackerlink-20) 。这是里面的内容:
 

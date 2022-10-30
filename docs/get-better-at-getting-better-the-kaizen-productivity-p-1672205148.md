@@ -4,7 +4,7 @@
 
 大多数生产力方法给你工具，以有组织的方式处理特定的项目或待办事项。Kaizen，大致翻译为“好的改变”，是一种日本的生产力哲学，帮助你组织你所做的一切。简而言之，它意味着“持续不断的改进”，是一种你可以在任何地方、任何工作中应用的心态。
 
-Watch
+
 
 改善与其说是一个你用来组织待办事项的生产力“系统”，不如说是一种哲学。不同于 [完成事情(GTD)法](https://lifehacker.com/productivity-101-a-primer-to-the-getting-things-done-1551880955) 和 [番茄工作法](http://lifehacker.com/productivity-101-a-primer-to-the-pomodoro-technique-1598992730) ，改善是一种思考和组织一切的方式——从你的工作方式到你的团队合作方式。
 

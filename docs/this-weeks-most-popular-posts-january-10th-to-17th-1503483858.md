@@ -4,7 +4,7 @@
 
 本周我们学习了 [为什么当我们被某人](https://lifehacker.com/why-you-make-bad-decisions-when-youre-attracted-to-som-1501035149)[吸引时，我们会变成白痴五种酱料让任何一顿饭都更可口](http://lifehacker.com/five-sauces-everyone-should-know-how-to-make-for-endles-1498247518)[一些省钱的小窍门](http://lifehacker.com/eight-small-financial-changes-that-yield-huge-results-1502939683) ，以及 [编程的人生教训](http://lifehacker.com/six-life-lessons-ive-learned-from-programming-1502077380) 。这里回顾一下。
 
-Watch
+
 
 ## [为什么你被某人吸引时会做出错误的决定](http://lifehacker.com/why-you-make-bad-decisions-when-youre-attracted-to-som-1501035149)
 

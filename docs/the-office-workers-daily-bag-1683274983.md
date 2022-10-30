@@ -4,7 +4,7 @@
 
 有时候，你只需要一个简单的包，里面放几样东西。读者 Hayo Bethlehem 就是这种情况，他每天都和他们分享去办公室的包里的东西。
 
-Watch
+
 
 包里是一个 [Picard Eurojet 公文包](http://www.picard-lederwaren.de/en/men/briefcase-eurojet-1.html) 。这是里面的内容:
 

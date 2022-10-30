@@ -4,7 +4,7 @@
 
 近 [每个人都讨厌他们的互联网提供商](http://www.cnet.com/news/cable-providers-isps-rank-dead-last-for-customer-service/) 。如果您的 ISP 有问题，并且呼叫客户服务失败，您现在有另一个选择:向 FCC 投诉。现在，这比以往任何时候都更能有效地解决你的问题。下面是怎么做的。
 
-Watch
+
 
 正如我们上周简要谈到的，[FCC 的新规则](http://lifehacker.com/why-the-fccs-new-net-neutrality-rules-are-good-for-the-1683769527) 允许它在处理客户投诉时更加积极主动。所以，如果你认为你被多收了钱，或者你没有得到你所支付的服务，当向你的 ISP 的简单投诉失败时，提出投诉可能会 [帮助你降低账单或者修复你的服务](http://lifehacker.com/file-a-complaint-with-the-fcc-to-potentially-lower-your-1713579094) 。即使它没有为您解决问题，FCC 也可以保留这些投诉，并使用它们来确定是否需要进行调查。不管怎样，投诉是个好主意。以下是开始的方法。
 

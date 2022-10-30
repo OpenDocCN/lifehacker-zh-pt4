@@ -4,7 +4,7 @@
 
 六年前，马克斯·布朗利还是个孩子，对着摄像头谈论技术，并在 Youtube 上分享自己的想法。现在，他制作精良的 [MKBHD](https://www.youtube.com/mkbhd) 视频拥有 260 万订户，是网上最受欢迎的小工具评论来源之一。
 
-Watch
+
 
 如果你不熟悉他的频道，你应该熟悉；他的视频既深刻又流畅。看到像马克斯这样的人培养自己的技能，从一种爱好中培养观众，并到达一个他的工作可以与任何媒体网络相媲美的地方，并经常接触到更多的观众，这很有趣，也很鼓舞人心。(相比之下感觉自己像个无精打采的老头。除了 Youtube，你几乎可以在互联网上的任何地方关注他:在 [Twitter](http://twitter.com/MKBHD) ， [Google+](https://plus.google.com/+MarquesBrownlee) ， [脸书](https://www.facebook.com/MKBHD/) 和 [Instagram](https://instagram.com/MKBHD/) 。我们采访了马克斯，以了解他是如何做他所做的事情的，以及下一步可能会做什么。
 

@@ -4,7 +4,7 @@
 
 简历上有很大的空白会让人感到尴尬——你知道读简历的人会注意到这一点，而且可能会认为这是一种负面影响。你如何超越他们的判断来证明你的观点？当你的简历有很大的空白时，你可以做些什么。
 
-Watch
+
 
 ***本帖原载于*** [***快公司***](http://www.fastcompany.com/3040728/hit-the-ground-running/7-resume-strategies-for-the-long-term-unemployed) ***。**T15】*
 

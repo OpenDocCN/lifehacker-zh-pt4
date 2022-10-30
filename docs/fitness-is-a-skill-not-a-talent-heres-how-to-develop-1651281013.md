@@ -4,7 +4,7 @@
 
 作为一名健身教练和 Fitocracy 的联合创始人，我接触过无数人的成功故事和健身挑战。当他们没有达到健身目标时，人们经常告诉我他们没有天生的天赋。相反，他们应该将健身视为一种需要改进和提高的技能。
 
-Watch
+
 
 ***本帖原载于***[***Fitocracy***](http://www.fitocracy.com/knowledge/fitness-is-a-skill/)***和***[***【Bodybuilding.com】***](http://www.bodybuilding.com/fun/5-skills-for-a-successful-transformation.html)***。***
 

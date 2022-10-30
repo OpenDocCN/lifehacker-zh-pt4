@@ -5,7 +5,7 @@
 亲爱的生活黑客，
 我无法决定是坐在普通的办公椅上， [搬到站立的办公桌上，](https://lifehacker.com/why-and-how-i-switched-to-a-standing-desk-5735528) ，还是使用那些 [花哨的跑步机](http://lifehacker.com/a-beginners-guide-to-setting-up-a-treadmill-desk-5729625) 或 [自行车办公桌](http://lifehacker.com/the-deskcycle-is-a-space-saving-exercise-bike-that-fits-1481312726) 。对我的生产力和健康来说，什么才是最好的选择？
 
-Watch
+
 
 签名，
 办公桌操作员

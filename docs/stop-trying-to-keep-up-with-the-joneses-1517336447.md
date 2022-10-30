@@ -4,7 +4,7 @@
 
 如果你的朋友吃得过多，你更有可能吃得过多。如果你的朋友活跃且喜欢运动，你也更有可能活跃。如果你的朋友喜欢花钱，你也更有可能花钱。
 
-Watch
+
 
 ***本帖原载于***[***ReadyForZero***](http://blog.readyforzero.com/practical-tips-to-stop-keeping-up-with-the-jonses/)***。**T15】*
 

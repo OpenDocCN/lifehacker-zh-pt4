@@ -4,7 +4,7 @@
 
 说到切断有线电视，大多数人主要尝试两种方式:带天线的免费无线电视，以及网飞和 Hulu 等流媒体服务。两者本身都很伟大，但合在一起，他们更强大。Mohu Channels 是一个 Android 驱动的盒子，将两者无缝融合到一个电视设备中。
 
-Watch
+
 
 一旦你有了天线 ，免费的空中(OTA)高清电视 [就很容易获得，当与网飞、Hulu 和亚马逊等流媒体服务结合时，你永远不会缺乏观看的东西。但是将两者结合在一起通常不是一台设备就能做到的。它包括将天线连接到电视，扫描频道，观看广播电视，然后切换到机顶盒或游戏控制台观看流媒体视频。Mohu Channels，](https://lifehacker.com/how-to-choose-the-best-over-the-air-antenna-for-free-hd-1569752514)[a Kickstarter success](https://www.kickstarter.com/projects/mohu/mohu-channels-personal-channel-guide-makes-tv-smar/video_share)由制作 [我们最喜欢的](http://lifehacker.com/the-mohu-leaf-is-a-paper-thin-hd-antenna-that-s-perfect-5891870) OTA 天线之一的同一批人制作，希望弥合这一差距。他们给我们发了一个来试用，它确实兑现了承诺，甚至非极客也可以躺在沙发上享受。
 

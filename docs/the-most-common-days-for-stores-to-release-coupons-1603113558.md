@@ -4,7 +4,7 @@
 
 在线优惠券可能看起来是随机发布的。但是，如果你仔细观察，就会发现一些模式。知道商店什么时候更有可能发布新的优惠可以让你制定省钱的策略——也许在这个过程中可以节省一些寻找折扣的时间。
 
-Watch
+
 
 ***本帖原载于***[***DealNews***](http://dealnews.com/features/best-days-for-coupon-codes-online/)***。**T15】*
 

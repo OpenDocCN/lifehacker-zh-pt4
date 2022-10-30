@@ -4,7 +4,7 @@
 
 随着 [最近发布了 iOS 7.1.2](https://lifehacker.com/ios-7-1-1-untethered-jailbreak-released-1594866825) 的越狱，越狱又回到了风口浪尖。在过去的几个月里，已经产生了一些伟大的应用程序，这里是我们最喜欢的一些。
 
-Watch
+
 
 如果你正在寻找加载一部最近越狱的手机，一定要看看我们的第[第二](http://lifehacker.com/the-best-jailbreak-apps-and-tweaks-for-ios-7-part-ii-1506144309) 和 [第三](http://lifehacker.com/your-quarterly-jailbreak-roundup-april-2014-1557851359) 部分我们最喜欢的 iOS 7 调整以及下面的内容。有很多很棒的越狱应用，所以你应该可以很容易找到你想要的。
 

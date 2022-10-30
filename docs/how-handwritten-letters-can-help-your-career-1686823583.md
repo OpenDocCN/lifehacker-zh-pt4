@@ -4,7 +4,7 @@
 
 花点时间给某人写封信——不要求任何东西或请求任何帮助——实际上是建立职业关系的好方法。这是一种令人惊讶又迷人的让自己引人注目的方式，哪怕只是打个招呼。
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](https://www.themuse.com/advice/the-10minute-weekly-exercise-thats-changing-my-career) ***。**T15】*
 

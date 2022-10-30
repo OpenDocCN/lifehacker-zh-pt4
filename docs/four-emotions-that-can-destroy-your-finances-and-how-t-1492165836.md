@@ -4,7 +4,7 @@
 
 如果我们致力于做一点研究，我们随时都可以获得广泛的金融信息。我们可以学习如何预算、投资、储蓄——为了财务稳定，我们需要知道的一切。那么，有了所有可用的信息，为什么我们中的许多人都过着过度消费和计划不足的经济紧张的生活呢？
 
-Watch
+
 
 ***本帖原载于***[***ReadyForZero***](http://blog.readyforzero.com/hidden-emotional-factors-that-may-be-destroying-your-finances/)***。*T15】**
 

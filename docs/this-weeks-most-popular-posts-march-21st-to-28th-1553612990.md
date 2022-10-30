@@ -4,7 +4,7 @@
 
 本周我们学习了谷歌在员工身上寻找什么[每晚更好睡眠的规则](http://lifehacker.com/remember-the-90-minute-rule-to-ensure-a-refreshing-nigh-1551241082)[什么研究告诉我们关于成功关系的](http://lifehacker.com/what-research-tells-us-about-the-most-successful-relati-1552386916)[以及如何充分利用你的多重显示器](http://lifehacker.com/make-the-most-of-your-multiple-monitors-in-windows-5526025) 。这里回顾一下。
 
-Watch
+
 
 ## [潜在员工最有价值的特质，据谷歌](http://lifehacker.com/the-most-valuable-traits-in-a-potential-employee-accor-1551055279)报道
 

@@ -4,7 +4,7 @@
 
 本周我们 [揭穿了一些流量神话](https://lifehacker.com/eight-popular-ticket-and-traffic-law-myths-debunked-1708158201)[对 Windows 10](http://lifehacker.com/windows-10-will-be-released-july-29th-reserve-your-cop-1708136305)[学会了最好(也是最差)的睡姿](http://lifehacker.com/the-graphic-shows-the-best-and-worst-sleeping-positions-1709054860)[放弃了昂贵的酒](http://lifehacker.com/this-video-explains-why-youre-probably-better-off-buyin-1707845166) 。这里回顾一下。
 
-Watch
+
 
 ## [关于拒绝死亡的水合作用的四个神话](http://vitals.lifehacker.com/4-myths-about-hydration-that-refuse-to-die-1707637866)
 

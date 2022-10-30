@@ -4,7 +4,7 @@
 
 54%的美国人计划制定 2015 年的财务计划。根据银行储户的一项新的民意调查 显示，存钱、偿还债务和增加支出继续高居榜首。鉴于只有 8%的人真正实现了他们的决心，也许是时候改变一下了。
 
-Watch
+
 
 ***本帖最初出现在***[***GOBankingRates***](http://www.gobankingrates.com/personal-finance/7-ways-give-finances-facelift-january/)***。**T15】*
 

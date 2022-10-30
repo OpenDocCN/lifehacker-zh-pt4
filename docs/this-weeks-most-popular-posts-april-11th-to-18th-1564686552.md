@@ -4,7 +4,7 @@
 
 本周我们解释了 [为什么你聪明的密码把戏不再起作用](http://lifehacker.com/your-clever-password-tricks-arent-protecting-you-from-t-5937303)[发现谁期待小费](http://lifehacker.com/this-tipping-infographic-shows-who-expects-tips-and-ho-1562841207)[克服了最大的关系挑战](http://lifehacker.com/top-10-relationship-challenges-you-can-overcome-1562347466)[给我们的日历](http://lifehacker.com/the-coolest-things-you-can-automatically-add-to-google-1562119291) 添加了很酷的东西。这里回顾一下。
 
-Watch
+
 
 ## [你聪明的密码伎俩无法保护你免受当今黑客的攻击](http://lifehacker.com/your-clever-password-tricks-arent-protecting-you-from-t-5937303)
 

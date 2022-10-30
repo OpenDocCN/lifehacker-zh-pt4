@@ -4,7 +4,7 @@
 
 如果你是一个自称“瘦”的人，试图增加体重，当你在网上搜索时，你可能会觉得自己是二等公民。大多数健身信息都是针对减脂的。先说健康增重的基础。
 
-Watch
+
 
 一天，我的朋友泰南找到我，询问我关于健身的问题。我们已经讨论过健康的成功 [很大程度上取决于习惯](https://lifehacker.com/create-rituals-to-be-more-consistent-at-fitness-1681942810) ，这就是为什么当习惯 方面的专家和多产作者 Tynan、 [来向我寻求建议时，我感到惊讶。](http://www.amazon.com/Superhuman-Habit-Becoming-Possible-Yourself-ebook/dp/B00NGC8I9E/ref=asap_bc?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/a-skinny-persons-guide-to-gaining-weight-1683341104&asc_source=&ie=UTF8&tag=kinjalifehackerlink-20)
 

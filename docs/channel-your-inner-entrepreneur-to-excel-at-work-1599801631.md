@@ -4,7 +4,7 @@
 
 在当今的职场中，每个人都对硅谷的企业家成功故事如此着迷，以至于他们忘记了在公司环境中创业的能力。事实上，你用企业家的心态来超越你的工作。
 
-Watch
+
 
 ***以下摘自劳伦·伯杰的书，*** [***欢迎来到现实世界***](http://www.amazon.com/Welcome-Real-World-Finding-Perfecting-ebook/dp/B00FJ3A9UE/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/channel-your-inner-entrepreneur-to-excel-at-work-1599801631&asc_source=&tag=kinjalifehackerlink-20) ***。*T15】**
 

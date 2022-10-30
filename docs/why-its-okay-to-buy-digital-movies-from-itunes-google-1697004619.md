@@ -4,7 +4,7 @@
 
 今天,《星球大战》再次重新发行。这次， [要来 iTunes，亚马逊和 Google Play](http://www.droid-life.com/2015/04/06/stars-wars-arrives-digitally-april-10-on-google-play-amazon-and-itunes/)T3。不管你是否已经购买了这个特定的收藏十几次，数字图书馆不会消失。但是值得向他们购买吗？ 
 
-Watch
+
 
 如今，购买电影的方式并不缺乏。然而，传统智慧通常认为，从在线图书馆购买电影以获得流媒体权利并不是最好的主意。在我们讨论为什么获得在线版本可能没问题之前，先回顾一下常见的异议[:](http://lifehacker.com/utilize-the-steel-man-tactic-to-argue-more-effectivel-1632402742)
 

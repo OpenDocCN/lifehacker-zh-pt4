@@ -5,7 +5,7 @@
 亲爱的 Lifehacker，
 听说微软要发布一款搭载 Windows 10 的新浏览器。有什么新鲜事？我应该用它而不是 Chrome 或 Firefox 吗？或者只是一个新的网络浏览器？
 
-Watch
+
 
 真诚的，
 微软明天的边缘

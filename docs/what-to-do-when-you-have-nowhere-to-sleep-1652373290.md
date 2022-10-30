@@ -4,7 +4,7 @@
 
 有时你的旅行计划 [不成功](https://lifehacker.com/how-to-prepare-for-everything-that-can-possibly-go-wron-1652103000) ，你被困在一个无处可住的城市。也许酒店被超额预订，或者你的朋友意外出城，你需要在最后一刻找到一个地方睡觉。当你需要休息的时候，这里有几个方法可以尝试。
 
-Watch
+
 
 ***本帖最初出现在*** [***内森·阿欣的博客***](http://www.nonstopawesomeness.me/2012/03/what-to-do-when-you-have-nowhere-to-sleep/) ***。**T15】*
 

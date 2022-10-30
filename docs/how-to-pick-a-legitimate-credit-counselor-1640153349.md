@@ -4,7 +4,7 @@
 
 你对自己的债务状况感到不知所措吗？有很多组织帮助那些不知道如何处理他们的信用，对从哪里开始偿还债务感到困惑，或者不知道他们需要采取什么步骤来获得财务安全的人。
 
-Watch
+
 
 ***本帖原载于***[***ReadyForZero***](http://blog.readyforzero.com/how-to-choose-a-legitimate-credit-counselor/)。
 

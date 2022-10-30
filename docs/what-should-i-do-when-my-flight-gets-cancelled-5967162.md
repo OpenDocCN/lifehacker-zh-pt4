@@ -5,7 +5,7 @@
 亲爱的 Lifehacker，
 假期我会去很多地方旅行，但过去我有过一些糟糕的经历，航班被延误或取消。我已经遵循了 [你的无压力旅行指南](https://lifehacker.com/the-start-to-finish-guide-to-a-perfect-stress-free-vac-5923155) ，但是当意外发生，我的航班被取消时，我该怎么办？
 
-Watch
+
 
 诚惶诚恐的旅行者
 

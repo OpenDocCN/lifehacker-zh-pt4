@@ -4,7 +4,7 @@
 
 在我担任[缓冲](http://bufferapp.com/) 的这半年里，我一直在 [写很多](http://blog.bufferapp.com/) 。我也一直试着定期在我自己的博客 和我的 [创业](http://exist.io/blog/) 上写东西。写了很多。在这段时间里，我一直在尝试对我的工作流程、写作过程和我创作的内容类型做一些小的改变。
 
-Watch
+
 
 ***本帖原载于*** [***缓冲博客***](http://blog.bufferapp.com/6-ways-ive-improved-my-writing-in-the-past-6-months) ***。**T15】*
 

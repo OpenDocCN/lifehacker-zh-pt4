@@ -4,7 +4,7 @@
 
 终于， [期待已久的](https://gizmodo.com/nexus-5-leaks-again-for-pre-registration-with-a-full-1453800644) Nexus 5 以 [5 英寸纯净、未经过滤的 Android 的形式到来了，这正是谷歌一直想要的](http://gizmodo.com/nexus-5-a-pure-google-dream-phone-thats-ridiculously-1445522531) 。这些听起来都不错，但作为谷歌对 iPhone 5S 和 Lumia 1020 等其他大狗的旗舰回应，更新后的 Nexus 有能力跟上竞争吗(至少一篇论文)？我们整理了下面的对比图表来找出答案。
 
-Watch
+
 
 就勇气而言，LG 制造的 Nexus 5 比其他产品更有竞争力。凭借 2.3GHz 的 Snapdragon 800 芯片，这款产品有可能成为主要的速度恶魔。此外，就像 iPhone 5S 有其 M7 协处理器一样，四核骁龙芯片也配有一个小助手。Nexus 5 的“奖励核心”负责处理小事情，而你的手机其余部分正在熟睡。
 

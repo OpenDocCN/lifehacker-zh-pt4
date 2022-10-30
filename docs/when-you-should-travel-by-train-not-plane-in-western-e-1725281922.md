@@ -4,7 +4,7 @@
 
 有时候坐火车 [比坐飞机](http://wayfarer.lifehacker.com/this-guide-shows-u-s-routes-where-trains-are-better-th-1646515181#_ga=1.31328127.156623539.1423234556) 好。当谈到在西欧城市之间穿梭时，有时火车会击败廉价航空公司诱人的报价。
 
-Watch
+
 
 独立旅行者比较了两家打折的欧洲航空公司( [瑞安航空](https://www.ryanair.com/) 和 [易捷航空](http://www.easyjet.com/en/) )和 [铁路欧洲](http://www.raileurope.com/index.html) )的成本，发现在距离较近的城市之间旅行时，坐火车更划算。例如，如果你想去罗马，然后去佛罗伦萨，然后去威尼斯，最后再回到罗马。
 

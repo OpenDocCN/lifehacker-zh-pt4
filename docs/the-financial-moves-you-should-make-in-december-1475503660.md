@@ -4,7 +4,7 @@
 
 再见 2014！很难相信它会很快结束。现在是时候总结一下你今年的财务状况，并开始为 2015 年做计划了。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/knowledge-center/your-december-2014-financial-to-dos/)***。**T15】*
 

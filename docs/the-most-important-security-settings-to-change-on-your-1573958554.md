@@ -4,7 +4,7 @@
 
 您的路由器是抵御黑客试图访问您家中所有联网设备的第一道防线。可悲的是， [很多顶级的 Wi-Fi 路由器很容易被黑掉](http://www.cnet.com/news/top-wi-fi-routers-easy-to-hack-says-study/) 。你应该关心一下——还要确保你的路由器设置正确。
 
-Watch
+
 
 我们之前已经讨论过 [你应该在你的路由器上改变](https://lifehacker.com/what-settings-should-i-change-on-my-wi-fi-router-5553789) 的基本设置——这些仍然适用。
 

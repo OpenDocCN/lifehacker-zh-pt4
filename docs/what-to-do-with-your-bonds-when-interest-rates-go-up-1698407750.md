@@ -4,7 +4,7 @@
 
 美联储 [接近再次加息](https://lifehacker.com/who-is-the-fed-and-how-do-they-affect-your-finances-1692449444)——甚至可能在今年。这意味着你的债券会贬值，那么一个平衡的投资组合该怎么做呢？你可以做以下三件事来对抗利率对你投资的影响。
 
-Watch
+
 
 ### 债券和利率之间的关系
 

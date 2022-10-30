@@ -4,7 +4,7 @@
 
 你知道新车的味道吗？这增加了购买一辆全新汽车的愉快和兴奋的体验。但是像气味这样的东西可能不值得这么多钱。我们经常在我们并不真正需要的功能上花钱，在开支票之前应该停下来想一想。
 
-Watch
+
 
 ***这个帖子最初出现在*** [***这个简单的美元***](http://www.thesimpledollar.com/the-little-perks-you-pay-big-for-that-new-car-smell-for-example/) ***。**T15】*
 

@@ -4,7 +4,7 @@
 
 开放式办公室 [并不是每个人都喜欢的](https://lifehacker.com/how-to-stay-productive-in-an-open-working-environment-1443536319) ，但是 Movember 的开放式办公室符合该组织的价值观和宗旨。
 
-Watch
+
 
 办公室造型师 [十一月美国](http://us.movember.com/) 的国家总监马克·赫德斯特罗姆解释说:
 

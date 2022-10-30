@@ -4,7 +4,7 @@
 
 读者 [鲍比·凯恩](https://www.flickr.com/photos/bobbyjkane/) 很好地利用了显示器支架，让一切都保持在视线水平，并在他狭小但舒适的工作空间里隐藏了不雅观的扬声器。
 
-Watch
+
 
 Bobby 正在使用 [这些宜家腿](http://www.ikea.com/us/en/catalog/products/20054563/) 和一个架子来抬高他的显示器( [，就像我们在](https://lifehacker.com/diy-ikea-monitor-stand-for-12-5872323) 之前展示过一次的那样)，以及一个[12 South HiRise](https://www.twelvesouth.com/product/hirise-for-macbook)来抬高他的 MacBook，使其接近他更大的主显示器的水平。他还在显示器支架下放置了一个三星条形音箱，以防止扬声器被人看到。(你可以在他工作区的 [的“进行中”照片](https://www.flickr.com/photos/bobbyjkane/14805577422/in/photostream/) 中看到另一个视图。)博比电脑上的欢迎屏幕来自于 [动量](https://chrome.google.com/webstore/detail/momentum/laookkfknpbbblfpciffpaejjkokdgca?hl=en) 、 [富有成效和灵感的 Chrome 扩展](http://lifehacker.com/momentum-adds-inspirational-quotes-and-to-dos-to-chrome-1465454691) 。
 

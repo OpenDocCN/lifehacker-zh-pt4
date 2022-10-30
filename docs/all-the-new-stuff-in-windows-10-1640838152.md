@@ -4,7 +4,7 @@
 
 微软今天向我们展示了下一个版本的 Windows，令人困惑的称为 Windows 10。这是你可以期待看到的。
 
-Watch
+
 
 **更新**:Windows 10 技术预览版现在可以下载安装，所以 [查看我们的安装指南](http://lifehacker.com/windows-10-technical-preview-now-available-for-download-1641212531) 了解更多信息。如果你只是想看看它的外观和感觉， [我们也有视频演练](http://lifehacker.com/heres-what-windows-10-looks-and-feels-like-1641369982) 。
 

@@ -4,7 +4,7 @@
 
 如今，成为一家初创公司的首席执行官意味着任何事情，但你通常需要在保持流动性的同时，为许多不同的事情做好准备。《每日邮报》读者科林·瑞安分享了他的包。
 
-Watch
+
 
 这里的包是一个 [比林汉姆哈德利专业](http://www.amazon.com/gp/product/B0001976UC?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-startup-ceos-daily-bag-1637693478&asc_source=&tag=kinjalifehackerlink-20) ，它实际上是一个相机包，但显然足够好。这是里面的东西。
 

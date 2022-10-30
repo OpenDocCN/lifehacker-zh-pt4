@@ -4,7 +4,7 @@
 
 2005 年，史蒂芬·列维特和史蒂芬·都伯纳的《魔鬼经济学》一书从经济学原理的角度为日常生活带来了新的视角——揭示了从育儿到犯罪的一切，以及我们为什么会这样做。
 
-Watch
+
 
 这本书引发了它自己的 [博客](http://freakonomics.com/blog/)[纪录片](http://freakonomics.com/movie/) 和 [广播节目](http://freakonomics.com/radio/) ，该节目由杜布纳主持，在那里他继续讨论“一切事物隐藏的一面”，以及几本 [后续书籍](http://freakonomics.com/books/) ，销量超过 500 万册。我们采访了斯蒂芬，了解他的生活方式、写作工具和工作方式。
 

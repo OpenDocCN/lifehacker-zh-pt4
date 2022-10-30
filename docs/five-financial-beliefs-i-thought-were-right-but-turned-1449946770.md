@@ -4,7 +4,7 @@
 
 上周，我妻子在网上寻找烤土豆的理想温度和烹饪时间。当她挖掘信息时，她发现了一个有趣的事实:要正确地烘烤一个土豆，你应该把它*裸露*放在烹饪板上(当然，要涂上油和你选择的调料)。*神魂颠倒。*
 
-Watch
+
 
 ***本帖最初出现在*** [***三个节俭的家伙***](http://www.threethriftyguys.com/2013/10/5-financial-beliefs-i-thought-were-right-but-turned-out-to-be-wrong/) ***。**T15】*
 

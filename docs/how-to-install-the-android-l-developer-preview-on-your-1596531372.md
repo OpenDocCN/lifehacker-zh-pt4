@@ -4,7 +4,7 @@
 
 谷歌刚刚发布了最新版本 Android 的第一个开发者预览版。对于那些渴望获得最新最棒产品的人来说，下面是如何立即在 Nexus 5 或 Nexus 7 (2013)上安装 Android L 的方法。
 
-Watch
+
 
 首先，你需要解锁 [你的设备](https://lifehacker.com/everything-you-need-to-know-about-rooting-your-android-5789397)[ADB，并安装](http://lifehacker.com/the-easiest-way-to-install-androids-adb-and-fastboot-to-1586992378) 快速启动。然后，按照以下说明操作:
 

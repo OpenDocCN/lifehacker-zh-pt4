@@ -4,7 +4,7 @@
 
 有些人喜欢讨价还价，而有些人不喜欢(或者他们只是不知道如何讨价还价)。慢慢变富的创始人 J.D .罗斯解释了他为什么喜欢讨价还价的艺术，并提供了他的入门建议。
 
-Watch
+
 
 ***本帖最初出现在*** [***慢慢变富***](http://www.getrichslowly.org/blog/2013/10/31/how-i-learned-to-stop-worrying-and-love-to-bargain/) ***。*T15】**
 

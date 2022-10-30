@@ -4,7 +4,7 @@
 
 今天的特色工作区看起来完美无瑕，有着质朴的白墙、简单的白色桌子和木质装饰。那些天窗也有帮助。
 
-Watch
+
 
 这个工作空间似乎位于瑞典一栋复式公寓的卧室一角。公寓的其余部分，目前正在出售，和这个空间一样干净雅致——所以即使你不打算买新房子，也值得看看下面链接的 55 Kvadrat。在 之前，我们已经看到了 [几个](https://lifehacker.com/the-spotless-white-workspace-1635874540) [白色](http://lifehacker.com/the-pure-white-workspace-499896068) [工作区](http://lifehacker.com/the-sleek-white-workspace-5860041) [，这一个进一步证明了你不需要很多颜色就能拥有一个吸引人的家庭办公室。](http://lifehacker.com/white-glass-and-bamboo-a-minimalist-workspace-5741195)
 

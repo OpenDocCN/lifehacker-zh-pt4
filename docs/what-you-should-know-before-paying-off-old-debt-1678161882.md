@@ -4,7 +4,7 @@
 
 建立良好信用的一部分意味着继续履行你的义务，但如果你在某个地方忘记了账单，它可能会回来困扰你。还清旧债可以让债权人陷入困境，但在你交出现金之前，有一些利弊要考虑。
 
-Watch
+
 
 ***本帖最初出现在***[***mybank tracker***](http://www.mybanktracker.com/news/paying-off-old-debt)***。**T15】*
 

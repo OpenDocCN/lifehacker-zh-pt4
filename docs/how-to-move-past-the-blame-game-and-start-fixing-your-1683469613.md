@@ -4,7 +4,7 @@
 
 把你的问题归咎于别人(或某事)是很容易的。你不能控制一切，这个世界总会想办法让你的生活变得更艰难。但是这就是责备的问题:它不能解决任何问题。
 
-Watch
+
 
 有时候，你的处境超出了你的控制。我曾经遇到过 [差](https://lifehacker.com/the-financial-advice-im-glad-i-ignored-when-i-was-brok-1492198947)[心理受损](http://lifehacker.com/five-lessons-i-learned-from-dealing-with-depression-1595249546) ，受制于全身劣势的情况。责备是诊断问题起源的有用工具。当涉及到严重的违法行为时，有必要找出是谁的错并指出来。
 

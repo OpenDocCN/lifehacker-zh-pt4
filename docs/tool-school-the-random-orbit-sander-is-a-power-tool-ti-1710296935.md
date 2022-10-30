@@ -4,7 +4,7 @@
 
 打磨是每个人最不喜欢的 DIY 工作，但这是不可避免的。在你的下一个项目中使用随机轨道打磨机，这样你就可以节省打磨的时间和精力。
 
-Watch
+
 
 使用 [砂块](http://www.homedepot.com/p/Warner-Rubber-Sanding-Block-25237/205052756) 和砂纸可能是一种令人沮丧且低效的打磨方式。这种纸很难写，而且经常写不下去。 [打磨海绵](http://www.rockler.com/double-sided-sanding-sponges-6-pack?utm_source=google&utm_medium=cpc&utm_term=&utm_content=pla&utm_campaign=PL&sid=V9146&gclid=CjwKEAjwwN-rBRD-oMzT6aO_wGwSJABwEIkJ5MegNAW8rxy8ojKuZyRgOfWF0AuZwHsRxJrZ_2gbjRoCjGPw_wcB) 更容易使用，但仍需最大努力。这两种打磨技术都有效，但是使用 [随机轨道打磨机](http://www.amazon.com/Orbital-Sanders/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/tool-school-the-random-orbit-sander-is-a-power-tool-ti-1710296935&asc_source=&ie=UTF8&node=552888&tag=kinjalifehackerlink-20) ，你将花费更少的时间打磨，更多的时间享受你的劳动成果。
 

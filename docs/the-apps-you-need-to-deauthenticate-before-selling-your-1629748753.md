@@ -4,7 +4,7 @@
 
 出售一台电脑、智能手机或平板电脑应该像删除所有个人数据并将其交给买家一样简单，但有时你可能会忘记一些隐藏的身份认证信息。从 iTunes 到 Kindle 应用程序，这里有你在出售你的设备之前需要取消认证的一切。
 
-Watch
+
 
 我们之前已经指导过你如何安全地擦除你的 [手机](https://lifehacker.com/how-do-i-securely-erase-my-phone-before-i-sell-it-5808280) 和 [电脑](http://lifehacker.com/what-should-i-do-to-my-computer-before-i-sell-it-5966580) ，但一些应用程序也直接用你的电脑验证 DRM 和序列号。如果不去认证，有时候要么失去对 app 的访问权限，更烦人的是，买家无法设置自己的账户。
 

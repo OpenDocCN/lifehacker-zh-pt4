@@ -4,7 +4,7 @@
 
 当你准备面试时，有几个问题你绝对必须知道如何回答(比如“告诉我关于你自己”)，因为它们是常见的，并将引导大部分面试。但是“为什么是这个公司呢？”可能是最棘手的，因为这不是关于你的。
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](https://www.themuse.com/advice/4-better-ways-to-answer-why-do-you-want-to-work-at-this-company) ***。*T15】**
 

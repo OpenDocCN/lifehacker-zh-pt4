@@ -4,7 +4,7 @@
 
 在本周的播客中，我们将与骨病医生兼 Examine.com[](http://examine.com/)[的主任斯潘塞·纳多斯基](https://twitter.com/DrNadolsky) 博士对话，回答你的健康问题。我们还与债务管理网站[【ReadyForZero.com](http://readyforzero.com)的首席执行官 [罗德·易卜拉希米](http://innovatebig.com/) 交谈，以解决各种个人财务问题，从信用评分到学生贷款。
 
-Watch
+
 
 下周我们将有另一个专家播客，然后回到我们的常规模式，只是在新的时间:太平洋时间上午 10:00。敬请期待！
 

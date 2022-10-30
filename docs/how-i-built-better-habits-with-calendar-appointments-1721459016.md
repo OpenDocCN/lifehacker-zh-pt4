@@ -4,7 +4,7 @@
 
 旧习难改。你可能有过这样的经历，当你发誓要永远吃所有的沙拉，结果几天后就崩溃了。 [建立新习惯](http://thefyslife.com/article/how-to-create-habits-with-calendar-alerts/) 需要时间。 [很多时候。对我来说，把我的习惯变成日历约会带来了巨大的变化。这可能对你有用。](https://lifehacker.com/why-habits-arent-always-formed-in-21-days-5926583)
 
-Watch
+
 
 在一个理想的世界里，我们都很容易养成让我们成功的习惯。当然，现实是令人扫兴的，因为培养新习惯需要持续、一致的努力和重复。通常，挑战就在于*记得每天做那该死的事情。*
 

@@ -4,7 +4,7 @@
 
 *我们从简单的美元特伦特·哈姆那里精选了很多小技巧——从* [*批量购买*](https://lifehacker.com/the-ultimate-guide-to-buying-in-bulk-1447310078) *和* [*网上赚钱*](https://lifehacker.com/the-reality-of-earning-money-online-1460779442) *到* [*管理职业生涯中断*](http://lifehacker.com/how-to-maintain-your-skills-during-a-career-hiatus-1286037539) *和* [*克服决策疲劳*在这里，他分享了他的十条最重要的财务建议。](http://lifehacker.com/how-to-overcome-decision-fatigue-1462863837)
 
-Watch
+
 
 ***这个帖子最初出现在*** [***这个简单的美元***](http://www.thesimpledollar.com/almost-everything-useful-ive-learned-about-personal-finance-in-ten-sentences/) ***。***
 

@@ -5,7 +5,7 @@
 亲爱的 Lifehacker，
 这些天我听到了很多关于不同的消息应用程序，但我不明白我为什么要在意。一次搜索会显示 WhatsApp、Viber、iMessages、Snapchat、Kik、Facebook Messenger 等数十个应用。我已经有短信了。为什么我需要这些其他应用程序？
 
-Watch
+
 
 真诚的，
 什么是 App

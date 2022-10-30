@@ -4,7 +4,7 @@
 
 本周我们 [发现了如何摆脱电话推销员](https://lifehacker.com/im-a-telemarketer-heres-how-to-get-rid-of-me-1540911401)[投票选出了五个最好的 Wi-Fi 路由器](http://lifehacker.com/five-best-home-wi-fi-routers-5920709)[计算出你需要什么来支持你的家人](http://lifehacker.com/your-living-wage-find-out-the-minimum-you-need-to-supp-1541333892)[找到了 Google Drive](http://lifehacker.com/the-best-add-ons-for-google-drive-1541643206) 的最佳附件。这里回顾一下。
 
-Watch
+
 
 ## [我是一名电话销售员。下面是如何摆脱我](http://lifehacker.com/im-a-telemarketer-heres-how-to-get-rid-of-me-1540911401)
 

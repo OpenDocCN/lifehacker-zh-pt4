@@ -4,7 +4,7 @@
 
 本周我们 [分享了谷歌给学生的小贴士](https://lifehacker.com/google-tips-and-tricks-every-student-should-know-1508121671)[创建了一个有用的生活技能列表](http://lifehacker.com/the-most-useful-life-skills-that-everyone-should-know-1506682558)[储备必需品](http://lifehacker.com/ten-items-you-should-always-stock-up-on-1511457806)[通过 Dre](http://lifehacker.com/are-beats-by-dre-headphones-any-good-1509805994) 了解了 Beats 的真相。这里回顾一下。
 
-Watch
+
 
 ## [每个学生都应该知道的谷歌小技巧](http://lifehacker.com/google-tips-and-tricks-every-student-should-know-1508121671)
 

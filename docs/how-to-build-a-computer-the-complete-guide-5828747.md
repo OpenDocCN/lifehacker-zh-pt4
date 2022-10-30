@@ -2,11 +2,11 @@
 
 > 原文：<https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747>
 
-[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)) : title[![](../Images/044fbadc98edfd613c34b7c809fe4420.png)](https://pcbuild.kinja.com)[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)Building your own desktop PC is a great, geeky pleasure. We'll show you how to do it and everything you need to know to keep your system properly maintained.
+
 
 从头开始构建一台计算机会为您提供满足您需求的完美机器，但第一次使用时可能会令人望而生畏。这是我们的完整指南，从挑选部件，到组装和安装操作系统。
 
-Watch
+
 
 这个夜校系列最初出版于 2011 年。我们已经检查并给了它一些急需的更新:我们更改了过时的参考资料，添加了一些新的资源和工具，并扩展了几个部分。尽情享受吧！
 

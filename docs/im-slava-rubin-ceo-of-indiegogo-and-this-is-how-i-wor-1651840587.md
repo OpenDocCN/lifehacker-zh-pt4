@@ -4,7 +4,7 @@
 
 在过去的几年里，众筹改变了业余爱好者和专业人士处理他们的激情项目的方式。从艺术和电影到原型技术产品，在像 [Indiegogo](http://www.indiegogo.com) 这样的网站上有生命的项目是无限的。
 
-Watch
+
 
 斯拉瓦·鲁宾在 2008 年共同创立了 Indiegogo，使其成为最早倡导在线众筹理念的网站之一。他们在圣丹斯电影节(Sundance Film Festival)上发起，最初的重点是为独立电影筹集资金——几年前我上学的时候就试图在 Indiegogo 上资助一部电影——但该网站后来发展成为各行各业的项目。当然，有些活动会引发争议，你 [应该在投稿前阅读附属细则](https://lifehacker.com/should-i-contribute-to-crowdfunding-campaigns-like-kic-1645706301) 。尽管如此，不可否认的是，众筹网站已经允许了创新的爆发。
 

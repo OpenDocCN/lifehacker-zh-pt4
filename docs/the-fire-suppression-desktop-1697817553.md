@@ -4,7 +4,7 @@
 
 我们的朋友 [joergermeister](https://www.flickr.com/photos/joergermeister/) 做了不少我们喜欢的台式机，这款也不例外。干净，稀疏，但仍然有效，这是他如何设置的。
 
-Watch
+
 
 Joergermeister 正在使用 Windows 10 技术预览版，但你可以在任何 Windows 桌面上使用它。以下是他使用的方法，以及您需要下载的内容，以便对您的机器进行同样的操作:
 

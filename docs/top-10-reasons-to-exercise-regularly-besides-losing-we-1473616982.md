@@ -4,7 +4,7 @@
 
 你已经被告知 [上百次](https://lifehacker.com/how-exercise-affects-your-body-and-how-to-pick-the-rig-507511853) 锻炼对你有好处，这是真的——但它的好处远不止是减肥或锻炼肌肉。以下是 [带来的另外 10 个好处，只需每天做一点点运动](http://lifehacker.com/how-to-motivate-yourself-into-an-exercise-routine-youll-5950484) 。
 
-Watch
+
 
 ### 10.你会改善你的记忆
 

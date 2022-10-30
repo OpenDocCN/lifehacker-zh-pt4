@@ -4,7 +4,7 @@
 
 去年， [最初的 HTC One](https://gizmodo.com/htc-one-review-the-beauty-is-a-beast-updated-5990716) 以其前所未有的安卓设计印记赢得了我们的好感。它由实心铝块加工而成，非常漂亮，握起来令人难以置信地满意。不仅如此，它绝对拖后腿。不用说，新的 HTC One 有很大的发展空间。
 
-Watch
+
 
 好消息是:它填满了它们。
 

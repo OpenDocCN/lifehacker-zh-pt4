@@ -4,7 +4,7 @@
 
 冲泡一杯好咖啡有很多因素，但其中最重要的(也是经常被低估的)是你研磨的质量和均匀度。一个好的磨毛刺机是任何咖啡迷的必备，但本周我们想知道哪些是最好的，我们需要你的帮助来找到它们。
 
-Watch
+
 
 就像我们提到的， [得到正确的研磨是重要的](https://lifehacker.com/this-is-what-your-coffee-grind-should-look-like-based-1441213302) ，一个好的 [毛刺研磨机](http://en.wikipedia.org/wiki/Burr_mill) 应该是 [你必不可少的咖啡制作武器](http://lifehacker.com/the-best-at-home-coffee-making-gear-1564012367) 。毛刺研磨机确保咖啡渣均匀，冲泡后的杯子整体质量更好，但哪种研磨机最好呢？在下面的讨论中分享你的提名吧！
 

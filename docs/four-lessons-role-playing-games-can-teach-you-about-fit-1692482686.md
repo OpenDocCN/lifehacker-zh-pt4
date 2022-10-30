@@ -4,7 +4,7 @@
 
 在大多数人的心目中，游戏玩家与他们渴望成为的肌肉发达、身材健美的运动员相去甚远...可能是因为电子游戏经常被指责为造就了一代电视迷。但事实上，有许多健康的游戏玩家，他们中的许多人在谈论他们如何变得健康时会引用他们所知道和喜爱的 RPG 的相似之处。
 
-Watch
+
 
 乍一看，这个话题像是“香烟能教会你什么好习惯”，所以让我们来消除一些误解。电子游戏不会让人变胖。当然，玩得太多可能会占用你锻炼的时间，但这是 [卡路里的过度消耗](http://www.nytimes.com/2012/08/26/opinion/sunday/debunking-the-hunter-gatherer-workout.html?_r=0)——而不是缺乏锻炼——这是导致当前肥胖危机 的 [的原因。](http://www.nytimes.com/2012/08/26/opinion/sunday/debunking-the-hunter-gatherer-workout.html)
 

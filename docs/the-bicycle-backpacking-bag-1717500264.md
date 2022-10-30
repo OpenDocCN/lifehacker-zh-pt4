@@ -4,7 +4,7 @@
 
 骑自行车进行背包旅行需要一套特殊的装备。洛根分享了他在北卡罗来纳阿巴拉契亚山脉为期五天的旅行装备清单。
 
-Watch
+
 
 这里的两个主要包是一个 [Revelate Design Viscacha 座椅包](http://www.amazon.com/Revelate-Design-Viscacha-Seat-Bag/dp/B00E3D49L6/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-bicycle-backpacking-bag-1717500264&asc_source=&ie=UTF8&keywords=REVELATE VISCACHA SEAT PACK&qid=1436803910&sr=8-1&tag=kinjalifehackerlink-20) 和一个 [鱼鹰男士 Manta 28](http://www.amazon.com/Osprey-Manta-Hydration-Medium-Large/dp/B008RB22CS/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-bicycle-backpacking-bag-1717500264&asc_source=&ie=UTF8&keywords=osprey manta 28&qid=1436803929&sr=8-1&tag=kinjalifehackerlink-20) ，尽管也有一个 DIY 框架包。以下是里面的内容，但要了解更多信息，请前往“无处踩踏”网站:
 

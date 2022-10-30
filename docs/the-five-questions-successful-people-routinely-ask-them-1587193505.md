@@ -4,7 +4,7 @@
 
 虽然每个人对职业成功都有不同的定义，但所有成功人士都有一个共同点，那就是努力超越前一天。前进的动力是关键，你可以通过问正确的问题来控制自己。
 
-Watch
+
 
 ***本帖原载于*** [***快公司***](http://www.fastcompany.com/3031279/work-smart/the-5-questions-successful-people-routinely-ask-themselves) ***。**T15】*
 

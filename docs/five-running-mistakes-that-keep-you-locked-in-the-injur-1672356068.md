@@ -4,7 +4,7 @@
 
 你的身体不是一台机器，即使你认为你可以“挺过去”，你也不应该把它当成一台机器你需要像训练时一样关注和考虑你的恢复。以下是一些常见的跑步错误，它们会加重你身体的压力。
 
-Watch
+
 
 ***本帖最初出现在*** [***实力奔跑***](http://strengthrunning.com/2013/08/running-blunders-that-keep-you-in-the-injury-cycle/) ***上。**T15】*
 

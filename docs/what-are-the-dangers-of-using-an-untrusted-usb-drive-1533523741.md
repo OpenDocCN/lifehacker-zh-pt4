@@ -4,7 +4,7 @@
 
 u 盘、笔驱动、记忆棒——它们不一定像你想象的那样无害。在你插入一个你不是 100%信任的之前，想想可能会出什么问题(提示:很多)。超级用户在 [*栈交换*](http://superuser.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=superuser-107) *列举了几个非常现实的 USB 噩梦场景。*
 
-Watch
+
 
 假设有人想让我把一些文件拷贝到他们的 u 盘里。我运行的是打满补丁的 Windows 7 x64，禁用了自动运行(通过组策略)。我插入 USB 驱动器，在 Windows 资源管理器中打开它，并将一些文件复制到其中。我不运行或查看任何现有文件。如果我这么做，会发生什么不好的事情？如果我在 Linux(比如说 Ubuntu)上这么做呢？
 

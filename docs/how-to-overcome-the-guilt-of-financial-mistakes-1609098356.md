@@ -4,7 +4,7 @@
 
 我们都犯过财务错误，仅仅是拒付一张支票就能让你感到难以置信的内疚和尴尬。但是只要你诚实和乐于助人，你就能克服错误并找到前进的方法。
 
-Watch
+
 
 ***本帖原载于***[***ReadyForZero***](http://blog.readyforzero.com/overcoming-the-guilt-associated-with-mismanaged-finances/)***。*T15】**
 

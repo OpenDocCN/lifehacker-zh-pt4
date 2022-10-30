@@ -4,7 +4,7 @@
 
 为了帮助你避免破坏你的预算，我们揭示了八个常见的超支触发因素——以及如何在为时已晚之前踩下支出刹车的聪明策略。
 
-Watch
+
 
 ***本帖最初出现在***[***learn vest***](http://www.learnvest.com/2014/08/sneaky-overspending-triggers-that-can-sabotage-your-budget/4/)***。**T15】*
 

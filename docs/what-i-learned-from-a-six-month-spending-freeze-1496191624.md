@@ -4,7 +4,7 @@
 
 如果我说我是一个购物狂，你可能会想象出这样一幅画面:一个人在购物中心里，每只胳膊上拎着一打袋子，心烦意乱地走向下一家商店。事实上，我更像是一个痴迷于网上购物的人。
 
-Watch
+
 
 ***本帖最初出现在罗伯特·a·墨菲的*** [***博客***](http://gogetmurphy.com/2013/04/what-i-am-learning-from-a-self-imposed-6-month-purchasing-freeze/) ***。*T15】**
 

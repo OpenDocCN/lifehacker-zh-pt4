@@ -4,7 +4,7 @@
 
 当我们在生活中做出重大决定时，我们对自己非常苛刻。无论是关于一段关系 [还是一份工作](https://lifehacker.com/why-there-are-no-right-or-wrong-career-moves-1704232930) ，当我们试图决定一件复杂而多面的事情时，犯错是没关系的。事实上，你的第一选择通常是错误的。
 
-Watch
+
 
 ***本帖原载于*** [***詹姆斯清晰的博客***](http://jamesclear.com/first-choice) ***。***
 

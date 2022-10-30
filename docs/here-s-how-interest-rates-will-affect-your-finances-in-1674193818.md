@@ -4,7 +4,7 @@
 
 当消费者忙于准备假期和年末庆祝活动时，我们一直在努力分析 2014 年以来的利率趋势，并预测 2015 年将会发生什么。让我们来看看利率在过去一年中的变化，它们在 2015 年的预期水平，以及这对消费者意味着什么。
 
-Watch
+
 
 ***本帖最初出现在***[***GOBankingRates***](http://www.gobankingrates.com/banking/2015-interest-rate-projectionsheres-rates-affect-money-next-year/)***。**T15】*
 

@@ -4,7 +4,7 @@
 
 Android 更新需要很长时间。虽然大多数时候没事，但当 [发现一个新的、可怕的安全漏洞](http://gizmodo.com/oh-great-new-android-flaw-lets-hackers-into-your-phone-1720381448) 时，就可能出问题了。无论你是想保护你的手机，还是只是不能等待新的更新，这里有如何跳过这一行，手动更新你的 Nexus 手机(偶尔也更新其他设备)。
 
-Watch
+
 
 大多数安卓手机都要求你等待运营商为你的手机推出空中下载(OTA)更新。即使你知道一个更新已经发布，你仍然需要等待它到达你的设备，或者求助于 [复杂的解决方法](http://lifehacker.com/force-an-android-device-to-check-for-a-system-update-5946585) 来加速这个过程。对于大多数手机来说，除了等待，你别无选择。如果你有一部 Nexus 手机或平板电脑，很有可能你可以跳过这一行，手动更新。
 

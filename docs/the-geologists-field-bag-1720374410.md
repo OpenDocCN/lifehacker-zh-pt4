@@ -4,7 +4,7 @@
 
 不管你的职业是什么，野外锻炼总是需要不同的工具。在《日常携带》中，地质学家 J.G .分享了他的包，里面装满了各种有趣的东西。
 
-Watch
+
 
 这个包是一个 [的 Rocktrail 背包](http://www.ebay.co.uk/sch/sis.html?_nkw=Hiking%20Walking%20Camping%20Travel%20Lightweight%20Rocktrail%20Rucksack%20Backpack%2030L%2050L&_itemId=190770025426) 。这是里面的内容:
 

@@ -4,7 +4,7 @@
 
 无论你喜欢还是讨厌 Windows 8，2013 年仍然是 Windows 提示、下载和指南的大好年份。以下是我们今年最受欢迎的 Windows 帖子。
 
-Watch
+
 
 今年我们 [将 Windows 8 降级为 Windows 7](https://lifehacker.com/downgrade-your-new-windows-8-computer-to-windows-7-for-5974318) ， [跑遍了最好的 underhyped Windows 应用](http://lifehacker.com/top-10-underhyped-windows-apps-5984329) ， [换了我们的杀毒精选](http://lifehacker.com/the-best-antivirus-app-for-windows-5865356) ， [做了一次干净的安装，没有丢失我们的文件](http://lifehacker.com/how-to-do-a-clean-install-of-windows-without-losing-you-5983652) 。
 

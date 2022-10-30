@@ -4,7 +4,7 @@
 
 隐私很重要，而 [我们应该去争取](https://lifehacker.com/why-you-should-care-about-and-defend-your-privacy-5904966) 。我曾经多次说过。但当 Windows 10 推出时，我对 Cortana [表示欢迎，尽管有一些隐私维权人士](https://lifehacker.com/what-windows-10s-privacy-nightmare-settings-actually-1722267229) 的担忧。这听起来很虚伪，但是一旦你理解了隐私作为货币是如何运作的，这种脱节就很容易解决。以下是我如何继续倡导一个更安全、注重隐私的互联网，并仍然使用这些令人敬畏的免费工具。
 
-Watch
+
 
 ### 新隐私经济:用你的数据交换服务
 

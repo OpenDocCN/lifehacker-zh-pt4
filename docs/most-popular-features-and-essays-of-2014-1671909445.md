@@ -4,7 +4,7 @@
 
 我们为 Lifehacker 的操作方法和解释者感到自豪，但有些文章并不完全符合这两个类别。也许它们是对人生经验的个人描述，也许它们是对当今一个流行问题的咆哮。以下是今年一些最好的特写和文章。
 
-Watch
+
 
 今年我们 [停止了给一个 f * CK](https://lifehacker.com/how-to-stop-giving-a-f-ck-what-people-think-1530784365)[在我们 20 多岁的时候黑出了一条路](http://lifehacker.com/10-of-the-most-important-life-lessons-i-learned-from-my-1547298543)[学会了一些生存技巧](http://lifehacker.com/the-wilderness-survival-skills-everyone-should-know-5881604)[对付抑郁症](http://lifehacker.com/five-lessons-i-learned-from-dealing-with-depression-1595249546) 等等。
 

@@ -4,7 +4,7 @@
 
 在工作场所进行交谈经常会让你处理“假话”和无用的行话，以避免冲突和困难的话题，但有时你需要大声说出来，让别人听到。
 
-Watch
+
 
 ***本帖原载于*** [***快公司***](http://www.fastcompany.com/3032968/hit-the-ground-running/how-to-say-what-your-really-mean-in-conversations) ***。**T15】*
 

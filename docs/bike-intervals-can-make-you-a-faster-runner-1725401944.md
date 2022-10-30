@@ -4,7 +4,7 @@
 
 寻找变化，或者只是想离开你的脚来恢复受伤？根据一项新的研究，在固定自行车上进行短暂的间歇训练可以帮助你提高跑步速度。
 
-Watch
+
 
 这项名为 [的研究发表在*力量和调节研究期刊*](http://journals.lww.com/nsca-jscr/Abstract/2015/08000/High_Intensity_Cycling_Training___The_Effect_of.19.aspx) 上，对 32 名每周至少跑 25 英里的跑步者进行了测试。一些人继续他们通常的训练，而另一些人每周增加三次短时间的自行车训练。
 

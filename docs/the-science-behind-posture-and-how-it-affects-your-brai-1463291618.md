@@ -4,7 +4,7 @@
 
 我先承认:我的姿势很糟糕。至少从我上高中起就一直很糟糕，甚至可能更久。这是我一直记在心里的事情之一，我知道我应该做，但从来没有抽出时间去做，就像吃更多的蔬菜和寄更多的明信片一样。
 
-Watch
+
 
 ***本帖最初出现在*** [***缓冲区***](http://blog.bufferapp.com/improve-posture-good-posture-science-happiness?utm_source=buffer&utm_campaign=Buffer&utm_content=buffer177e0&utm_medium=twitter) ***上。**T15】*
 

@@ -5,7 +5,7 @@
 亲爱的 Lifehacker，
 我不断看到这些新的博客平台如和 [Svbtle](https://svbtle.com/) 般涌现。为什么我会使用这些新平台中的一个，而不是像 Wordpress 这样更强大的经典？
 
-Watch
+
 
 真诚，
 博客要活

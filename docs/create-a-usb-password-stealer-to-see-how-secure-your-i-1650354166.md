@@ -4,7 +4,7 @@
 
 在密码安全上的松懈会带来可怕的后果。即便如此，还是很容易忘记有多少人容易受到攻击。只需几个文件，你就可以从受害者的 Windows PC 上几乎任何地方窃取密码，包括你自己的，只是为了看看它们到底有多安全。
 
-Watch
+
 
 *这篇文章是我们 Lifehacker 的* [*邪恶周*](https://lifehacker.com/welcome-to-lifehackers-fifth-annual-evil-week-1647621043) *系列的一部分，在这里我们看到了做事的阴暗面。知道邪恶意味着知道如何打败它，所以你可以用你的邪恶力量做好事。想要更多吗？查看我们的* [*恶周标签页*](http://lifehacker.com/tag/evilweek) *。*
 

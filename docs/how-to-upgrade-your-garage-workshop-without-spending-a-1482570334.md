@@ -4,7 +4,7 @@
 
 如果你有一个车库工作室，有很多方法可以在不倾家荡产的情况下改善它。家庭杂工的团队在这里分享其中的五个。
 
-Watch
+
 
 ***<small>这个帖子最初出现在</small>***[***<small>这个家庭杂工</small>***](http://www.familyhandyman.com/workshop/upgrading-your-garage-workshop/view-all)***<small>。版权 2010 年家庭杂工杂志。保留所有权利。</small>***
 

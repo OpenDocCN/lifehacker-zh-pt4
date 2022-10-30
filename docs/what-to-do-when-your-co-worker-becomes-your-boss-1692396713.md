@@ -4,7 +4,7 @@
 
 所以，这就是你:当你被告知一个同事现在是你的新老板时的尴尬时刻。消息传来时，你的头脑在飞速运转。当你掩饰你最初的震惊并强颜欢笑时，你不禁会想——我的午餐伙伴正成为我的经理。现在怎么办？
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](https://www.themuse.com/advice/what-to-do-when-your-coworker-becomes-the-boss-or-you-do) ***。**T15】*
 

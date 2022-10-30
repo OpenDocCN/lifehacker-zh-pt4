@@ -4,7 +4,7 @@
 
 Shellshock，这个新发现的漏洞 [允许攻击者向你的机器](https://gizmodo.com/why-the-shellshock-bash-bug-could-be-even-worse-than-he-1639047786) 注入代码，使你的 Mac 或 Linux 面临恶意攻击的严重风险。以下是如何测试您的机器是否易受攻击。
 
-Watch
+
 
 Shellshock 使用 bash 脚本来访问您的计算机。从那里，他们可以启动程序、启用功能和访问文件。该脚本只影响基于 UNIX 的系统，因此 Linux 和 Mac 是唯一易受攻击的系统。
 

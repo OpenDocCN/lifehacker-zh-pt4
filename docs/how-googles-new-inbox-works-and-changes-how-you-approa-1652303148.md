@@ -4,7 +4,7 @@
 
 上周，谷歌发布了一款全新的电子邮件服务 ，名为 [收件箱](https://play.google.com/store/apps/details?id=com.google.android.apps.inbox) 。如果你不熟悉 Inbox，或者只是对它的功能和工作方式感到困惑，下面是我们将它作为日常驱动程序使用一周后的发现。
 
-Watch
+
 
 目前，收件箱暂时只接受邀请，但邀请似乎正在稳步发出(还有 [有变通办法](https://lifehacker.com/get-access-to-inbox-by-gmail-with-a-friends-help-no-in-1651545079) )。
 

@@ -4,7 +4,7 @@
 
 当你发现自己在重复输入相同的信息时，文本扩展应用程序 是节省时间的好方法，但它们能做的远不止这些。我们最喜欢的是 Mac 上的 TextExpander，一旦你学会如何使用它，它就是一个强大的工具。
 
-Watch
+
 
 [Thanh 最近在我们的网站上写了](http://www.asianefficiency.com/technology/textexpander-review/) 关于 TextExpander 的基本特性和他如何在日常生活中使用它，在这篇文章中，我想更深入地向你展示如何使用 TextExpander 中可用的不同宏类型来创建你自己的(和更复杂的)“片段”
 

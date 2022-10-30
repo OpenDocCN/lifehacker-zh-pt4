@@ -4,7 +4,7 @@
 
 *好的，好的*。标题可能是在沙子上画一条不存在的线。毕竟，那句话怎么说来着…“永不说永不”？但是当涉及到财务问题时，有时做出长期承诺，避免购买某些东西，可以帮助你避免经常耗费你积蓄的开支。
 
-Watch
+
 
 ***本帖原载于***[***ReadyForZero***](http://blog.readyforzero.com/10-things-you-should-never-pay-for/)***。**T15】*
 

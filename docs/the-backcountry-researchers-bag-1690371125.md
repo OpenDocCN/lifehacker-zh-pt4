@@ -4,7 +4,7 @@
 
 如果你是一个穷乡僻壤的研究者，你需要在你的包里有一个非常特别的物品组合。CoolTools 的读者 Heron 就是这种情况，他每周花大约五天时间在华盛顿的穷乡僻壤做研究工作。
 
-Watch
+
 
 包里是一个 [Hyperlite 山地车 3400 搬运工包](http://www.hyperlitemountaingear.com/ultralight-packs/3400-series-ultralight-packs/3400-porter-pack.html) 。下面是里面的内容(点击底部的酷工具链接，查看每个项目的使用说明):
 

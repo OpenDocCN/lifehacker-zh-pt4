@@ -4,7 +4,7 @@
 
 大多数人都认为出国留学 [物有所值](https://lifehacker.com/why-studying-abroad-is-worth-the-expense-5868371) ，但你需要确保在起飞前做好充分准备。以下是如何处理重要的事情，如签证、费用、适应文化冲击、去之前要带什么等等。
 
-Watch
+
 
 ### **提前准备好你的文书工作**
 

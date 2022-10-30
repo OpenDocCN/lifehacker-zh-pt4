@@ -4,7 +4,7 @@
 
 我们已经分享了 [一个工具](https://lifehacker.com/google-reader-full-feed-expands-truncated-feeds-with-a-5523024) 来扩展截断的 RSS 源，但是免费服务全文 RSS 源构建器做得更好:只需插入一个源，它就会给你一个包含每篇文章全文的新源。
 
-Watch
+
 
 如果你厌倦了 RSS feed 只显示文章的前一两段，全文 RSS Feed Builder 会给你一个新的 RSS Feed 来显示完整的文章。它甚至会把像 [黑客新闻](http://news.ycombinator.com/) 这样的聚合器变成常规的提要，显示链接文章的全文，而不仅仅是他们通常显示的链接。它完全免费，不添加任何广告，让你永远不用离开你的 RSS 阅读器。点击链接查看。
 

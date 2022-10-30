@@ -4,7 +4,7 @@
 
 现在，更干燥、更温暖的春天终于来了，是时候解决一些你可能已经推迟的讨厌的户外维修了。这里有七种常见的户外修理方法，你可以自己动手，不需要经验。
 
-Watch
+
 
 我们之前已经讨论过 [家庭电气项目](https://lifehacker.com/preview/home-electrical-projects-you-can-totally-handle-yoursel-1543476392) 和 [家庭管道项目](http://lifehacker.com/home-plumbing-projects-you-can-totally-handle-yourself-1693471731) 你可以自己处理，现在是时候解决户外维修了。我们在这里讨论的项目主要是修复车道裂缝和坑洼、水龙头和水管、生锈的熟铁等等。这些大多是初级项目，相当容易做，如果你自己解决，可以为你节省很多钱。
 

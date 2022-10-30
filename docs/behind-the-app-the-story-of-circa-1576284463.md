@@ -4,7 +4,7 @@
 
 当你试图在手机上阅读冗长的文章时，很难跟上新闻。 [Circa](https://lifehacker.com/circa-news-dishes-out-bite-sized-news-bits-to-keep-you-1462978418) 是一款试图解决这个问题的应用，它通过简化新闻报道的呈现方式，将复杂的概念提炼为易于消化的卡片。
 
-Watch
+
 
 它甚至被苹果和谷歌评为 2013 年最佳新应用 之一。我们采访了 Circa 的首席执行官兼联合创始人马特·加利根(Matt Galligan ),了解这款应用是如何诞生的，以及他的编辑团队如何让新闻源源不断地流向你的口袋。
 

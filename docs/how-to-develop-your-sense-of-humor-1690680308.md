@@ -4,7 +4,7 @@
 
 拥有良好的幽默感会让你更乐于与人相处。你也可能(只要 [你不做过头](http://lifehacker.com/can-i-be-funny-at-work-without-ruining-my-reputation-1542172763) )。然而，即使你被糟糕的时机或缺乏幽默感所诅咒，以下是你如何培养幽默感的方法。
 
-Watch
+
 
 ### 沉浸在幽默中
 

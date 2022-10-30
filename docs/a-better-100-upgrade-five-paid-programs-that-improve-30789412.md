@@ -6,7 +6,7 @@
 
 每隔几年，一个新版本的 Windows 就会推出一些像样的，但较小的升级和 100 美元的价格标签。如果你宁愿花 100 美元买一个真正的增强功能的*，，[购买这五个程序](https://lifehacker.com/top-10-paid-apps-that-are-well-worth-their-price-509701475)，来获得一个真正的 Windows 新版本。*
 
-Watch
+
 
 [](http://lifehacker.com/tag/blast-from-the-past)**是 Lifehacker 的一个每周专题，我们在其中恢复旧的，但仍然相关的帖子，供你阅读和黑客乐趣。这篇文章最初是在 Windows 8 发布之前发表的，但现在* [*Windows 10 将在发布时免费*](http://lifehacker.com/the-best-windows-10-and-xbox-updates-microsoft-announce-1680904614) *，这是将这 100 美元用于一些真正的软件升级的最佳时机。**
 

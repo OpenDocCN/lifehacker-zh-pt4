@@ -4,7 +4,7 @@
 
 在每次谈话中，我都会分析对方的一切。我看着他们的眼睛，观察肢体语言，倾听不同的关键词。我从每一次社交活动的言外之意中进行解读，从不相信任何表面现象。这让生活变得更加困难。
 
-Watch
+
 
 为 Lifehacker 写作让我学到了很多关于社交的东西。我知道如何 [观察谎言](https://lifehacker.com/how-to-detect-when-someones-lying-and-get-them-to-tell-5959952)[阅读肢体语言](http://lifehacker.com/how-to-read-body-language-to-reveal-the-underlying-trut-5852572)[发现谬误](http://lifehacker.com/how-to-prime-your-bs-detection-skills-before-the-presid-5948535) 。这些都是有用的技巧，但是当我在每次谈话中这样做时，我会想太多。
 

@@ -4,7 +4,7 @@
 
 2014 年 1 月 17 日，小姐姐意外去世。她才 46 岁。在那个周五下午的晚些时候，我接到了电话，当时我正在结束我的工作日，并计算出下周的最后期限。
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](http://www.themuse.com/advice/grief-at-the-office-how-to-deal-with-the-worst-when-you-still-have-to-work) ***。*T15】**
 

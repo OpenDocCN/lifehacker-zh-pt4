@@ -4,7 +4,7 @@
 
 系统管理员每天都需要为各种各样的问题做好准备。读者克里斯·柯林斯分享了他整理得很好的包，帮助他做到了这一点。
 
-Watch
+
 
 包里是一个 [新秀丽氙气 2 个](http://www.amazon.com/Samsonite-Xenon-Backpack-Case-Black/dp/B007B5POVC/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-system-administrators-organized-backpack-1631965675&asc_source=&ie=UTF8&keywords=samsonite xenon 2&qid=1410193121&sr=8-1&tag=kinjalifehackerlink-20) 。这是里面的内容:
 

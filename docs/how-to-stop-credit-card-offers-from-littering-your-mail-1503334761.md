@@ -4,7 +4,7 @@
 
 两年前不知不觉进行了一个实验。我的丈夫和我喜欢旅行，我想签署一个信用卡提供给你免费机票。所以每次收到邮件，我都会把它放在我桌子上的一摞里。
 
-Watch
+
 
 ***本帖原载于***[***ReadyForZero***](http://blog.readyforzero.com/how-do-i-stop-credit-card-offers-from-littering-my-mailbox/)***。**T15】*
 

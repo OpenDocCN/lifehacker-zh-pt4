@@ -4,7 +4,7 @@
 
 新的窗户技术已经有了很大的进步，一套新的窗户可以让你的家更加节能。以下是您在购买新窗户时应该考虑的主要功能和样式。
 
-Watch
+
 
 窗户经常被损坏，必须经受强风、暴雨和冰冻的雪和冰。经年累月，天气会在你的窗户上留下痕迹。但是 [这里或那里](https://lifehacker.com/how-to-check-your-windows-and-doors-for-costly-air-leak-1424223260) 的通风不应该迫使整个窗户更换——从 [改善你窗户周围的挡风雨条](https://lifehacker.com/drafty-how-to-seal-your-windows-and-doors-from-the-col-5955246) 开始，这应该在能量损失方面产生巨大的差异。
 

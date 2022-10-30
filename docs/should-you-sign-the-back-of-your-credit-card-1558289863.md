@@ -4,7 +4,7 @@
 
 在你的信用卡上签名，写上“看身份证”，还是留空，这有什么关系吗？有很多关于你应该在你的卡背面做些什么来保证它的安全的谣言。塑料爱好者在 [*栈交换*](http://superuser.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=money-112) *回答你的问题。*
 
-Watch
+
 
 获得新信用卡时，关于背面签名的政策是什么？我应该签字吗？应该写“见 ID”吗？我应该留空白吗？我应该签上*和*写上“见 ID”吗？
 

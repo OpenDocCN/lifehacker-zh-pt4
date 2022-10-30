@@ -4,7 +4,7 @@
 
 Android 可能是一个伟大的操作系统，但它也有其主要的烦恼。我们问你[Android 上你最讨厌](https://lifehacker.com/what-are-your-biggest-android-annoyances-1486270773) 的什么 bug。从电池寿命到垃圾软件等等，以下是解决一些最常见问题的最佳方法。
 
-Watch
+
 
 ### 延长糟糕的电池寿命
 

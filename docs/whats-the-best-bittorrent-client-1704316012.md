@@ -4,7 +4,7 @@
 
 BitTorrent 仍然是下载大文件、Linux 发行版、游戏补丁等的首选方法，而不需要排队等待缓慢的 HTTP 下载。真正的问题是你用哪个应用程序来获取这些文件。本周，我们想听听你的最爱。
 
-Watch
+
 
 自从 [我们上次看到最好的 BitTorrent 客户端](https://lifehacker.com/five-best-bittorrent-clients-5813348) 以来，BitTorrent 的前景已经发生了很大的变化，虽然一些流行的名字仍然存在，但其他人已经离开，新的、更精简的选择已经到来。你觉得哪个是全能最好的？
 

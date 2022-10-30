@@ -4,7 +4,7 @@
 
 在所有 [的谷歌大 I/O 新闻](https://lifehacker.com/all-the-important-stuff-google-announced-at-i-o-2015-1707454800) 中，该公司悄悄对 Chrome 的密码管理器进行了一次大检修。它现在是改进后的 [智能锁](http://get.google.com/smartlock/) 服务的一部分，如果你还没有开始使用一个安全的应用程序来存储你的密码，这是给你的。
 
-Watch
+
 
 ### 有什么新东西？
 

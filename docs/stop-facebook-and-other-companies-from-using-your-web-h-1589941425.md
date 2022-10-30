@@ -4,7 +4,7 @@
 
 我们已经知道脸书 [正在跟踪我们在网上的一举一动](https://lifehacker.com/facebook-is-tracking-your-every-move-on-the-web-heres-5843969) ，就像其他人 一样 [，但是现在这个社交网络说它将使用来自我们访问的其他网站和我们使用的应用程序的数据来提供更多相关的广告。如果你想退出这个增强的行为目标，有一个表格。](http://lifehacker.com/everyones-trying-to-track-what-you-do-on-the-web-heres-5887140)
 
-Watch
+
 
 到目前为止，脸书的广告大多来自你在脸书做的事情和你(或你的朋友)喜欢的东西。在 [今天](http://newsroom.fb.com/news/2014/06/making-ads-better-and-giving-people-more-control-over-the-ads-they-see/) 的一份公告中，脸书表示将开始包括来自其他地方的信息，解释如下:
 

@@ -4,7 +4,7 @@
 
 [模糊痕迹理论](http://en.wikipedia.org/wiki/Fuzzy-trace_theory) 只是一个相当简单的想法的一个听起来奇怪的名字。简单来说，这个想法就是人们形成两种不同类型的记忆。
 
-Watch
+
 
 ***这个帖子最初出现在*** [***这个简单的美元***](http://www.thesimpledollar.com/fuzzy-trace-theory-and-your-money/) ***。**T15】*
 

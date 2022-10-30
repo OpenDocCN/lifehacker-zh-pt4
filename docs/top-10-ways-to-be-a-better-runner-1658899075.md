@@ -4,7 +4,7 @@
 
 跑步是获得良好有氧运动的最简单方法之一(当僵尸启示录袭击 时，这是一项重要的 [技能)。无论你是刚刚开始跑步还是已经跑完了马拉松，这里有一些技巧和窍门可以让你充分利用跑步时间。](https://lifehacker.com/top-10-survival-tricks-for-when-the-zombie-apocalypse-h-5828336)
 
-Watch
+
 
 ### 10.买双合适的跑鞋
 

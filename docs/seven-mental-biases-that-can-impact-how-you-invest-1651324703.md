@@ -4,7 +4,7 @@
 
 即使是专业的市场分析师也很难找出可能解释市场涨跌的力量。但有一件事似乎是无可争议的:在投资方面，并不缺乏脑力。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/2014/10/psychology-of-investing/)***。**T15】*
 

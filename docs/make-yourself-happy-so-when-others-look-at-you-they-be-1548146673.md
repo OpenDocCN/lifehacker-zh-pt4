@@ -4,7 +4,7 @@
 
 今天是联合国国际幸福日。这是一个反思我们自己幸福的好时机——也是思考幸福如何影响他人的好时机。
 
-Watch
+
 
 上面的引文，由 Flickr 上的 Symphony of Love 发布，出自 [Yogi Bhajan](http://www.yogibhajan.org/main/) :“让自己如此快乐，这样当别人看着你的时候，他们也会变得快乐。”
 

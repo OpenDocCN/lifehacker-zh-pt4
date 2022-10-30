@@ -4,7 +4,7 @@
 
 作为一名艺术总监，你必须为各种情况做好准备，但这并不意味着你必须带着一吨垃圾。Alain Baburam 的这个包展示了一些方法，让事情变得简单，同时又能为不同的情况做好准备。
 
-Watch
+
 
 包里是一个 [马鞍皮中号公文包](http://www.amazon.com/Saddleback-Leather-Classic-Briefcase-Chestnut/dp/B001KIWAHW?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-art-directors-everyday-bag-1575128611&asc_source=&tag=kinjalifehackerlink-20) 。这是里面的内容:
 

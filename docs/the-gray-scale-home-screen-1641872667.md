@@ -4,7 +4,7 @@
 
 它可能比你典型的单色杰作更加丰富多彩，但灰度是我的彩色屏幕用户 [Peszec](http://mycolorscreen.com/peszek/) 称之为这种设计的，它在直角上很重，( [相对而言](http://lifehacker.com/the-purple-home-screen-1633749004) )在颜色上很轻。
 
-Watch
+
 
 这个主屏幕是为自定义启动器主题设计的。要获得它，请下载。zip 文件，然后按照以下说明操作:
 

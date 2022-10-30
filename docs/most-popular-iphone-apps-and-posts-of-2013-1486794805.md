@@ -4,7 +4,7 @@
 
 2013 年对于苹果的 iPhone 和 iPad 来说是巨大的一年。新的硬件带来了新的软件，不管你喜不喜欢，iOS 7 改变了我们使用 iPhone 的方式。以下是今年最受欢迎的 iOS 相关帖子。
 
-Watch
+
 
 今年我们讨论了 [破解你的手机](https://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-5771943)[屏蔽来电](http://lifehacker.com/how-can-i-block-a-number-from-calling-my-cellphone-5602865) 和 [修复所有与 iOS 7 相关的烦恼](http://lifehacker.com/ios-7s-biggest-annoyances-and-how-to-fix-them-1334420963) 。
 

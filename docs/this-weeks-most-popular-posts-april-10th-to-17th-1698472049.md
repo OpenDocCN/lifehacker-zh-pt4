@@ -4,7 +4,7 @@
 
 本周我们 [变得更加善解人意](https://lifehacker.com/emotional-intelligence-the-social-skills-you-werent-ta-1697704987)[更多地谈论了强密码](http://lifehacker.com/edward-snowden-explains-why-you-should-use-passphrases-1696958545)[谈到了六块腹肌](http://vitals.lifehacker.com/how-getting-a-six-pack-changes-your-life-and-how-it-do-1696896251)[像专家一样在农贸市场导航](http://skillet.lifehacker.com/what-i-learned-from-years-of-shopping-at-farmers-marke-1696890959) 。这里回顾一下。
 
-Watch
+
 
 ## [情商:学校里没教过的社交技能](http://lifehacker.com/emotional-intelligence-the-social-skills-you-werent-ta-1697704987)
 

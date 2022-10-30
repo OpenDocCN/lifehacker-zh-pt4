@@ -4,7 +4,7 @@
 
 对于许多开发人员、网页设计人员、作家以及只是想快速记笔记的人来说，不起眼的文本编辑器是一个不可或缺的工具。但是有比 notepad.exe 更好的选择； [我们最喜欢的](https://lifehacker.com/five-best-text-editors-1564907215) 之一就是 [记事本++](https://notepad-plus-plus.org/) 。
 
-Watch
+
 
 早在 2003 年，软件工程师 [唐何](https://notepad-plus-plus.org/contributors/author.html) 对他在工作中使用的源代码编辑器不满意，并决定接受制作更好的东西的挑战。Notepad++已经成为许多用户寻找比你的操作系统的默认文本编辑器更丰富的功能，比更臃肿的选项更好的性能的主要工具。我们采访了唐，了解这款应用背后的故事。
 

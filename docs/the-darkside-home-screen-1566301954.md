@@ -4,7 +4,7 @@
 
 Android:虽然它既不吸引天行者，也不与超人战斗，但这个黑暗面主题不仅引人注目，而且使用起来很简洁。它使用一个独特的拨号式界面将所有东西放在一个地方。
 
-Watch
+
 
 该设计是主题中包含的主屏幕之一，您可以在此 下载 [。Darkside 将手机的大部分功能都放在了表盘上(Nest 的粉丝肯定会很欣赏这一点)。](https://play.google.com/store/apps/details?id=com.mycolorscreen.themer)
 

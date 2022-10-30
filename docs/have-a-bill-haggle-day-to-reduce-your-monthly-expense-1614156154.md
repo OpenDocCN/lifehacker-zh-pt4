@@ -4,7 +4,7 @@
 
 我们之前说过，减少你的账单 [的最好方法之一是询问](https://lifehacker.com/reduce-your-bills-by-just-asking-5127638) 。当然，我们中的许多人不想花时间给每一家欠钱的公司打电话。这就是为什么它可能有助于为这项任务留出一天。
 
-Watch
+
 
 个人金融作家(也是 Lifehacker 在 [的撰稿人，两美分](http://twocents.lifehacker.com/) ) Kristin Wong 建议设立一个“账单砍价日”拿着你的账单和他们各自的联系方式坐下来，打电话给他们，看看你能节省些什么。你可能不能保证省钱，但效果是持久的:
 

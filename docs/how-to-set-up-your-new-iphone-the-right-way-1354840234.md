@@ -4,7 +4,7 @@
 
 你有一部新的 iPhone！可能是稍微大一点的 iPhone 6 或者更大的——还是 6 Plus。不管怎样，现在怎么办？无论你是第一次使用 iPhone 还是 iOS pro，以下是你开始使用新 iPhone 所需要的。
 
-Watch
+
 
 ### 充电尖端
 

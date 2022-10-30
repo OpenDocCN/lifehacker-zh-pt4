@@ -4,7 +4,7 @@
 
 杰森·希尔瓦 很难被贴上标签——他被称为未来主义者、“思想 DJ”、行为哲学家等等。他广受欢迎的视频系列 [是对科学和哲学的电影探索，他还主持了国家地理频道的](https://gizmodo.com/philosophy-web-series-shots-of-awe-will-blow-your-mind-509498141) [智力游戏](http://braingames.nationalgeographic.com/episode/0/) 。
 
-Watch
+
 
 毫无疑问，杰森有着折中的理想和抱负以及独特的职业道路；他是如何取得如此多的成就的？我们采访了 Jason，了解他的背景、方法和工作方式。
 

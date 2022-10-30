@@ -4,7 +4,7 @@
 
 苹果 [刚刚发布了](http://9to5mac.com/2014/07/21/apple-seeds-revamped-itunes-12-and-os-x-yosemite-preview-4-to-developers/) 最新版本的 OS X Yosemite，包括一个全新的 iTunes。只是有点反高潮。12.0 版本确实看起来很像 11.3 版本，也就是你电脑上可能有的版本。但是它还是有一些可爱的小东西。
 
-Watch
+
 
 当然，你首先会注意到的是新图标。为红色欢呼！还是粉色的？
 

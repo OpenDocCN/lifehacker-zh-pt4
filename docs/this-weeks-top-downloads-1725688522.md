@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [“酒吧轮盘赌”送你去你所在地区随机的顶级酒吧](http://lifehacker.com/bar-roulette-sends-you-a-ride-to-a-random-top-rated-bar-1724223518)
 

@@ -4,7 +4,7 @@
 
 终生热爱和学习天赋的基础很可能是扎实的词汇。丰富的词汇有助于培养理解、交流和阅读能力。这就是为什么父母应该尽力帮助孩子学习新单词。
 
-Watch
+
 
 这似乎是常识，但是可以帮助孩子扩大词汇量的简单活动在日常生活中经常被搁置。考虑这些经常被忽视的方法来帮助你的孩子在未来几年里发展令人印象深刻的词汇 。不管喜欢与否， [你是他们的老师](https://lifehacker.com/how-to-teach-young-kids-budgeting-habits-early-on-1528970036)[生活的方方面面](http://lifehacker.com/how-are-you-teaching-your-kids-to-be-safe-online-1620114518) ！
 

@@ -4,7 +4,7 @@
 
 如果你和我们一样，你生活的钥匙就藏在 Gmail 的墙壁里。遵循一些简单的准则，确保它们是安全的。网络应用专家在[*Stack Exchange*](http://webapps.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=webapps-106)*提供一些必须遵循的提示。*
 
-Watch
+
 
 我看过很多关于人们失去对谷歌账户，尤其是 Gmail 的控制的恐怖故事。我如何防止同样的事情发生在我身上？在我失去对帐户的控制之前，我可以采取什么步骤来保护我的帐户？
 

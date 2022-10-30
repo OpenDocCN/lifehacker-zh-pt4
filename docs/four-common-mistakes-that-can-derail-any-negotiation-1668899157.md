@@ -4,7 +4,7 @@
 
 无论你是在 [为一辆车](https://lifehacker.com/the-best-techniques-for-negotiating-with-car-dealership-1649443251) 的交易讨价还价，还是试图 [获得你想要的薪水](http://lifehacker.com/how-to-negotiate-your-salary-1566202988) ，在各种情况下，你都会发现自己在为你想要的东西——或者你不想给的东西——讨价还价。如果你记住这些常见的错误，你就能提高你的谈判技巧并取得成功。
 
-Watch
+
 
 我职业生涯的大部分时间都在谈判和训练人们谈判。一路走来，我犯了很多错误，并了解到谈判往往可以通过实际做与我最初想做的相反的事情来改善。以下是一些常见的错误。
 

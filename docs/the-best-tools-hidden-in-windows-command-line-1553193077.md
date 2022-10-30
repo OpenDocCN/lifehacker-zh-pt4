@@ -4,7 +4,7 @@
 
 虽然在 Windows 中它可能不总是最好的选择，但是有些事情你只能从命令行来做。我们之前已经讨论过一些命令行要点，比如使用 [tracert](https://lifehacker.com/how-to-troubleshoot-a-flaky-internet-connection-5319976) 对易断的互联网连接进行故障排除，以及使用 [recimg](http://lifehacker.com/how-to-create-custom-windows-8-install-and-refresh-disc-1433371693) 创建自定义的 Windows 恢复映像。这里还有一些你可能应该知道的(如果你还不知道的话)。
 
-Watch
+
 
 在本文中，我们使用 Windows 8.1 进行截图和详细描述，但这些工具中的大部分已经存在很长时间了，在 Windows 的以前版本中也可以使用。如果您对它们是否可用或选项是否不同有任何疑问，只需打开命令提示符并键入命令后跟`/?`。这将让您知道该命令是否存在，以及可以使用哪些选项。
 

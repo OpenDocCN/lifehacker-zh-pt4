@@ -4,7 +4,7 @@
 
 太阳升起来了！晨间时光刚刚成为你新的最好的朋友。不管你喜不喜欢，利用早晨上班前的时间可能是成功和健康生活方式的关键。没错，早起是许多首席执行官、政府官员和其他有影响力的人的共同特征。
 
-Watch
+
 
 ***本帖原载于*** [***【福布斯】***](http://www.forbes.com/sites/jennifercohen/2013/10/02/5-things-super-successful-people-do-before-8-am/) ***。**T15】*
 

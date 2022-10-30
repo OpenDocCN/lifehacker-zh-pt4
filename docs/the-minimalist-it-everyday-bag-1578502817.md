@@ -4,7 +4,7 @@
 
 仅仅因为你身处其中，并不意味着你必须一直带着一大堆小玩意。事实上，对于读者尼古拉斯·摩尔来说，垃圾越少越好。
 
-Watch
+
 
 摩尔把所有东西都放在一个 [赫歇尔突击测验袋](http://shop.herschelsupply.com/collections/pop-quiz-backpack/products/pop-quiz-backpack-red) 里。这是里面的内容:
 

@@ -4,7 +4,7 @@
 
 当然，你现在喜欢你最喜欢的业余活动，但是当它成为你唯一的收入来源时，你还会喜欢吗？把你的爱好变成一项事业是一个重大的决定，在冒险之前，你需要问自己几个问题。
 
-Watch
+
 
 ***本帖原载于***[***Inc***](http://www.inc.com/jessica-stillman/should-you-turn-your-hobby-into-a-business-5-questions-to-ask.html)***。**T15】*
 

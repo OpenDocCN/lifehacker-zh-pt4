@@ -4,7 +4,7 @@
 
 当 iOS 7 发布时，iPhone 4 用户经历了一次相当剧烈的减速，在很多情况下导致设备几乎无法使用。谢天谢地，据 Ars Technica 报道， [刚刚发布的 iOS 7.1](https://lifehacker.com/ios-7-1-is-out-with-siri-update-visual-tweaks-and-car-1540537421) 修复了一堆问题，让 iOS 7 实际上可以在 iPhone 4 上工作。
 
-Watch
+
 
 iOS 7 缺少了 iPhone 4 的一系列功能，但它仍然运行得很糟糕。用户抱怨性能不稳定，动画效果不佳，应用程序整体加载缓慢。在包括上图在内的详尽分析中，Ars Technica 是这样说的:
 

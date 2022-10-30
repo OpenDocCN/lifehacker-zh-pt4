@@ -4,7 +4,7 @@
 
 无论你有多禅，都很难专注于你面前的工作——尤其是当它是你不想做的事情时。不幸的是， [即使是短暂的分心](https://lifehacker.com/research-shows-how-much-a-three-second-distraction-can-5974976) 也会影响你的工作效率，所以这里有 10 条建议可以帮助你在最重要的时候开始工作。
 
-Watch
+
 
 ### 10.安排你的一天
 

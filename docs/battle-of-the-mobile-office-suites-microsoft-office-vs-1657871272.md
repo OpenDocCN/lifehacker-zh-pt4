@@ -4,7 +4,7 @@
 
 今年，微软已经为 [iPad](https://lifehacker.com/microsoft-announces-office-on-ipad-finally-availabl-1552946509) 、iPhone、 [提供了 Office 预览版，甚至将价格降至免费](http://lifehacker.com/microsoft-office-comes-to-iphones-android-preview-avai-1655406548) 。与此同时，谷歌 Drive 及其相关应用一直在开发新功能。今天，我们在移动端比较这两者。
 
-Watch
+
 
 通常情况下，你不会在旅途中做大量办公室类型的工作，但我们都有需要这样做的情况。无论是做笔记还是在电子表格中添加费用，离开手机(尤其是 [平板电脑](https://lifehacker.com/how-tablets-are-actually-great-productivity-tools-5779982) )时编辑的能力总是很方便。我们想看看哪个套件最适合这一点，所以我们假设，当你不专门在手机或平板电脑上写作时，你会想要尽可能多的选择。
 

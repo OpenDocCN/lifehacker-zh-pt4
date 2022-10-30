@@ -4,7 +4,7 @@
 
 如果你想在家里更得心应手，YouTube 是一个很好的资源。无论你是在处理简单的维修还是大的改进项目，这些 YouTube 频道都提供了精彩的视频教程，可以节省你的时间、金钱和挫折。
 
-Watch
+
 
 #### [房屋修缮](https://www.youtube.com/user/HouseImprovements)
 

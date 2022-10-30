@@ -6,7 +6,7 @@
 
 无论你是一个多么冷静的人，开车都会让我们表现出最坏的一面。也许这是装在有轮子的钢制箱子里的个人盔甲，但公路狂怒与普通的老式狂怒感觉不一样。让我们来看看这是为什么。
 
-Watch
+
 
 我们在过去的 中已经谈了很多关于 [管理狂怒的问题，但就像](https://lifehacker.com/how-to-manage-your-seething-rage-productively-1453235396) [电子游戏《愤怒》](https://lifehacker.com/how-to-deal-with-your-video-game-induced-anger-1701348056) 一样，公路狂怒是它自己的特殊野兽。即使是我们当中最冷静的人，交通也会引发脾气。与正常的愤怒不同，你不能离开、离开或休息一下来减压。当你在车里的时候，你只需要继续关注。另外，有各种各样的压力会导致路怒症。也许你只是 [过了糟糕的一天](https://lifehacker.com/the-science-behind-having-a-bad-day-and-how-to-solve-5595104) 。坐在静止的车流中，你会意识到当你在排队等候的时候，你的生命中有多少时光正在流逝。路怒症唤起了一些完全不同的东西，因为它让我们处于不寻常的情况。
 

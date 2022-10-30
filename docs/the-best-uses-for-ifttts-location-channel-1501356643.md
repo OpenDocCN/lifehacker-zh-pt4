@@ -4,7 +4,7 @@
 
 上个月，webapp 自动化服务， [如果这个那么那个](https://ifttt.com/) 在其 iOS 应用中增加了一个 [新位置频道](https://lifehacker.com/ifttt-for-iphone-adds-a-new-location-channel-1481934127) 。这使得你可以在进入或离开某个特定区域时触发不同的配方。这是一个很有潜力的奇妙特性，所以这里有一些我们到目前为止最喜欢的用法。
 
-Watch
+
 
 ### 羞于吃得更好
 

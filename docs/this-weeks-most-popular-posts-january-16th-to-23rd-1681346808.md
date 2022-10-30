@@ -4,7 +4,7 @@
 
 本周我们 [给了有抱负的开发者一些建议](http://lifehacker.com/what-i-wish-i-knew-when-i-started-my-career-as-a-softwa-1681002791)[揭穿了一些关于肌肉酸痛的神话](http://vitals.lifehacker.com/why-your-muscles-get-sore-and-what-you-can-do-about-it-1680937155)[谈到了艰难的人生抉择](http://lifehacker.com/top-10-difficult-decisions-youll-make-in-life-and-how-1680005733)[窥探了即将到来的 Windows 10](http://lifehacker.com/the-best-windows-10-and-xbox-updates-microsoft-announce-1680904614) 。这里回顾一下。
 
-Watch
+
 
 ## [当我开始我的软件开发职业生涯时，我希望我知道什么](http://lifehacker.com/what-i-wish-i-knew-when-i-started-my-career-as-a-softwa-1681002791)
 

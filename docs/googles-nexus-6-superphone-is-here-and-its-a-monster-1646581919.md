@@ -4,7 +4,7 @@
 
 千呼万唤的( [和传闻已久的](http://gizmodo.com/nexus-6-rumor-roundup-everything-we-think-we-know-1640839980) ) Nexus 6，6 英寸(技术上 5.96)的怪兽平板手机， [终于，正式在此](http://www.google.com/nexus/6/) 。Nexus 6 与其之前的前辈一样，将是世界上第一款搭载安卓新操作系统 [Lollipop](https://gizmodo.com/android-lollipop-more-than-just-material-design-1646643103) 的设备。这是对安卓手机应该是什么样子的最纯粹的想象。显然 Android 手机应该是巨大的。
 
-Watch
+
 
 正如所有这些传言所暗示的那样，Nexus 6 基本上是一款超大尺寸、超规格的 Moto X，由摩托罗拉在今年夏天发布的。它配备了一个简单的 5.96 英寸 2K 屏幕，一个快速的骁龙 805 处理器，3GB 的内存和 32GB 的板载存储(也有 64GB 的版本)。该设备重约 6.49 盎司，厚度为 10 毫米， [使其成为你能买到的最厚的平板电脑之一](http://gizmodo.com/how-googles-massive-nexus-6-stacks-up-to-the-competitio-1646669896) 。这一大部分可能是由于谷歌继续在其设备中无线 Qi 充电的可怕传统。Nexus 6 由 3，220 毫安时的电池供电，由摩托罗拉的涡轮充电器支持，仅充电 15 分钟即可获得 6 小时的电池寿命。
 

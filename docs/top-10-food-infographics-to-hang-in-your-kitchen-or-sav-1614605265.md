@@ -4,7 +4,7 @@
 
 有时候，图表或信息图是沟通复杂话题的最佳方式——比如 [牛肉的不同切法是什么](https://lifehacker.com/this-guide-to-cuts-of-beef-makes-sure-you-re-never-conf-5993235) (以及如何烹饪)和 [如何纠正常见的烹饪错误](http://lifehacker.com/learn-about-and-solve-three-common-cooking-mistakes-wit-5904655) 。以下是我们在 Lifehacker 上分享的一些最值得保存或打印的食物图片。
 
-Watch
+
 
 ### 10.让你吃饱并防止能量崩溃的食物
 

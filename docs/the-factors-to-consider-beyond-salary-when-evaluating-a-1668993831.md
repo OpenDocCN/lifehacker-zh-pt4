@@ -4,7 +4,7 @@
 
 一旦你得到了一份新工作，你可能会认为这个过程已经结束了。但真的是这样吗？并不是所有的工作都是平等的，获得一份新工作的目标(通常)是改善你的处境。因此，工作机会必须仔细评估，以确保你的目标，个人财务和其他方面都得到满足。
 
-Watch
+
 
 ***本帖最初出现在*** [***慢慢变富***](http://www.getrichslowly.org/blog/2014/12/08/consider-more-than-salary-when-evaluating-a-job-offer/?WT.qs_orc=HAC) ***。**T15】*
 

@@ -4,7 +4,7 @@
 
 尽管我经营着一个优惠券网站，这个网站是我在 12 年前 [创办](http://www.threethriftyguys.com/2013/02/how-to-start-an-online-business-on-a-shoestring-budget/) 的，但我从来没有叠过优惠券。这主要是因为我不知道哪些零售商会让你叠优惠券。我是个优惠券呆子，是吧？
 
-Watch
+
 
 ***本帖原载于***[](http://www.rather-be-shopping.com/blog/2013/11/20/maximize-savings-which-retailers-let-you-stack-coupons/)*****。**T15】***
 

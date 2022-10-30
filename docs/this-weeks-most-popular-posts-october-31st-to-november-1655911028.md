@@ -4,7 +4,7 @@
 
 本周我们 [挖到了 VLC 最好的隐藏特征](https://lifehacker.com/the-best-hidden-features-of-vlc-1654434241)[找到了更好的煮蛋方法](http://lifehacker.com/top-10-better-ways-to-cook-an-egg-1653374544)[挑了几副墨镜](http://lifehacker.com/this-chart-helps-you-choose-the-best-sunglasses-for-yo-1653265155)[调试了我们的大脑](http://lifehacker.com/how-to-debug-your-brain-and-build-better-habits-1654118579) 。这里回顾一下。
 
-Watch
+
 
 ## VLC 最好隐藏的特征
 

@@ -4,7 +4,7 @@
 
 我们之前已经强调过一些 [Okubax](https://www.flickr.com/photos/okubax/) 的桌面，但是这个桌面的简单吸引了我们。一些简单的工具放在中间和外围，一张纯色的壁纸可以打造一个简单而优雅的桌面。他是这样设计的。
 
-Watch
+
 
 Okubax 的桌面与之前的 [晴空桌面](http://lifehacker.com/the-clear-skies-desktop-1613651245) 有很多共同之处，但有更多的激光聚焦——以及 Okubax 运行的是 Arch Linux，而不是 Ami 的 Ubuntu。如果您希望您的 Linux 系统看起来像这样，无论您运行的是什么发行版，您都需要:
 

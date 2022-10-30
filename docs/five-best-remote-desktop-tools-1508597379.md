@@ -4,7 +4,7 @@
 
 当您有一个好的远程桌面实用程序可以依赖时，远程管理您自己的计算机或在不在计算机前的情况下对家庭成员的计算机进行故障诊断会容易得多。本周，我们将根据您的提名，来看看五款最佳远程桌面和管理工具。
 
-Watch
+
 
 我们已经 [讨论了从任何地方远程控制您的电脑](https://lifehacker.com/use-your-computer-from-anywhere-a-guide-to-remote-cont-5902654) 和 [对他人的电脑进行故障排除](http://lifehacker.com/how-do-i-troubleshoot-my-parents-pc-remotely-5846072) ，现在是您发表意见的时候了。自从我们关注远程桌面工具以来已经有一段时间了，现在我们的最爱之一，LogMeIn， [正在取消它的免费服务](http://lifehacker.com/remote-desktop-tool-logmein-is-no-longer-free-1505850872) ，我们认为是时候重新审视这个领域，看看会有什么发现。
 

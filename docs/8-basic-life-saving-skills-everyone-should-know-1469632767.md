@@ -4,7 +4,7 @@
 
 这些年来，我们精选了大量的 [生存](http://lifehacker.com/tag/survival) 和 [MacGyver 提示](http://lifehacker.com/tag/macgyver-tips) 可以帮助你摆脱困境，但是如果你旁边有其他人正在经历紧急情况呢？当有人窒息或晕倒时，不要只是站在那里！知道在这些生死攸关的情况下该怎么做。
 
-Watch
+
 
 在我们开始之前，你应该做的第一件事就是打电话寻求紧急帮助(或者如果有人在附近，确保他们打 911)。然后，在你等待的时候，看看你能做些什么来帮助这个人。此外，也要把你的安全放在首位。正如空乘人员在起飞前强调的那样，当氧气面罩下降时，你 [必须首先保护好你的](https://gizmodo.com/in-flight-emergency-when-the-masks-come-down-5788874)——否则你对其他任何人都没有用。
 

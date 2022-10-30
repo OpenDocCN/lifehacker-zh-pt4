@@ -4,7 +4,7 @@
 
 “一分耕耘，一分收获！”"没有补品，你永远也不会变胖。""仰卧起坐是六块腹肌的关键！"市场上关于健康锻炼的问题和半真半假的说法似乎比明确、确定的事实要多——但仅在美国，锻炼行业就是一个价值数十亿美元的行业，部分建立在销售小工具和 DVD 的基础上，这些小工具和 DVD 对渴望减肥或看起来有吸引力的人有着令人难以置信的宣传。与此同时，好的锻炼计划和简单的真理潜伏在背景中，等待它们发光。所有这些导致了大量关于锻炼的错误信息，虽然每个人的现实都不同，但我们正在挑战一些普遍持有的锻炼神话，我们有科学支持我们。让我们开始吧。
 
-Watch
+
 
 我们已经攻克了 [食物神话](http://lifehacker.com/10-stubborn-food-myths-that-just-wont-die-debunked-by-5847591)[更多的食物神话](http://lifehacker.com/10-more-stubborn-food-myths-that-just-won-t-die-debunk-5856345)[大脑神话](http://lifehacker.com/nine-stubborn-brain-myths-that-just-wont-die-debunked-5867049) ，甚至 [身体神话](http://lifehacker.com/10-stubborn-body-myths-that-just-wont-die-debunked-by-5873922) 。这次是时候来看看锻炼的神话了，我们请来了南卡罗来纳艾肯大学锻炼和运动科学系的副教授布莱恩·帕尔博士来帮我们解决这个问题。这是我们学到的。
 

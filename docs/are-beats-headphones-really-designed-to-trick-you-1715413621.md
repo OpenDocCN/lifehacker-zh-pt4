@@ -4,7 +4,7 @@
 
 上个月，Beats by Dre 耳机在互联网上进行了一次彻底的造渣，在这个 here 博客 上的 [，在拆除华而不实的易拉罐的基础上。这项由专注于硬件初创公司的风险投资机构 Bolt 进行的测试似乎证明了耳机是假的。原来，拆卸本身是基于一个骗局:耳机是假冒的。但正如我们自己拆下的我们非常确定是合法的一对 Beats 所揭示的那样，Bolt 对这些设备的质量没有错。](http://gizmodo.com/how-beats-tricks-you-into-thinking-it-makes-a-premium-p-1712319045#_ga=1.108570626.1425775626.1429542769)
 
-Watch
+
 
 首先是背景故事:6 月 18 日，的一位名叫艾弗里·路易 [的年轻工程师在他公司的博客上贴出了一副旧的 Beats by Dre Solo 高清耳机的拆解图。这篇文章的目的是揭示降低制造成本的一些秘密。耳机制造成本很低，如果你熟悉 Beats 易碎的名声，这应该不会让你感到惊讶。(我会告诉你速度:他们打破了。经常。)](https://medium.com/bolt-blog/how-it-s-made-series-beats-by-dre-154aae384b36)
 

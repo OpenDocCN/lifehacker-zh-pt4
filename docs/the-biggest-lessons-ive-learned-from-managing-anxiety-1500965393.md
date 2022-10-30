@@ -4,7 +4,7 @@
 
 六百万美国人有 [恐慌](http://psychcentral.com/disorders/anxiety/panic.html) 紊乱。四千万人患有 [焦虑症](http://psychcentral.com/disorders/anxiety/) 症。所以，如果你在焦虑中挣扎，你绝对不是一个人。了解别人如何管理自己的焦虑会有所帮助。以下是个人多年来学到的最重要的经验。
 
-Watch
+
 
 ***本帖原载于***[***psych central***](http://psychcentral.com/blog/archives/2014/01/13/the-biggest-lessons-ive-learned-in-managing-my-anxiety/?all=1)***。**T15】*
 

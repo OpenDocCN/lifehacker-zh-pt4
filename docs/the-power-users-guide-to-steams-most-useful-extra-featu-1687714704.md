@@ -4,7 +4,7 @@
 
 Steam 是 PC 上的游戏巨头。虽然每个人都知道 [管理你的游戏库](https://lifehacker.com/how-to-keep-your-overflowing-steam-library-neatly-organ-1352077149) 和 [得到甜蜜的交易](http://lifehacker.com/how-to-make-the-most-of-the-steam-summer-sale-735529736) 很棒，但在表面之下隐藏着大量强大的工具。这里有一些最好的。
 
-Watch
+
 
 Steam 有一系列额外的功能，使它不仅仅是一个游戏管理器，如和 [大画面模式](http://kotaku.com/valve-is-bringing-steam-to-your-tv-today-watch-out-co-5941793) 。你可能听说过这些，但是还有很多其他的隐藏在表面之下，不容易被发现。
 

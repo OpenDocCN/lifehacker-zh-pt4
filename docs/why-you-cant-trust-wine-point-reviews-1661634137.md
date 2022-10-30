@@ -4,7 +4,7 @@
 
 走进一家葡萄酒商店，你很有可能会遇到在你面前兜售葡萄酒评级的展示。一瓶 88 的真的不如一瓶 90 的吗？这实际上是一个微妙的问题，受到个人观点的影响，你可能想要考虑什么样的 [酒最适合](https://lifehacker.com/pair-any-dish-to-a-perfect-wine-with-this-handy-chart-5984696) ，而不是最好的。
 
-Watch
+
 
 ***本帖原载于***[***vine pair***](http://vinepair.com/wine-blog/wine-ratings-industrial-complex/)***。*T15】**
 

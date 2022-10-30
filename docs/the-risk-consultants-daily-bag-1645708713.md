@@ -4,7 +4,7 @@
 
 火灾和风险顾问的工作需要有人快速评估建筑物的风险并帮助改进。这种对细节的关注也转移到了他们的日报上，日报读者克里斯·卡尔顿在这里分享了这一点。
 
-Watch
+
 
 卡尔顿的包是一款 [5.11 急送麦克斜挎包](https://www.amazon.com/dp/B00FD7YN2G?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-risk-consultants-daily-bag-1645708713&asc_source=&linkCode=ogi&psc=1&smid=A3UW6FFMODPQYZ&tag=kinjalifehackerlink-20&th=1) 。这是里面的东西。
 

@@ -4,7 +4,7 @@
 
 有时候，与你关心的人交谈最难的部分是说不。他们可能需要帮助或贷款，或者只是搭车，但你不可能总是能帮助每个人。以下是我从自己的经历中学到的如何对好朋友说不。
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](https://www.themuse.com/advice/how-to-say-no-to-anyone-even-a-good-friend) ***。**T15】*
 

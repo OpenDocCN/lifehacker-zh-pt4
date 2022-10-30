@@ -4,7 +4,7 @@
 
 有时候，少即是多，解决方案架构师兼 Lifehacker 读者 James Steven 的包足够简约，同时还保留了他每天工作所需的一切。
 
-Watch
+
 
 史蒂文的包是一款 [Timbuk2 经典斜挎包 2014](http://www.timbuk2.com/classic-messenger-bag/116.html?dwvar_116_color=6061&dwvar_116_size=8#dwvar_116-4-6061_size%3D8%26dwvar_116-4-6061_color%3D2226) 。这是里面的内容:
 

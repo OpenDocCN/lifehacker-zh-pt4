@@ -4,7 +4,7 @@
 
 一台 [家庭影院电脑](http://lifehacker.com/how-i-built-the-media-center-of-my-dreams-for-under-50-5936546) 让电视比以往任何时候都更方便，但你可能无法获得开箱后的最佳画质。这里有一些改善它的技巧。
 
-Watch
+
 
 当你用蓝光播放器看电影时，你所要做的就是 [校准你的电视](https://lifehacker.com/how-to-calibrate-your-hdtv-for-better-video-quality-in-5858625) 和 [，调整一些高级设置](https://lifehacker.com/enhancement-or-gimmick-your-tvs-advanced-picture-setti-1682343703) 以获得理想的画面。但是家庭影院电脑 增加了很多复杂性，因为它比蓝光播放器有更多的设置和特性。
 

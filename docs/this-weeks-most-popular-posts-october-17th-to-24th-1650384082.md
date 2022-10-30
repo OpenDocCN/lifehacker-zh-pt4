@@ -4,7 +4,7 @@
 
 本周我们 [揭开了 OS X 优山美地](https://lifehacker.com/top-10-hidden-features-of-os-x-yosemite-1646774857)[拗我们的邪肌](http://lifehacker.com/how-to-tap-your-network-and-see-everything-that-happens-1649292940)[发现了一些奇怪的规律](http://lifehacker.com/what-are-some-things-that-are-legal-but-people-think-a-1648959467)[学习了摄影基础知识](http://lifehacker.com/learn-the-basics-of-photography-with-this-interactive-c-1647605577) 。这里回顾一下。
 
-Watch
+
 
 ## [OS X 优山美地](http://lifehacker.com/top-10-hidden-features-of-os-x-yosemite-1646774857)十大隐藏功能 T3】
 

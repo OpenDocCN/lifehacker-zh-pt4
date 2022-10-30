@@ -4,7 +4,7 @@
 
 如果你能理解谚语中的“轮子上的仓鼠”,在你寻求更大的房子或更好的衣服时，科学可以解释为什么。“快乐跑步机”是心理学家所说的我们对更大、更好的快乐的天生渴望——比如更大的房子或更炫的车——每当我们获得加薪或奖金时。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/2014/02/will-that-purchase-really-make-you-happier-3-questions-to-ask-yourself/)***。*T15】**
 

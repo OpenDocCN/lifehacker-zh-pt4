@@ -4,7 +4,7 @@
 
 选购汽车可能是一项繁重的工作，因为你要根据预算权衡自己的需求和愿望，并努力找到最适合自己的汽车。我们来自 Jalopnik 的 [购车博客](http://carbuying.jalopnik.com/) 的朋友可以帮助你回答一些关于买车的问题。
 
-Watch
+
 
 向汤姆·麦克帕兰和塔瓦里什(又名弗雷迪)问好。当他不为 Jalopnik 写作的时候，Tom 经营着[Automatch Consulting](http://www.automatchconsulting.com/)，帮助人们决定购买哪些车辆，并就随后的交易进行谈判，而 Freddy 是一个齿轮头，什么都做。
 

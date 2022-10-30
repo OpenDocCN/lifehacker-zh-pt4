@@ -5,7 +5,7 @@
 亲爱的 Lifehacker，
 你推荐 LastPass 来避免服务被黑客攻击时的问题，但是如果 LastPass 被黑客攻击会发生什么呢？那不就是给了黑客访问我所有账户的权限吗？LastPass 使用安全吗？
 
-Watch
+
 
 真诚的，
 密码保护者

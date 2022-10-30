@@ -4,7 +4,7 @@
 
 没有人想成为一个专业联系人的讨厌或麻烦，特别是当你想从那个人那里得到一份工作、会议、销售收入或其他非常重要的东西的时候。但是普通人一天能收到几百封电子邮件，你的一些信息可能得不到回复。你怎么知道什么时候可以发送后续消息而不惹人讨厌呢？
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](https://www.themuse.com/advice/pleasantly-persistent-5-rules-for-effectively-following-up) ***。**T15】*
 

@@ -4,7 +4,7 @@
 
 现在是仲夏，这意味着你可能会因为查看邮件而汗流浃背。你知道什么感觉会很棒吗？秋天。秋天的岩石。在我们学会加速时间或控制天气之前，这个受秋天启发的主屏幕将不得不这样做。
 
-Watch
+
 
 这个主屏幕是为主题设计的，虽然部分也可以用 [缩放器小工具](https://play.google.com/store/apps/details?id=org.zooper.zwpro) 和 [媒体实用程序](https://play.google.com/store/apps/details?id=com.batescorp.notificationmediacontrols.alpha) 构建。要获得这种外观，请下载。zip 文件，然后按照以下步骤操作:
 

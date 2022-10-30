@@ -4,7 +4,7 @@
 
 你可能已经为紧张的情况做好了准备，如工作面试、重要会议或演示，但在这种情况下，你仍然可能会有些焦虑。那很正常！这里有一些事情你可以试着缓解你的焦虑。
 
-Watch
+
 
 ***本帖原载于*** [***今日心理***](http://www.psychologytoday.com/blog/shyness-is-nice/201302/3-ways-deal-in-the-moment-anxiety) ***。*T15】**
 

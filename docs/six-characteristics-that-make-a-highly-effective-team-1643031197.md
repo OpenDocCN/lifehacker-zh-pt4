@@ -4,7 +4,7 @@
 
 伟大的团队不会凭空出现。那些像拼图一样组合在一起的团队是努力工作和深思熟虑的领导的结果。但是，在组建一个高效团队时，你需要寻找的东西到底是什么？
 
-Watch
+
 
 ***本帖原载于***[***Sandglaz 博客***](http://blog.sandglaz.com/6-charactersitics-highly-effective-team/) ***。*T15】**
 

@@ -4,7 +4,7 @@
 
 Google Now 很棒，但正如定制爱好者(像我们一样)可能期望的那样，它并不完全是调整的最佳选择——最近的 [更新](https://lifehacker.com/google-search-adds-recurring-reminders-conversational-1464201420) 使它更不适合。然而，你可以做很多事情来教会 Google Now 你喜欢和感兴趣的东西。
 
-Watch
+
 
 ### 向 Google 日历活动添加地址
 

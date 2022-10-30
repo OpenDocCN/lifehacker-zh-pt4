@@ -4,7 +4,7 @@
 
 隐藏的邻居！本周，我们烧烤肉类来庆祝夏天，在户外野餐时拍了光线很好的照片，在回家的路上与晕车作斗争，同时学习编码，等等。这里回顾一下。
 
-Watch
+
 
 ## [三分钟完美夏日野炊 10 招](http://lifehacker.com/10-tricks-for-a-perfect-summer-barbecue-in-three-minute-1715384339)
 

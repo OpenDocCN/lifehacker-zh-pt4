@@ -4,7 +4,7 @@
 
 健康的生活并不容易。对于一些人来说，这是自然而然的，但对于那些已经超重的人来说——大到很难甚至很痛苦去做瘦人能做的事情——开始就更难了。以下是一些有用的提示。
 
-Watch
+
 
 从十几岁开始，我就一直在和体重做斗争。不一定是从健康的角度——我一直很健康，但我一直在努力，因为我想看起来更好，感觉更有活力，并获得所有那些 [巨大的好处](https://lifehacker.com/top-10-reasons-to-exercise-regularly-besides-losing-we-1473616982)[健身提供的](http://lifehacker.com/focus-on-the-mental-and-emotional-benefits-of-exercise-5900956) 。然而，当你已经超重了，很多其他人没有尝试就开始的活动要么是不可能的，要么感觉像死了一样。高强度间歇训练？热瑜伽？精神错乱？Crossfit？甚至慢跑？你一定是在开玩笑。
 

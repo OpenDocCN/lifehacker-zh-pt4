@@ -4,7 +4,7 @@
 
 环游世界需要重量和准备的微妙平衡。关于男子气概的艺术，旅游作家 David Danzeiser 分享了他为期一年的 23 个国家之旅。
 
-Watch
+
 
 背包本身就是一个 [汤姆比恩 26 L 智能亚历克斯背包](http://www.tombihn.com/backpacks/TB0103.html) 。这是里面的内容:
 

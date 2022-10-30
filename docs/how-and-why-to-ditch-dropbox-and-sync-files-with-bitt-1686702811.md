@@ -4,7 +4,7 @@
 
 Dropbox(以及类似的云服务)很棒，但是它们不能给你太多的控制权、安全性或文件隐私。如果你想把控制权掌握在自己手中，同时又不失去云同步服务的特性， [BitTorrent Sync](http://www.getsync.com/) 就是为你准备的服务。以下是使用方法。
 
-Watch
+
 
 ### 为什么在 Dropbox 上使用 BitTorrent 同步
 

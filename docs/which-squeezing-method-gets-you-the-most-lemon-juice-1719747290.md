@@ -4,7 +4,7 @@
 
 从 [调味水](http://lifehacker.com/why-you-should-pack-a-lemon-in-your-lunch-bag-1520996419) 到 [烤鱼](http://lifehacker.com/grill-fish-on-a-bed-of-sliced-lemons-to-keep-it-from-st-1696851525) 或 [制作清淡的绿色沙拉](http://skillet.lifehacker.com/how-to-make-a-vinaigrette-that-goes-with-everything-1701361047) ，厨房里有许多场合需要鲜榨柠檬汁。但是有没有从柠檬中提取果汁的“最佳”方法呢？
 
-Watch
+
 
 有无数不同的方法，各种烹饪专家坚持认为是榨柠檬汁的最好方法。一是先将 [的柠檬卷到](http://lifehacker.com/squeeze-more-juice-out-of-lemons-by-rolling-and-crushin-5819369) 的柜台上。或者你可以先用 [微波一下柠檬](http://lifehacker.com/refrigerate-then-microwave-citrus-to-get-the-most-poss-651845002) 。有人说你应该把柠檬切成多块。你甚至可以使用一种工具来完成这项工作，比如一台 [手持式柑橘压机](http://lifehacker.com/how-to-get-the-most-juice-from-a-citrus-fruit-5912243) 。但是什么才是最有效的呢？为了找出是否有确定的答案，我们测试了五种最流行的方法。
 

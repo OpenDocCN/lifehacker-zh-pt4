@@ -2,11 +2,11 @@
 
 > 原文：<https://lifehacker.com/its-been-a-fun-ride-but-im-done-water-cooling-my-pc-1689683422>
 
-[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)) : title[![](../Images/044fbadc98edfd613c34b7c809fe4420.png)](https://pcbuild.kinja.com)[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)Building your own desktop PC is a great, geeky pleasure. We'll show you how to do it and everything you need to know to keep your system properly maintained.
+
 
 在过去的三年里，我一直用 [水冷我的电脑](https://lifehacker.com/a-beginners-guide-to-water-cooling-your-computer-5940236) 以获得超酷、超安静的性能。这是一个有趣的项目，但也非常有压力和昂贵。是时候向前看了。
 
-Watch
+
 
 你们中的一些人多年来一直在关注我的水冷传奇，但现在我有一个简短的故事:我心痒难耐，尝试了一个一体化设备[。痒得更厉害了，我试了一个带套件](http://lifehacker.com/the-corsair-hydro-series-keeps-your-pc-cool-and-silent-5920525) 的 [定制环。套件泄漏了一点(由于我自己的白痴)，但一切正常。我展开了循环，](https://lifehacker.com/a-beginners-guide-to-water-cooling-your-computer-5940236) [它泄露了一个 **lot**](https://lifehacker.com/what-to-do-when-your-water-cooling-leaks-inside-your-pc-1475187833) (由于我自己的白痴)，但是一切都还好。然后...它漏了一点点，虽然不是我的错，但毁了一张 300 美元的显卡。呀。
 

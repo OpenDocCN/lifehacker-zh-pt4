@@ -4,7 +4,7 @@
 
 读者[few cent](http://revolutionaryl524.kinja.com/)向我们的 [桌面展柜](http://kinja.com/desktop-showcase) 提交了这张精美的桌面。没事的时候，它看起来很舒服，而且有足够的工作空间，它的配件都放在旁边。这是你设置它需要的东西。
 
-Watch
+
 
 要像 FewCents 一样将您的桌面提交到我们的桌面展示，只需将它发布到您的 Kinja 博客上，标记为“桌面展示”，我们就会看到它。现在，这是你为自己重新创造这一个所需要的:
 

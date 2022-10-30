@@ -4,7 +4,7 @@
 
 使用大量技术的一个问题是组织它。读者 Chris Hardie 的解决方案是一个简单的电缆组织器和一个便于每天装载的小包。
 
-Watch
+
 
 这个包是一个 [廷巴克 2](http://www.amazon.com/Timbuk2-Command-Laptop-Messenger-Medium/dp/B005HEV52G/ref=sr_1_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-tech-essentials-daily-bag-1723128314&asc_source=&ie=UTF8&keywords=timbuk2 command messenger&qid=1439224908&sr=8-2&tag=kinjalifehackerlink-20)指挥斜挎包。这是里面的内容:
 

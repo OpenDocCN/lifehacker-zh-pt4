@@ -4,7 +4,7 @@
 
 每个人都被自己的梦想和抱负所驱使，但是仔细观察幸福和动力之间的复杂关系可能会给我们一个提示，是什么驱使人们把工作做得最好。快乐会驱动动力吗？
 
-Watch
+
 
 ***本帖原载于***[***Sandglaz 博客***](http://blog.sandglaz.com/complex-relationship-between-happiness-and-motivation/) ***。*T15】**
 

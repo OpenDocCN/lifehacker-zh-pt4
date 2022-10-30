@@ -4,7 +4,7 @@
 
 度假花很多钱并不意味着你会比花钱少的人过得更开心。我已经花了将近十年的时间环游世界，我发现遵循一些简单的建议可以让你轻松地花很少的钱旅行，并且仍然有一个令人惊奇的旅行。
 
-Watch
+
 
 在旅途中省钱需要我们打破旅行昂贵的传统思维模式。这种心态是由建立在人们花费更多金钱基础上的旅游业推动的，它告诉我们需要住在酒店，在世界一流的餐馆吃饭，或者参加旅行团来度过一段美好时光。当然，事实并非如此，而且 [有很多方法可以让你一路顺风](https://lifehacker.com/stretch-your-money-farther-with-these-global-travel-hac-5981738) [而不用花一大笔钱](http://wayfarer.lifehacker.com/how-to-do-laundry-while-traveling-1635633579) 。
 

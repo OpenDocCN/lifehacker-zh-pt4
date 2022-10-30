@@ -4,7 +4,7 @@
 
 昨天，微软公布了最新版本的 Windows[。如今，该公司允许喜欢冒险的用户(比如你)免费试用。以下是方法。](https://lifehacker.com/all-the-new-stuff-in-windows-10-1640838152)
 
-Watch
+
 
 ### 安装前
 

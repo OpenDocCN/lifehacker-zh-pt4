@@ -4,7 +4,7 @@
 
 Chrome 应用商店最近有了很多改进，但谷歌 Chrome 内部的许多应用程序仍然不为人知。考虑到这一点，这里有一些你可能还没看过的我们最喜欢的。
 
-Watch
+
 
 最近，谷歌 [在 Chrome 网上商店](http://gigaom.com/2013/05/01/more-offline-chrome-apps-arrive-chrome-web-store-previews-packaged-apps/) 推送更多离线应用。这意味着它们就像你电脑上的一个应用程序一样运行，但它们完全存在于 Chrome 浏览器中。你可以在 Chromebook 或任何其他安装了 Chrome 的电脑上使用它们。这意味着，当您使用租赁的笔记本电脑或没有太多硬盘空间的电脑工作时，它们会派上用场。
 

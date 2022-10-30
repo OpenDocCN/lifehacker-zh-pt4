@@ -4,7 +4,7 @@
 
 各位万圣节快乐。来一个 kit kat——谷歌对 Android 的最新更新，也就是谷歌刚刚宣布的，以及 [新的 Nexus 5](https://gizmodo.com/nexus-5-a-pure-google-dream-phone-thats-ridiculously-1445522531) 。以下是您需要了解的关于移动操作系统更新的信息。
 
-Watch
+
 
 据谷歌官方博客称，KitKat 将为 Android 带来更智能、更简单的搜索，或许更重要的是，它将向后兼容旧设备，因此每个人都可以享受乐趣。这里有几个比较突出的特征， [，其中很多你其实现在就可以得到](https://lifehacker.com/all-the-new-stuff-in-android-4-4-kitkat-1456286732) 。
 

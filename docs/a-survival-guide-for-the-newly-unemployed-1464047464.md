@@ -4,7 +4,7 @@
 
 无论你刚刚被解雇、下岗，还是你 [光荣辞职](http://newsfeed.time.com/2013/09/30/woman-quits-job-with-interpretive-dance-set-to-kanye-west/) ，失业通常都很糟糕。从政府文书工作到修改你的简历，这是你的生存指南，让你在失业时保持理智、高效和经济上的运转。
 
-Watch
+
 
 ### 第一步:申请失业(如果适用)
 

@@ -4,7 +4,7 @@
 
 马拉松是一个善变的野兽:在 26.2 英里处，厄运的可能性是巨大的。未知的领域可能会带来各种各样无法预料的问题，降低你的目标进度，甚至更糟，但正是从这些问题中，你学会了改进。
 
-Watch
+
 
 ***本帖最初出现在*** [***实力奔跑***](http://strengthrunning.com/2015/02/in-defense-of-dirty-rotten-no-good-marathons-how-to-learn-from-bad-marathons/) ***上。***
 

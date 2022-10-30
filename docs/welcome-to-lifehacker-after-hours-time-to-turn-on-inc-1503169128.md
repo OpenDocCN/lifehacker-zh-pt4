@@ -4,7 +4,7 @@
 
 在 Lifehacker，我们认为自己是乐于助人、注重实践和富有成效的人的大本营...我们从来没有你所说的“急躁”我们从未偏离我们更保守的本性太远。今天，我们正在改变这种情况。
 
-Watch
+
 
 欢迎来到 After Hours，一个新的 Lifehacker 子博客，致力于...我们通常不会在 Lifehacker 上使用的技巧和窍门。有时我们会拒绝一些东西，因为它们对 Lifehacker 的角色来说太 NSFW 了，太两极分化了，或者只是有点太“出位”了当然， [我们已经涉足了这里和那里的](https://lifehacker.com/how-to-practice-safe-sexting-without-resorting-to-digi-698798261)——但是从今天开始，这将是一个让我们更进一步的地方，用一些不是每个人都会感到舒服的东西。如果你一直喜欢 Lifehacker(相对而言)毫无争议的风格...这个博客可能不适合你。
 

@@ -4,7 +4,7 @@
 
 在过去的几年里，拍照手机已经取得了很大的进步，但它们并不总是在第一次尝试时就拍摄出高质量的照片( [，更不用说 DSLR 质量的](https://lifehacker.com/the-differences-between-a-dslr-and-smartphone-camera-i-1540339341) )。以下是如何从智能手机的相机中获取最佳质量照片的方法。
 
-Watch
+
 
 [](http://lifehacker.com/tag/blast-from-the-past)**是 Lifehacker 的一个每周专题，我们在其中恢复旧的，但仍然相关的帖子，供你阅读和黑客乐趣。本周，我们挖掘出一个用智能手机拍出更好照片的老指南。自从我们写下这个指南以来，智能手机相机已经变得更好了，但它的大多数规则仍然适用！**
 

@@ -4,7 +4,7 @@
 
 更高的生产率可能只需要去一趟温室。说真的。办公室植物提供了“微修复”——让我们的大脑一整天都有机会充电。
 
-Watch
+
 
 ***本帖原载于*** [***快公司***](http://www.fastcodesign.com/3021742/evidence/want-to-be-more-productive-buy-some-desk-plants) ***。**T15】*
 

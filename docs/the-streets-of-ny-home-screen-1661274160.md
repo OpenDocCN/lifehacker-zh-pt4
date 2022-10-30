@@ -4,7 +4,7 @@
 
 任何走过纽约街头的人都会感受到这座城市的动感和活力。今天的主屏幕旨在通过一些鲜明的对比和强烈的角度来捕捉这一点。
 
-Watch
+
 
 这种设计对所有发射器都是友好的。您可以从 [这里](http://www.android-tuning.sk/2137/tema-streets-new-york-pre-android/) 安装下载 zip 文件，并按照以下说明进行安装:
 

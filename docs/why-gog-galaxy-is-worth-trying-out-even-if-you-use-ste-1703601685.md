@@ -4,7 +4,7 @@
 
 上周，游戏交易网站 [GOG 发布了他们的银河图书馆应用](https://lifehacker.com/gog-galaxy-is-a-drm-free-steam-alternative-in-open-beta-1702251868) 。个人电脑用户已经拥有 Steam 很长时间了，但 GOG 希望 Galaxy 改善现状。这就是为什么它值得加入你的剧目。
 
-Watch
+
 
 ### **GOG 修复了 Steam 的许多问题**
 

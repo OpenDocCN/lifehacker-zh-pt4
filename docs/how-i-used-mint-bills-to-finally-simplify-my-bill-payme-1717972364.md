@@ -4,7 +4,7 @@
 
 账单烂透了。好像拿走你所有的钱还不够，整理和记忆它们简直是一场噩梦。然而，在我开始使用新钞票后，追踪我的钞票变得容易多了。
 
-Watch
+
 
 我有一个坦白:我真的不怎么用薄荷。尽管是 Lifehacker 推荐的预算软件 之一，我从未发现它有多有用，除了偶尔 [查看我的信用评分](http://twocents.lifehacker.com/you-can-now-check-your-credit-using-mint-1632226208) 或者看看我的汽车贷款余额。另一方面， [Mint Bills](https://bills.mint.com/) 是一个独立于 Mint 的应用程序，有 web、 [iOS、](https://itunes.apple.com/us/app/mint-bills-money/id285056092?mt=8) 和 [Android](https://play.google.com/store/apps/details?id=com.netgate) 三种版本。它允许你接入各种账单公司，为你的到期日创建日历，甚至让你直接从应用程序支付账单。即使你是薄荷本身的忠实粉丝，薄荷钞票提供了大量的功能，可以帮助管理你的各种支付。
 

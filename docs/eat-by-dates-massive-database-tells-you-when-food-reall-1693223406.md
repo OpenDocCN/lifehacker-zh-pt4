@@ -4,7 +4,7 @@
 
 过期日期通常会误导人。 [他们通常指的是质量，而不是安全](https://lifehacker.com/what-do-these-expiration-dates-on-my-food-really-mean-5921708) 。“按日期吃”是一个巨大的食品数据库，它给你真实的保质期，以及许多其他有用的信息。
 
-Watch
+
 
 你可以搜索或浏览一种食品，该网站会告诉你该食品在未开封或存放在冰箱或冰柜中时可以保存多久。
 

@@ -4,7 +4,7 @@
 
 当你参加工作面试时，你问面试官的问题和你的回答一样重要。它们展示了你有多么超前的思维，以及你多么渴望为公司的未来投资。这里有五个很好的问题，可以让你从其他候选人中脱颖而出。
 
-Watch
+
 
 ***本帖原载于***[***LinkedIn***](https://www.linkedin.com/today/post/article/20140623123921-20017018-the-5-best-questions-a-job-candidate-can-ask)***。**T15】*
 

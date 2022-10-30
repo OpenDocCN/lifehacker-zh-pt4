@@ -4,7 +4,7 @@
 
 语音识别正在变得越来越好，它越来越多地不仅仅用于提醒和电子邮件。但是你能用它来帮助你编码吗？也许吧。贫嘴的编码员在 [*栈交换*](http://productivity.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=productivity-113) *处插话。*
 
-Watch
+
 
 我正在寻找用另一种输入形式来增强鼠标和键盘控制的方法。有没有办法用类似 [**龙**](http://www.nuance.com/dragon/index.htm) **的东西来触发宏展开？例如，我可以创建一个语音命令来编写一个循环模板吗？**
 

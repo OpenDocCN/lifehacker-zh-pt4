@@ -4,7 +4,7 @@
 
 在你意识到之前，习惯就形成了。你在日常生活中投入了多少思想，你的日常生活中有多少是对外部影响的反应？换句话说，你知道你为什么这样工作吗？
 
-Watch
+
 
 ***本帖原载于***[***iDoneThis***](http://blog.idonethis.com/post/76204409238/how-fast-web-is-impairing-how-you-think)***。**T15】*
 

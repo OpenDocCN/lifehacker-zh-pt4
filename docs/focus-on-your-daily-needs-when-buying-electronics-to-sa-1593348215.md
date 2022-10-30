@@ -4,7 +4,7 @@
 
 很多人购买高端设备，因为他们认为“有一天”他们可能会需要它们的功能，但如果你只专注于你实际需要做的事情，你可能会节省很多钱。毕竟，你的电子产品不是终身购买的。
 
-Watch
+
 
 ***这个帖子最初出现在*** [***这个简单的美元***](http://www.thesimpledollar.com/my-timeless-strategy-for-buying-electronics/) ***。*T15】**
 

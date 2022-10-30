@@ -4,7 +4,7 @@
 
 好消息！我们最喜欢的网络服务之一——[IFTTT](https://ifttt.com/)——已经更新为 [一些额外的功能](http://lifehacker.com/ifttt-launches-camera-note-button-apps-to-quickly-tri-1686746256#_ga=1.54772777.38431152.1423767038) ，使其比以往任何时候都更有用。新的 Do 应用程序为您的手机(或智能手表)带来了一键式魔力，可用于快速推送照片、触发操作和创建笔记。这里有 15 个展示新工具潜力的配方。
 
-Watch
+
 
 首先，你需要从你的智能手机喜欢的任何门户网站 [安装应用](https://ifttt.com/products) ，并通过所有必需的登录环(如果你还没有创建 IFTTT 账户， [，你就错过了](http://gizmodo.com/tag/ifttt) )。有了它，你就可以专注于创造你的食谱了。
 

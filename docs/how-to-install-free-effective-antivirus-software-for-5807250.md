@@ -4,7 +4,7 @@
 
 任何运行 Windows 电脑的人都知道拥有好的防病毒软件有多重要——但是你不需要为好的保护付费！如果你认识的人还没有运行防病毒软件，这里有一个快速指南，你可以发给他们，帮助他们安装。
 
-Watch
+
 
 该指南最初发布于 2011 年，但我们的建议自那以后有所改变。我们以前最喜欢的微软安全基础软件是 [不再被大多数反病毒测试](http://lifehacker.com/how-much-do-antivirus-rankings-matter-to-you-5964274) 充分评级。如果你是高级用户， [Avast 是我们个人最喜欢的杀毒程序](http://lifehacker.com/the-best-antivirus-app-for-windows-5865356) ，但是它 [需要一些配置](http://lifehacker.com/how-to-disable-avasts-annoying-sounds-and-popups-1530732542) 。对于初学者来说，我对 [Bitdefender 免费版](http://www.bitdefender.com/solutions/free.html) 的推荐不够高。
 

@@ -4,7 +4,7 @@
 
 学生们不得不整天拖着行李去上课，所以他们的书包里往往只装着必需品，仅此而已。举个例子，读者 DgnKoopa 的背包里有他们上学需要的一切(和一点点浪费的时间)，除此之外什么都没有。
 
-Watch
+
 
 这个包是一个 [Eastpak](http://www.eastpak.com/eu-en/backpacks/bestsellers/floid-black2.html) 。这是里面的内容:
 

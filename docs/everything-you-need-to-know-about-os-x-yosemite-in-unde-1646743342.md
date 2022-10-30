@@ -6,7 +6,7 @@
 
 约塞米蒂现在推出了，在这次更新 中有很多 [的新功能，所以让我们来看看所有能帮助你入门的东西。](http://lifehacker.com/all-the-new-stuff-in-os-x-10-10-yosemite-1584870045)
 
-Watch
+
 
 ### 一个新的界面
 

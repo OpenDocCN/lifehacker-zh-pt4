@@ -4,7 +4,7 @@
 
 智能手表在这里！首批 Android Wear 手表的预购从 [LG](http://gizmodo.com/lg-g-watch-review-a-wearable-youll-actually-consider-1598219864) 和 [三星](http://gizmodo.com/samsung-gear-live-review-thats-a-pretty-big-baby-step-1598386417) 今日发货。但是当你的新玩具真的出现时，你能拿它怎么办呢？可以在手腕上获得通知(！)当然，但还有更多来自那里。以下是一些亮点。
 
-Watch
+
 
 除了内置的通知功能——[这本身就很棒](http://gizmodo.com/lg-g-watch-review-a-wearable-youll-actually-consider-1598219864)——第一批可穿戴兼容应用也在这里，在它们之间，你的手腕可以获得一系列超能力，从“棒极了”到“愚蠢但还是有点棒”你所要做的就是在你的手机上安装这个应用程序，不需要在手腕上安装。
 

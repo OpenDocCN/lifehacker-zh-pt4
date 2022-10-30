@@ -4,7 +4,7 @@
 
 当你试图 [整理你的家](https://lifehacker.com/how-to-kick-your-clutter-habit-and-live-in-a-clean-hous-5957609) 时，感性的物品构成了一个困难的挑战。它们占据了宝贵的空间，但是当你想摆脱它们时，你会感到内疚。这里有几个小贴士可以帮助你浏览纪念品，而不会觉得自己像个无情的怪物。
 
-Watch
+
 
 ### 记住你不是由你的“材料”组成的
 

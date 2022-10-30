@@ -4,7 +4,7 @@
 
 本周我们学习了我们拖延的许多方式[，看了一些很棒的超极本](https://lifehacker.com/use-this-flowchart-to-identify-what-type-of-procrastina-1615614759)[得到了空乘人员的青睐](http://lifehacker.com/get-on-a-flight-attendant-s-good-side-by-giving-them-a-1614157054) ，还学习了随着年龄的增长我们的睡眠如何变化。这里回顾一下。
 
-Watch
+
 
 ## [野外生存技巧大家应该都知道](http://lifehacker.com/the-wilderness-survival-skills-everyone-should-know-5881604)
 

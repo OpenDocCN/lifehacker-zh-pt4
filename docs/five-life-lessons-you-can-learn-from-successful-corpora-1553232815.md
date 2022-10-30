@@ -4,7 +4,7 @@
 
 当你想到好的榜样时，企业可能不是你的第一想法，但你可能会惊讶于它们所提供的智慧。毕竟，我们 [经常从他们的领导](http://lifehacker.com/classic-leadership-skills-you-should-apply-to-your-soci-1425624672/all) 那里学到很多东西。一小部分人可以教给我们很多关于如何拥有富有成效、幸福和成功的生活的知识。
 
-Watch
+
 
 ### 谷歌:经常实验
 

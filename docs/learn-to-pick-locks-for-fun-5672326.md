@@ -4,7 +4,7 @@
 
 学习撬锁是一项有趣的练习，可以学习锁的机制，磨练一项有用的技能，并更好地了解锁是如何工作的，以及如何保护或无法保护你和你的东西。
 
-Watch
+
 
 *这篇经典的帖子被重新发布，是我们在 Lifehacker 的* [*邪恶周*](https://lifehacker.com/welcome-to-lifehackers-fifth-annual-evil-week-1647621043) *系列的一部分，在这里我们看到了做事的阴暗面。知道邪恶意味着知道如何打败它，所以你可以用你的邪恶力量做好事。想要更多吗？查看我们的* [*恶周标签页*](http://lifehacker.com/tag/evilweek) *。*
 

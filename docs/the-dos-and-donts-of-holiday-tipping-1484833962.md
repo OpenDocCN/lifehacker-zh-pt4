@@ -4,7 +4,7 @@
 
 你会给环卫工人或邮递员小费吗？咖啡师上假日班怎么样？假日小费的问题让许多人想知道，作为扮演圣诞老人的年度仪式的一部分，该给(或不给)多大(或多小)的小费。
 
-Watch
+
 
 ***本帖原载于***[***DealNews***](http://dealnews.com/features/The-Dos-Donts-of-Holiday-Tipping/929934.html)***。**T15】*
 

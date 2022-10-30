@@ -4,7 +4,7 @@
 
 没有一个认真对待自己硬件的人会买现成的机器；他们挑选符合他们需求的最佳组件——某个显卡、某个 CPU，也许还有一个疯狂的水冷系统来保持冷却。而这里讨论 PC 构建的是 Linus Sebastian，你可能从 [LinusTechTips](https://www.youtube.com/user/LinusTechTips) 中知道他。
 
-Watch
+
 
 在他的 [YouTube 频道](https://www.youtube.com/user/LinusTechTips) 上，Linus 讨论了各种硬件组件以及让你的设备保持计算能力的方法。或者保持在你的预算之内。看你的需求了！无论你是想把你的系统浸泡在矿物油中，还是只是在寻找一个新的显卡，Linus 将在接下来的一个小时里讨论 PC 构建，所以问吧！
 

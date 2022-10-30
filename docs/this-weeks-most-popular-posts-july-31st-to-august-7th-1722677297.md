@@ -4,7 +4,7 @@
 
 本周，我们继续关注 Windows 10 隐私设置和开始菜单定制的细微差别，学习如何像成年人一样喝酒，讨论过于流行的应用程序，等等。这里回顾一下。
 
-Watch
+
 
 ## [Windows 10 的“隐私噩梦”设置到底做了什么](http://lifehacker.com/what-windows-10s-privacy-nightmare-settings-actually-1722267229)
 

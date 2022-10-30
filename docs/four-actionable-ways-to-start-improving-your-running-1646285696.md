@@ -4,7 +4,7 @@
 
 跑步很容易陷入常规，从来没有真正想过改变，但你可能会错过改善的机会。今天，我想分享四种*可行的*方法来提高你的跑步水平。
 
-Watch
+
 
 ***本帖最初出现在*** [***实力奔跑***](http://strengthrunning.com/2013/03/actionable-ways-to-improve-your-running/) ***上。**T15】*
 

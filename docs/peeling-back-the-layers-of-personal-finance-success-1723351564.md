@@ -4,7 +4,7 @@
 
 这些年来，我写了很多关于个人理财的文章，记录了我自己的理财进展和变化，并与无数读者交谈，我发现最有趣的事情之一是，个人理财很像洋葱。一个洋葱？是的，这是关于层次的。
 
-Watch
+
 
 ***这个帖子最初出现在*** [***这个简单的美元***](http://www.thesimpledollar.com/the-money-onion-peeling-back-the-layers-of-personal-finance-success/) ***。***
 

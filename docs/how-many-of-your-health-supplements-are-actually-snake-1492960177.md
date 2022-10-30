@@ -4,7 +4,7 @@
 
 [最近的研究表明](https://gizmodo.com/scientists-say-vitamins-and-minerals-are-a-waste-of-mo-1484902526) 许多维生素和补充剂对我们的健康没有什么好处，而且是在浪费金钱。这张图表将非常清楚地表明这是多么真实。
 
-Watch
+
 
 在这张由 David McCandless 于 2010 年制作的精彩图表中，你可以看到一个华丽的可视化图，显示了多少补充剂实际上是有帮助的——基于科学研究——以及多少补充剂基本上只不过是蛇油。
 

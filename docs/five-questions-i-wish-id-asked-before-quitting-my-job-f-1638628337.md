@@ -4,7 +4,7 @@
 
 我稳定的公司工作在理论上很棒——报酬很高，还能让我周游世界，但它也极其繁重和受限制。我不想成为那个系统中的一个齿轮。我想经营自己的企业，但我从未预料到随之而来的挑战。
 
-Watch
+
 
 ***本帖原载于*** [***中***](https://medium.com/everything-about-startups-and-entrepreneurship/how-quitting-my-corporate-job-for-my-startup-dream-f-cked-my-life-up-3b6b3e29b318) ***。**T15】*
 

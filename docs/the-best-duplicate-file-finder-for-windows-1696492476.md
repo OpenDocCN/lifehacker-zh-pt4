@@ -4,7 +4,7 @@
 
 你下载的垃圾太多了。有时候你会多次下载*相同的*垃圾。即使你需要保留那些文件，你也不需要两份。为了摆脱骗子，我们推荐 dupeGuru。
 
-Watch
+
 
 ### [dupeGuru](http://www.hardcoded.net/dupeguru/)
 

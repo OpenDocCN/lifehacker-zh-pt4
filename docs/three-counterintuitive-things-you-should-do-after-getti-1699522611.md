@@ -4,7 +4,7 @@
 
 你刚刚发现你得到了晋升，对你的新职责感到极度兴奋和极度恐惧。你认为你有这个能力，你知道别人相信你。但是在晋升之后，你需要评估为了在新的职位上取得成功你需要做出的改变。
 
-Watch
+
 
 ***本帖原载于*** [***快公司***](http://www.fastcompany.com/3044962/hit-the-ground-running/3-counterintuitive-things-you-should-do-after-you-get-a-promotion) ***。**T15】*
 

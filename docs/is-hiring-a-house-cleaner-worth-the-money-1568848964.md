@@ -4,7 +4,7 @@
 
 你可能每周花相当多的时间做家务。如果你时间紧迫，总是渴望扔掉吸尘器，花更多的时间和家人在一起，或者赶上你最喜欢的节目，那么可能是时候雇佣一些帮手了。不过，这里有几件事你应该先考虑一下。
 
-Watch
+
 
 ***本帖原载于***[***bright nest***](https://brightnest.com/posts/is-hiring-a-house-cleaner-worth-your-money)***。*T15】**
 

@@ -4,7 +4,7 @@
 
 本周，我们了解了苹果新的音乐应用程序，找到了最容易学习的语言，从棋盘游戏中发展了现实生活中的技能，并学会了让自己更讨人喜欢。这里回顾一下。
 
-Watch
+
 
 ## [如何理解令人困惑的苹果音乐新应用](http://lifehacker.com/how-to-make-sense-of-the-confusing-new-apple-music-app-1714913134)
 

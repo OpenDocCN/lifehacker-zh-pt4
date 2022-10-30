@@ -4,7 +4,7 @@
 
 长途旅行可能会很刺激——也可能会很无聊，让人筋疲力尽。以下是如何做的， [做一点准备](https://lifehacker.com/how-to-plan-the-perfect-road-trip-1581847075) ，你就能确保你 [安然度过你的旅程，而你的理智完好无损](http://lifehacker.com/an-introverts-guide-to-surviving-a-weekend-with-strange-1576554766) 。
 
-Watch
+
 
 Quora 用户 [乔恩·米森](http://www.quora.com/What-are-some-hacks-to-surviving-long-road-trips-in-a-car/answer/Jon-Mixon-1) 为独自旅行、与你的另一半和同事一起旅行提供了一些建议。
 

@@ -6,7 +6,7 @@
 
 制造一台电脑是最好的方式 [得到满足你需求的完美机器](https://lifehacker.com/the-best-pcs-you-can-build-for-300-600-and-1200-5840963) 。我们已经 [向你展示了](http://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) 之前的基本步骤以及 [其他一些提示](http://lifehacker.com/top-10-ways-to-beef-up-your-custom-built-pc-1263900018) ，但是有些事情我们大多数人都是在搞砸并浪费大量时间之后才学会的。这里有一些你可以从老兵的错误中学到的东西。
 
-Watch
+
 
 当然，如果你以前建造过一两台计算机，你可能仍然会在这里发现一些你自己没有发现的知识，所以请查看上面的视频进行快速概述，并查看下面的提示以了解更多细节。别忘了分享你自己的！
 

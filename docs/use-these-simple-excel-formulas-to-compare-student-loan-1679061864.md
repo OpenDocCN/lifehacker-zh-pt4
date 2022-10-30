@@ -4,7 +4,7 @@
 
 如果你开始为学生贷款货比三家，你可能需要大致了解一下你要付多少钱。如果你正在为现有债务进行再融资，你可能需要一个工具来根据你已经偿还了多少来比较你的选择。不管怎样，看看这些简单的 Excel 公式来比较不同的学生贷款选项。
 
-Watch
+
 
 ***本帖最初出现在***[***ReadyForZero***](http://blog.readyforzero.com/compare-student-loans-using-excel/)***。**T15】*
 

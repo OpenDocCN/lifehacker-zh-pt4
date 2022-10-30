@@ -4,7 +4,7 @@
 
 小心身后——僵尸末日即将来临！在今天的流行媒体中，你可以随时遇到僵尸，但僵尸比喻的最创新用法之一来自一个应用程序。 [丧尸，快跑！](https://www.zombiesrungame.com/) 用一个僵尸生存的故事作为锻炼的动力。
 
-Watch
+
 
 [丧尸，快跑！](https://lifehacker.com/zombies-run-3-overhauls-the-look-adds-new-stories-a-1563792090) 是由阿德里安·洪(Adrian Hon)在他的公司 [Six to Start](http://www.sixtostart.com/) 和作家 [娜奥米·奥尔德曼](http://www.naomialderman.com/) 在成功的 Kickstarter 活动后开发的。为什么二人组脑子里会有僵尸，他们是怎么想出这个独特的主意的？我们采访了阿德里安和内奥米，了解这款应用背后的故事。
 

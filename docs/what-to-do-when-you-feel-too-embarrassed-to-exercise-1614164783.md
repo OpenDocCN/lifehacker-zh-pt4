@@ -4,7 +4,7 @@
 
 第一次走进健身房可能是一次尴尬的经历。你可能会自我意识到你身材太差，而其他人看起来都很健康，或者你穿错了衣服，或者你可能只是觉得格格不入。但重要的是要熬过偏执，开始锻炼。
 
-Watch
+
 
 ***本帖原载于*** [***今日心理***](http://www.psychologytoday.com/blog/shyness-is-nice/201401/are-you-too-embarrassed-exercise) ***。**T15】*
 

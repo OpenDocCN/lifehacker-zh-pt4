@@ -4,7 +4,7 @@
 
 每周，我们都会询问知名人士他们是如何工作的。轮到我了。我是埃里克，法庭命令我告诉你这是我做事的方式。
 
-Watch
+
 
 **地点:**亚特兰大
 **当前演出:**撰写关于 [棍棒](http://ericravenscraft.kinja.com/whats-the-best-stick-1686634496) 以及 Lifehacker 的新闻和事情。

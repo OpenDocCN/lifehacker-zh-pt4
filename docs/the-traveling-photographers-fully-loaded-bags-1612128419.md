@@ -4,7 +4,7 @@
 
 人们每天随身携带的东西很棒，但有时看到人们需要更长时间的停留也很好。举个例子，摄影师 Romain 与 Carry 分享了他为期两周的摄影之旅。
 
-Watch
+
 
 Romain 有三个包，一个[Fjallraven 15L day pack](http://www.fjallraven.us/products/rucksack-no-21-medium)，一个 [North Face 40L 行李包](http://www.amazon.com/dp/B0058YA454?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-traveling-photographers-fully-loaded-bags-1612128419&asc_source=&tag=kinjalifehackerlink-20) ，一个[mind shift 180°旋转 Pro 豪华写真背包](http://www.amazon.com/dp/B00DOEQB3E?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-traveling-photographers-fully-loaded-bags-1612128419&asc_source=&tag=kinjalifehackerlink-20) 。这是里面的内容:
 

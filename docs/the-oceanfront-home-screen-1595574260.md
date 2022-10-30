@@ -4,7 +4,7 @@
 
 Android:今天的特色主屏幕来自读者 [floridagizzi](http://floridagizzi.kinja.com/) 。该设计的特点是一个简化的三屏住宅，有工作、放松的空间，还有一个中央“开始”区。
 
-Watch
+
 
 该设计内置于 Nova Launcher。要在您自己的设备上获得这种外观，您需要:
 

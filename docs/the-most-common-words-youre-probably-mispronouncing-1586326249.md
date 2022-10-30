@@ -4,7 +4,7 @@
 
 除非你已经查过或听过你读过的每个单词的发音，否则很可能至少有一些单词你读错了。让我们来看看和分享最可怕的。
 
-Watch
+
 
 我想我们都有过这样的经历，因为念错了一个常用词(我的是“焊料”)而被纠正后感到尴尬你的意思是不是每个人都这样发音？非常感谢， [诡异英语](http://english.stackexchange.com/questions/19990/what-is-the-correct-pronunciation-of-the-word-solder) ！)，或者生气，比如当人们说“axed”而不是“asked”时(前几天我“解雇”了我的女朋友...不不。)
 

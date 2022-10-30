@@ -4,7 +4,7 @@
 
 有多少次，你登录自己的信用卡或银行账户，看到不知从哪里冒出来的虚假费用或滞纳金？你想马上打电话给公司，让他们退还你的钱，但你不知道该说些什么来免除费用。所以你就顺其自然了。一次又一次。
 
-Watch
+
 
 *这是六部曲中的一部* [*六部曲系列*](http://lifehacker.com/moneysavingphonecalls) *由财经专家和* [*畅销书作者*](http://www.amazon.com/Will-Teach-You-To-Rich/dp/0761147489?amp;ascsub&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/money-saving-phone-calls-how-to-optimize-your-car-insu-1477065007&asc_source=&tag=kinjalifehackerlink-20)*[*Ramit Sethi*](https://twitter.com/ramit)*。转载自他的电子书* [*强大的电话脚本*](http://www.iwillteachyoutoberich.com/special/6-powerful-telephone-scripts/) *，每篇帖子都将帮助你协商更低的费用，消除滞纳金，掌握与客服代表交谈的艺术今天:如何优化你的汽车保险费率。**
 

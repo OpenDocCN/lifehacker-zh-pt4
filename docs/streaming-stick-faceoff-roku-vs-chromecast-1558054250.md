@@ -4,7 +4,7 @@
 
 谷歌的 [Chromecast](http://www.amazon.com/Google-Chromecast-Streaming-Media-Player/dp/B00DR0PDNE?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/streaming-stick-faceoff-roku-vs-chromecast-1558054250&asc_source=&tag=kinjalifehackerlink-20) 以 35 美元的价格提供了一个家庭娱乐解决方案，让你可以将各种内容传输到一个支持 HDMI 的小棒上，这引起了轰动。Roku 决定用自己的 棒 [来迎头痛击。哪个更好？我们决定去看看。](http://www.amazon.com/Roku-3500R-Streaming-Stick-HDMI/dp/B00INNP5VU?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/streaming-stick-faceoff-roku-vs-chromecast-1558054250&asc_source=&tag=kinjalifehackerlink-20)
 
-Watch
+
 
 ### 两者都同样便携
 

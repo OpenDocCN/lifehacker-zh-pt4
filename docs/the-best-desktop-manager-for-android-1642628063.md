@@ -4,7 +4,7 @@
 
 谷歌没有专门针对 Android 设备的 PC 或 Mac 客户端，但你仍然可以通过 AirDroid 从桌面上 [管理你的智能手机或平板电脑。](https://lifehacker.com/airdroid-2-lands-at-google-play-brings-web-based-remot-481662650)
 
-Watch
+
 
 通过 AirDroid，你可以从电脑上发送短信，管理你的联系人、应用和媒体，并从 PC 上将链接或剪贴板项目粘贴到手机上。它运行在网络浏览器上，这使得它完全不受平台限制。
 

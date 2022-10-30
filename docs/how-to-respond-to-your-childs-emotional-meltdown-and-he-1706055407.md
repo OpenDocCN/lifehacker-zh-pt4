@@ -5,7 +5,7 @@
 看似随机的事情会让我们的孩子陷入彻底的情绪崩溃，你难道不惊讶吗？在最激动的时刻，我们做父母的也情绪高涨。
 那么，让这种情况降温并帮助你的孩子学会如何管理情绪的最好方法是什么呢？
 
-Watch
+
 
 ***本帖最初出现在*** [***某晴母***](http://afineparent.com/emotional-intelligence/emotional-meltdown.html) ***。***
 

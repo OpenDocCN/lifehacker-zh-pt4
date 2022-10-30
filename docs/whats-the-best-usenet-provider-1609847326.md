@@ -4,7 +4,7 @@
 
 啊新闻组。即使过了这么多年，它仍然是一个巨大的数字媒体资源，提供了比 bittorrent 更高的速度和可靠性。首先，本周我们想知道你认为哪些新闻组供应商是最好的。
 
-Watch
+
 
 最好的新闻组提供商提供出色的保留率、可承受的订阅价格、良好的月传输速率、大量的并发连接以及 SSL 或其他加密等安全性。我们已经在过去的 [中讨论过如何开始(并越过“第一规则”)](https://lifehacker.com/how-to-get-started-with-usenet-in-three-simple-steps-5601586) ，甚至讨论过 [为什么你可能会认为它超越了 bittorrent](http://lifehacker.com/is-usenet-safer-than-bittorrent-5905756) 。现在我们想听听你愿意订阅哪些提供商的服务。
 

@@ -4,7 +4,7 @@
 
 如果你要窥探某人的个人数字财产，你要确保不留下任何痕迹。这里有一些建议，告诉你如何进出而不留下任何确凿的证据。
 
-Watch
+
 
 *这篇文章是我们 Lifehacker 的* [*邪恶周*](https://lifehacker.com/welcome-to-lifehackers-fifth-annual-evil-week-1647621043) *系列的一部分，在这里我们看到了做事的阴暗面。知道邪恶意味着知道如何打败它，所以你可以用你的邪恶力量做好事。想要更多吗？查看我们的* [*恶周标签页*](http://lifehacker.com/tag/evilweek) *。*
 

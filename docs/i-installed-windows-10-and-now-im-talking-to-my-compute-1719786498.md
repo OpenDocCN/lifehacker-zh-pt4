@@ -4,7 +4,7 @@
 
 除非你是少数使用 Windows Phone 的人之一，否则你不会有太多使用微软个人数字助理[【Cortana】](http://gizmodo.com/18-very-useful-voice-commands-to-try-with-cortana-1698425791)的经验。随着 Windows 10 的推出，Cortana 将很快结交许多新朋友——像我一样，他们可能很快就会发现自己定期对着电脑大喊指令。
 
-Watch
+
 
 Windows 10 上的 Cortana 有点像 Siri 或 Google Now 的，尽管三者都有不同之处:你可以用语音或键盘提问(“悉尼的天气怎么样？”)，设置提醒，启动应用程序，甚至切换 Windows 设置。
 

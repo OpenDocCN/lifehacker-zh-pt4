@@ -6,7 +6,7 @@
 
 我们用我最喜欢的性玩具 [Minna Life Limon](http://www.goodvibes.com/display_product.jhtml?id=11BA22) 开始了我们新的 Lifehacker 业余性玩具评论系列。我如此迷恋这款产品，以至于每当我向我的一个客户推荐它时，听起来都近乎狂热。
 
-Watch
+
 
 我也喜欢支持 Minna Life，因为他们在设计方面很聪明，注重用户体验，并且致力于使用对身体安全的材料。明娜生活团队由一对谦逊的斯坦福工程毕业生组成，他们非常了解如何让女人离开。
 

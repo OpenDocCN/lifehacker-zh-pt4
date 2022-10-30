@@ -4,7 +4,7 @@
 
 如果你想为你的家增添一点设计，或者只是用一些摆放得当、外观漂亮的升级产品或实用家具来装饰一下，你不必倾家荡产。无论你的个人审美倾向于现代和简约，还是乡村和装饰，让我们为任何家庭建立一个伟大的，负担得起的设计升级列表。
 
-Watch
+
 
 我们已经讨论过 [装饰墙壁的最好、最便宜的方法](https://lifehacker.com/the-best-cheap-ways-to-decorate-your-boring-walls-1410646865) ，我们甚至讨论过 [家庭办公室升级](http://lifehacker.com/the-best-budget-office-upgrades-money-can-buy-1493605408)[智能厨房升级](http://lifehacker.com/the-best-kitchen-upgrades-money-can-buy-1498308611) ，以及 [如何将所有这些放入一个精心设计的包中，而又不会超出预算](http://lifehacker.com/how-can-i-turn-my-boring-digs-into-an-awesome-well-des-5888862) 。现在，让我们把注意力集中在重要的东西上——你坐的椅子和沙发，你工作的桌子，放你的书的书架，你的娱乐中心等等。
 

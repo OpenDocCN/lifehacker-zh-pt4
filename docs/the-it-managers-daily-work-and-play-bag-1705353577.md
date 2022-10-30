@@ -4,7 +4,7 @@
 
 作为一名既喜欢工作又喜欢娱乐的 IT 经理，意味着要在你的日常行囊中留出一些额外的空间。以下是 Lifehacker 读者 Chris Vega 随身携带的内容。
 
-Watch
+
 
 克里斯喜欢随身携带很多东西，尽管他正试图缩小体积，但他对小玩意的热爱在日常携带中表露无遗。这个包是一辆[Thule Crossover 25L day pack](http://www.amazon.com/gp/product/B00J082KK6/ref=pd_lpo_sbs_dp_ss_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-it-managers-daily-work-and-play-bag-1705353577&asc_source=&pf_rd_i=B0032ANCCI&pf_rd_m=ATVPDKIKX0DER&pf_rd_p=1944687642&pf_rd_r=1W2RE854ZV1KGFA2BM7M&pf_rd_s=lpo-top-stripe-1&pf_rd_t=201&tag=kinjalifehackerlink-20)，里面是什么:
 

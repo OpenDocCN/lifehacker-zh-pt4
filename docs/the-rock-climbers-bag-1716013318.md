@@ -4,7 +4,7 @@
 
 攀岩者有他们自己的特殊装备。举个例子，Everday Carry 采访了职业攀岩者斯蒂芬妮·戴维斯，看看她在冒险中会带些什么。
 
-Watch
+
 
 戴维斯的包是一个 [Zak 2](http://www.adrenalinbase.com/index.php?L=en&T=equip&E=41) 。这是里面的内容:
 

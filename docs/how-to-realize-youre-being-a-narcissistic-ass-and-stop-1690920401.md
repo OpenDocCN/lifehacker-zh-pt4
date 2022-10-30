@@ -4,7 +4,7 @@
 
 [B](https://lifehacker.com/why-were-so-full-of-ourselves-in-defense-of-narcissist-1654913123) [自以为是有它的好处](https://lifehacker.com/why-were-so-full-of-ourselves-in-defense-of-narcissist-1654913123) ，但是当你的 Instagram feed 除了赤膊自拍什么都没有的时候，你可能已经走得太远了。如果你(或你认识的人)表现出更多唯我论的品质，而不是同理心，那么还有希望。以下是克服自我的方法，这样你就可以建立真正重要的关系。
 
-Watch
+
 
 ### 这听起来像你吗？
 

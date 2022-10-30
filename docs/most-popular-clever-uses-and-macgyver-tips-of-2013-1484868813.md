@@ -4,7 +4,7 @@
 
 在 Lifehacker，我们每天都在寻找聪明的小技巧，这些小技巧会激发我们所有人的内心，2013 年是寻找新方法来使用旧的或普通的东西的伟大一年。事不宜迟，以下是今年最受欢迎的巧妙用法、再利用技巧和妙招。
 
-Watch
+
 
 ## [如何修复每一个常见的拉链问题](http://lifehacker.com/how-to-fix-every-common-zipper-problem-5975700)
 

@@ -4,7 +4,7 @@
 
 我们喜欢多显示器工作站，但“超宽”显示器，其分辨率可与并排的两三块面板相媲美，目前看起来越来越好。毕竟，拥有多台显示器并不会自动提高您的工作效率。以下是这些新的超宽显示器与双屏显示器的不同之处，以及您可能考虑购买的时间。
 
-Watch
+
 
 ### 什么是“超宽”显示器？
 
@@ -38,7 +38,7 @@ Watch
 
 不过，34 英寸正是事情变得有趣的地方。34 英寸时，您开始有足够的空间来工作，像 3440 x 1440 这样的分辨率为您提供了足够的空间来并排或平铺打开三个或四个浏览器窗口、文档或应用程序，而不会因为文本太小而无法阅读，也不会因为菜单太小而无法导航。此外，由于 34 英寸超宽显示器通常是旗舰机型，因此它们包括您需要的所有端口和连接器、VESA 兼容安装、自动旋转和完全可调支架(同样，在戴尔的产品上，LG 莫名其妙地决定反对它)等。 [下面是来自 Linus Tech Tips 的 Linus 解释](https://youtu.be/KnrxNfxRK_4) 这台 LG 34“如何成为他的日常司机。使用 34 英寸超宽显示器很像你第一次在桌子上放两台显示器时的那种感觉，你惊讶于自己有这么大的工作空间。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Ultrawide vs Dual Monitors: Which Are Better for Productivity?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://youtu.be/KnrxNfxRK_4)</aside>
+
 
 给游戏玩家的提示:我们之前已经讨论过 [设置三显示器游戏设置](https://lifehacker.com/how-to-set-up-triple-monitors-for-super-widescreen-gami-1680863770) 。超宽仍然面临着与 AMD Eyefinity 或 NVIDIA Surround 游戏设置相同的游戏内挑战，但你不一定*需要新的或更强大的显卡来驱动超宽设置。对于两个或三个标准显示器，您的显卡必须以合适的刷新率驱动每个显示器。有了超宽，你只需要担心给一个供电(和连接一个。)当然，3440 x 1440 是很多像素，所以低端卡仍然会紧张，但一个体面的廉价显卡应该可以做到，你可能不需要两个卡或多个连接器(这也意味着更少的电缆混乱！)当然，并不是每个游戏都支持宽屏分辨率。许多人会打破(或在边上添加巨大的黑条)，但 [宽屏游戏论坛](http://www.wsgf.org/) 是一个挖掘这些问题的好地方，他们有 [一个宽屏友好游戏数据库](http://www.wsgf.org/mgl/ef_s/) 。*
 
@@ -48,7 +48,7 @@ Watch
 
 此外，如果你喜欢让你的显示器在你的桌子的任何一侧倾斜一点(像我一样)，那些弯曲的显示器特别好。不过不要相信我的话， [下面是 Linus Tech Tips 对我们上面提到的 LG 34”弯曲超宽](https://youtu.be/CcaktV1iiGk) 的评论。与没有朝向你的平板显示器相比，你的眼睛扫视的每个方向都更加集中，所以一切看起来都更加自然。当然，这给我们带来了最大的缺点，至少现在是这样:价格。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Ultrawide vs Dual Monitors: Which Are Better for Productivity?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://youtu.be/CcaktV1iiGk)</aside>
+
 
 超宽显示器仍然是一个很大的溢价，特别是那些感觉非常好的 34 英寸机型。上面的 34”LG 是 900 美元，曲面款是 1200 美元。两者都有 3440 x 1440 像素的工作空间。一对 [这些巨大的 27 英寸单价显示器](http://www.monoprice.com/Product?p_id=12520) 售价 920 美元(每台 460 美元)，给你 5120 x 1440 像素的工作空间(每台 2560 x 1440 像素)。)对于一个超宽屏幕来说，这仍然是近 300 美元的溢价，而且这些甚至还不是垄断价格 中最便宜的 27 英寸。
 

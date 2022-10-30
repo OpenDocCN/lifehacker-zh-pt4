@@ -4,7 +4,7 @@
 
 你不需要总是带着一大堆东西到处跑。举个例子，机械工程师 Adrian 与 daily Carry 分享了他的日常工作包，里面只有少量的物品。
 
-Watch
+
 
 包包是一个 [Arcteryx Astri 19 背包。](http://www.amazon.com/Arcteryx-14467-171474-2029-One-Size-Astri-Pack/dp/B00HSOA1ZA?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-daily-essentials-bag-1719071662&asc_source=&tag=kinjalifehackerlink-20) 下面是里面的东西:
 

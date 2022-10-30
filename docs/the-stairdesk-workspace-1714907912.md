@@ -4,7 +4,7 @@
 
 我们已经看到工作空间 [放置在](http://lifehacker.com/the-dual-display-workspace-under-the-stairs-1641420440)[之下](http://lifehacker.com/the-workspace-built-into-the-stairs-482538058) [楼梯](http://lifehacker.com/the-office-under-the-stairs-5191380) 和顶部的 [工作空间](http://lifehacker.com/the-workspace-at-the-top-of-the-stairs-5935419) [楼梯](http://lifehacker.com/the-stairway-workspace-609136721) ，但是这个工作空间将组合做得更进一步，在楼梯内和楼梯周围放了一张桌子。
 
-Watch
+
 
 定制的工作空间和楼梯组合是由贝茨·马西建筑师事务所创建的，并在《当代》杂志上发表。虽然对大多数人来说不切实际(你不能移动你的桌子或者当你移动的时候带着它)，但这是一个不寻常的，令人惊叹的设计，与房子的其他独特设计 相吻合。作为一种奖励，每次这个工作区的主人清理桌子时，他们可能也会清理楼梯。
 

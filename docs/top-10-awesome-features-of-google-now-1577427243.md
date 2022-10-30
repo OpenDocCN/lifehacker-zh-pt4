@@ -4,7 +4,7 @@
 
 用于 iOS 和 Android 的读心术个人助手 Google Now 最近进行了大量更新，使其成为完美的智能手机伴侣...嗯，什么都行。这是它能做的最酷的事情的列表。
 
-Watch
+
 
 谷歌现在做了很多很棒的东西，并且一直在发布新功能。关于它可以做什么以及如何启用不同的卡的最新列表，请查看 Google 现在提供的卡列表(以及它与 集成的 [一些服务的列表)。](http://www.google.com/landing/now/integrations.html)
 

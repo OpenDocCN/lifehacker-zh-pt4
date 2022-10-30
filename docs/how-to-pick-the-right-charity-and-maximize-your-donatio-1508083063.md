@@ -4,7 +4,7 @@
 
 拥有全面财务的一个重要方面是慈善。许多个人理财专家普遍认为，捐赠是良好理财的重要组成部分。然而，你的捐赠应该像你财务管理的其他方面一样——应该努力确保你的钱得到最大的价值。
 
-Watch
+
 
 ***本帖原载于***[***money smartlife***](http://moneysmartlife.com/ways-to-maximize-your-charity-donations/)***。**T15】*
 

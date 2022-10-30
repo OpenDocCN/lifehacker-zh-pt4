@@ -4,7 +4,7 @@
 
 通过美国国家气象局传来了这个惊人的镜头，一个闪电在纽约北部用一棵树做火柴杆。
 
-Watch
+
 
 [https://www.facebook.com/video/embed?video_id=558990624212051](https://www.facebook.com/video/embed?video_id=558990624212051)
 

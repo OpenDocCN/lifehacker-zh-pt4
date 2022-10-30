@@ -4,7 +4,7 @@
 
 一杯好咖啡始于 [合适的咖啡豆](http://lifehacker.com/where-can-i-buy-better-coffee-beans-1524434140) ，但从那时起，你还需要合适的工具来获得最好的结果。当然， [我们有自己最喜欢的咖啡机](http://lifehacker.com/five-best-coffee-makers-500592468) ，但是我们想建立一个最好的咖啡制作设备的清单。让我们开始吧。
 
-Watch
+
 
 有很多方法可以在家沏一杯很棒的 咖啡，甚至还有 [如果你不认为自己是一个咖啡势利者](http://lifehacker.com/dropping-the-drip-how-to-get-started-making-better-cof-5778831) 。你 [可以使用滴滤式冲泡机](http://lifehacker.com/how-to-get-the-best-cup-from-an-auto-drip-coffee-maker-5908488) ，使用某种类型的压机(我们会谈到一些我们最喜欢的)，启动你的家用咖啡机，或者使用其他某种高科技装置来制作你的早晨(或下午，或晚上)杯。我们将让你从一些我们最喜欢的开始，但我们真的希望这是一个制作好咖啡的伟大工具的权威列表，所以让我们也听听你的吧！**以下是如何提交您的装备建议**:
 

@@ -4,7 +4,7 @@
 
 多年来，Patrick Norton 一直是各地计算机爱好者熟悉的人物，他对最新的技术新闻和设备发表愉快的评论和建议。你可能从他在 [泰克齐拉](https://revision3.com/shows/tekzilla) 的时候最了解他；就我个人而言，我第一次看 Patrick 主持屏幕保护程序是在 [TechTV](http://en.wikipedia.org/wiki/TechTV) 的美好时光。
 
-Watch
+
 
 如今，Patrick 一如既往地忙碌，主持和制作他的新节目 [TekThing](http://www.tekthing.com/) ，以及他参与的其他十几个项目。他是怎么做到的？我们采访了帕特里克，了解了一下他的工作方式。
 

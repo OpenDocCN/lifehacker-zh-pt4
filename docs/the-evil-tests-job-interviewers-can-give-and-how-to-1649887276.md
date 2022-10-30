@@ -4,7 +4,7 @@
 
 经历了面试的种种麻烦后，没有得到工作机会真是糟糕透了。你的第一个假设是你没有资格，但这并不总是正确的。你也可能没有通过任何数量的隐藏测试，其中一些非常邪恶。
 
-Watch
+
 
 *这篇文章是我们 Lifehacker 的* [*邪恶周*](https://lifehacker.com/welcome-to-lifehackers-fifth-annual-evil-week-1647621043) *系列的一部分，在这里我们看到了做事的阴暗面。知道邪恶意味着知道如何打败它，所以你可以用你的邪恶力量做好事。想要更多吗？查看我们的* [*恶周标签页*](http://lifehacker.com/tag/evilweek) *。*
 

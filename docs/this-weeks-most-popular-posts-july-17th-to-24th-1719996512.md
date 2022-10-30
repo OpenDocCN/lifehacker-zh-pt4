@@ -4,7 +4,7 @@
 
 本周我们讨论了睡觉时保持凉爽，为什么年纪越大时间过得越快，以及为你的生活制定一个财务计划。这里回顾一下。
 
-Watch
+
 
 ## [这张图片告诉你如何在睡觉时保持凉爽](http://lifehacker.com/this-graphic-shows-you-how-to-stay-cool-while-you-sleep-1718246417)
 

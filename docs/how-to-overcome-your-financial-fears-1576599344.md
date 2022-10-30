@@ -4,7 +4,7 @@
 
 理财是压力的一大来源。它会导致关系破裂，让我们陷入抑郁。难怪我们很多人都把头埋在沙子里，希望有最好的结果。不幸的是，这不是解决问题的方法，如果你忽视它，事情不会变得更好。以下是如何克服这些情绪障碍，控制你的钱。
 
-Watch
+
 
 你大概知道所有正确的步骤:你 [需要做](https://lifehacker.com/adult-budgeting-101-how-to-create-your-first-budget-in-1440446091) [一个预算](http://twocents.lifehacker.com/how-to-budget-when-you-re-broke-1561620381)[偿还你的债务](http://lifehacker.com/how-to-pay-off-your-debt-using-the-stack-method-576070292) 。 [为将来储蓄](http://lifehacker.com/how-do-you-save-for-the-future-and-pay-down-debt-at-the-5993036) ， [建立应急基金](http://lifehacker.com/step-by-step-guide-to-a-healthy-emergency-fund-5165080) 以防万一。这些都是很好的建议，但都令人望而生畏——以至于我们经常说“以后”再想办法，而知道“以后”永远不会到来。在这篇文章中，我们不讨论步骤，而是讨论如何开始。我们不能给你免费的钱，但我们可以帮助你克服阻碍你改善财务状况的心理障碍。
 

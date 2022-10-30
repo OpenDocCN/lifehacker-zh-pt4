@@ -4,7 +4,7 @@
 
 回旋镖就像一个电子邮件魔术。这个插件可以让你安排电子邮件的发送时间，隐藏信息(比如按一个暂停键)，并且有很多其他有用的功能来缓解你的收件箱困境。
 
-Watch
+
 
 我们在 之前已经 [谈到过它，如果你关注我们的《我如何工作》采访，那么你可能已经注意到回旋镖经常被](https://lifehacker.com/boomerang-for-gmail-updates-adds-notes-reminders-and-5852026)[CEO](http://lifehacker.com/im-kathryn-minshew-ceo-of-the-muse-and-this-is-how-i-1542207484)、 [编辑](http://lifehacker.com/how-i-work-jimmy-soni-managing-editor-of-the-huffingt-1566531861) 、以及 [创始人](http://lifehacker.com/we-are-the-founders-of-rap-genius-and-this-is-how-we-w-5969020) 作为一个重要工具提及。这个邮件工具是怎么来的？我们采访了 Baydin 首席执行官亚历山大·摩尔，以了解 Boomerang 的历史。
 

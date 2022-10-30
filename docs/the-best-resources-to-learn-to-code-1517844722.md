@@ -4,7 +4,7 @@
 
 我们已经讨论过 [最好的编程语言入门](https://lifehacker.com/five-best-programming-languages-for-first-time-learners-1494256243) 、 [为什么要](http://lifehacker.com/how-i-taught-myself-to-code-in-eight-weeks-511615189) ( [和不应该](http://lifehacker.com/dont-learn-to-code-learn-to-work-with-technology-1488581331) )学习编码，甚至还重点介绍了 [一些很棒的入门工具](http://lifehacker.com/learn-to-code-the-full-beginners-guide-5744113)，但是说实话；它们都只是冰山一角，尤其是如果你想学习一些特定的东西。让我们列出学习编码的最佳资源，从一般到具体。
 
-Watch
+
 
 我们这些在 Lifehacker 做代码的人总是渴望更多地了解我们喜爱的语言，或者学习一种全新的语言，我们知道你们中的许多人是职业或爱好上的开发人员，并且在数字意义上是多语言的。
 

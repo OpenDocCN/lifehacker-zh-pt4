@@ -5,7 +5,7 @@
 亲爱的 Lifehacker，
 [Windows 8 发布了](http://windows.microsoft.com/en-US/windows/buy) ，这是所有人都在谈论的话题——除了每个人都不停地告诉我它有多糟糕，我不应该升级。为什么大家都这么讨厌？我应该升级，还是推迟？
 
-Watch
+
 
 真诚地，
 担心 Windows

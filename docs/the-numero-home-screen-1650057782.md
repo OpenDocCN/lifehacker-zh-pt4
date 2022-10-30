@@ -4,7 +4,7 @@
 
 今天的主屏幕对 AMOLED 特别友好。虽然最近 Android 的外观更加明亮，但我的彩屏用户 [21macro12](http://mycolorscreen.com/21MaRcO12/) 的设计坚持了黑暗的主题，只有一个主条纹是例外。
 
-Watch
+
 
 这种设计对所有发射器都是友好的。您可以从 [这里](http://www.android-tuning.sk/wp-content/uploads/Numero-themer.zip) 安装下载 zip 文件，并按照以下说明进行安装:
 

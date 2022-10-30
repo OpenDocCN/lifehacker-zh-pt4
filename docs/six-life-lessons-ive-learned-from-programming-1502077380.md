@@ -4,7 +4,7 @@
 
 你需要知道的所有关于成功生活的重要信息，你都可以从计算机程序中获得。不相信我？请继续阅读。
 
-Watch
+
 
 ***本帖原载于***[***MakeUseOf***](http://www.makeuseof.com/tag/6-life-habits-programming-teach-today/)***。**T15】*
 

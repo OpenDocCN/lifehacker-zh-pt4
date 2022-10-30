@@ -4,7 +4,7 @@
 
 每周我们都很高兴地强调一些我们的生产力英雄，从公司首席执行官到艺术家和作家，他们成功地完成了比任何合理的人应该做的更多的事情。让我们回顾一下 2014 年最受欢迎的一些采访。
 
-Watch
+
 
 这一年，我们为艾拉 [和他开发故事](https://lifehacker.com/im-ira-glass-host-of-this-american-life-and-this-is-h-1609562031) 的方法举杯，与阿米特·阿加瓦尔 [谈论他的脚本和应用](http://lifehacker.com/im-amit-agarwal-and-this-is-how-i-work-1506511234) ，与 [工程师蒂娜·温](http://lifehacker.com/im-tina-wen-engineer-at-dropbox-and-this-is-how-i-wor-1592578922) 一起看 Dropbox，与 [教授](http://lifehacker.com/im-dan-ariely-author-and-professor-and-this-is-how-i-1615748781) 一起思考人类的非理性。而这只是一种味道。
 

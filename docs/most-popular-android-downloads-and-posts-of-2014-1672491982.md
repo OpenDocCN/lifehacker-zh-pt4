@@ -4,7 +4,7 @@
 
 棒棒糖。材料设计。Android Wear。对于谷歌最喜欢的操作系统来说，2014 年是重要的一年。这给了我们很多新东西去修补。这里是过去一年里我们关于这个话题的一些最好的帖子。
 
-Watch
+
 
 ## [Android 版 Lifehacker Pack:我们的基本 Android 应用清单](http://lifehacker.com/lifehacker-pack-for-android-our-list-of-the-essential-819094535)
 

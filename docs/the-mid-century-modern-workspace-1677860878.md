@@ -4,7 +4,7 @@
 
 读者 H D .热爱科技，但也热爱那种 [中世纪的现代](http://en.wikipedia.org/wiki/Mid-century_modern) 美学——所以他的工作空间两者兼而有之。
 
-Watch
+
 
 正如他在 Flickr 上描述的那样:
 

@@ -4,7 +4,7 @@
 
 摄影师的包需要达到轻便的最佳状态，同时还能容纳一天拍摄所需的一切。读者 Long Nguyen 分享了他的包，其中包括他需要的一切，没有任何填充物。
 
-Watch
+
 
 包里的一个[lowpro 都市记者 150](http://www.amazon.com/Lowepro-Urban-Reporter-Digital-Camera/dp/B00F9X757E/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-urban-photographers-daily-bag-1680468785&asc_source=&ie=UTF8&keywords=lowepro urban reporter 150&peasin=B00F9X757E&pebp=1421700937252&qid=1421700935&sr=8-1&tag=kinjalifehackerlink-20) 。这是里面的内容:
 

@@ -4,7 +4,7 @@
 
 分散的航空里程不太可能对许多乘客有多大好处，因为大多数人倾向于在航空公司之间跳跃，这使得很难在任何一家航空公司节省有用的金额。那么，你如何在一个地方获得所有的航空里程呢？
 
-Watch
+
 
 ***本帖原载于***[***foxmonad***](http://foxnomad.com/2011/12/20/how-do-you-accumulate-all-of-your-frequent-flyer-miles-in-one-place/)***。*T15】**
 

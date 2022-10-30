@@ -4,7 +4,7 @@
 
 这个星期我们 [发现了 Windows 10 最酷的功能](https://lifehacker.com/the-coolest-windows-10-features-microsoft-didnt-announc-1642802880)[得到了一些免费的红牛](http://lifehacker.com/you-get-free-red-bull-or-10-if-you-bought-one-in-the-l-1644046794)[买了一些电脑零件](http://lifehacker.com/five-best-places-to-buy-computer-parts-1642332463)[把敏感文件藏在了我们的电脑上](http://lifehacker.com/how-to-hide-files-on-your-computer-1642112044) 。这里回顾一下。
 
-Watch
+
 
 ## [微软没有公布的最酷的 Windows 10 功能](http://lifehacker.com/the-coolest-windows-10-features-microsoft-didnt-announc-1642802880)
 

@@ -4,7 +4,7 @@
 
 最新的睡眠研究显示，一夜好眠比我们想象的更重要。睡眠不仅能强化记忆，让你第二天保持清醒——它还能清除你大脑中的危险蛋白质，保持你的精神健康直到老年。那么如何快速入睡并得到最好的休息呢？专家们在 [*栈交换*](http://stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=productivity-parenting-fitness-101) *处插话。*
 
-Watch
+
 
 ### 如何更快入睡
 

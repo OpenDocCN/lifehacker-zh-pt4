@@ -4,7 +4,7 @@
 
 所有处于长期关系中的夫妇都必须学会如何一起处理财务决策。但是，由于令人困惑和不断变化的法律，同性恋伴侣面临着额外的挑战。
 
-Watch
+
 
 ***本帖最初出现在***[***nerd wallet。***](http://www.nerdwallet.com/blog/finance/money-nerd/retirement/6-financial-issues-samesex-couples-discuss/)
 

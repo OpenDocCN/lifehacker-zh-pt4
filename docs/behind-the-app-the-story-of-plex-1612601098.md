@@ -4,7 +4,7 @@
 
 最基本的， [Plex](https://plex.tv/) 是一款应用程序，可以让你将媒体从桌面传输到任何其他设备，无论你使用的是手机、平板电脑还是其他电脑。但它已经慢慢成为一个完整的媒体管理生态系统，几乎涵盖了你能想到的所有平台。
 
-Watch
+
 
 有针对[iOS](https://itunes.apple.com/us/app/plex/id383457673?mt=8)[Android](https://play.google.com/store/apps/details?id=com.plexapp.android)[Windows](http://apps.microsoft.com/windows/en-us/app/647bfcf7-7f87-4a72-ad86-2e6274f969e3)[Mac](https://plex.tv/downloads)[Linux](https://plex.tv/downloads)的 Plex 应用，以及 Chromecast 和 Roku 等设备——仅举几例。这种无处不在的可用性使您的电影和音乐能够随时随地流式传输给您，甚至传输到您的家庭影院。Plex 是怎么来的？嗯，是从 Xbox 开始的。
 

@@ -4,7 +4,7 @@
 
 OS X 终端打开了一个强大的 UNIX 实用程序和脚本的世界。如果您正在从 Linux 迁移，您会发现许多熟悉的命令以您期望的方式工作。但是高级用户通常不知道 OS X 自带了一些在其他操作系统上找不到的基于文本的工具。
 
-Watch
+
 
 了解这些 Mac 专用程序可以让你在 [命令行](https://lifehacker.com/a-command-line-primer-for-beginners-5633909) 上更有效率，帮助你在 UNIX 和 Mac 之间架起一座桥梁。
 

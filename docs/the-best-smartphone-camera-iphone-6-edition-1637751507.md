@@ -4,7 +4,7 @@
 
 自从我们上次让最好的智能手机相机相互竞争以来，一些新的竞争者已经加入进来，特别是 [iPhone 6](http://gizmodo.com/iphone-6-a-little-bit-bigger-a-whole-lot-better-1632406881) 和 [iPhone 6 Plus](http://gizmodo.com/iphone-6-plus-everything-you-need-to-know-about-apple-1632410303) 。这使得现在是决定哪一款智能手机最抢手的最佳时机。
 
-Watch
+
 
 这一次我们阵容中的最新手机是 iPhone 6，三星 Galaxy S5，HTC One M8 和 Moto X 2014 版。这些加入了我们的分析中的 Lumia 1020 和 iPhone 5s。你会注意到 iPhone 6 Plus 在大多数测试中都没有出现；这是因为除了它奇特的光学图像稳定功能——我们将在下面单独讨论——它的摄像头与 iPhone 6 相同。
 

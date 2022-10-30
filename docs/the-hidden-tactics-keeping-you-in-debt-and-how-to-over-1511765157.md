@@ -4,7 +4,7 @@
 
 尽管我们都愿意相信，与我们打交道的每家金融公司都把我们的最佳利益放在心上，但我们从经验中了解到，事实并非如此。然而，当我们遇到让人们更难控制自己财务的做法时，这仍然令人惊讶。
 
-Watch
+
 
 ***本帖原载于***[***ReadyForZero***](http://blog.readyforzero.com/uncovering-the-hidden-tactics-that-are-keeping-you-in-debt-2/)***。**T15】*
 

@@ -4,7 +4,7 @@
 
 你太老了，不能玩不给糖就捣蛋的游戏了。妖精和女巫再也吓不到你了。如今，晚上发生的事情是现实世界的担忧——从你害怕在瑜伽课上倒立到你害怕在特别无忧无虑的周末后的周一早上查看你的银行账户余额。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/2013/10/7-financial-fears-to-confront-and-conquer-this-halloween/)***。*T15】**
 

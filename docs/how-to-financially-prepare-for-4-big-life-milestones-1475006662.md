@@ -4,7 +4,7 @@
 
 我们很多人都幻想过买房子、结婚、生孩子，然后在 65 岁退休——具体来说就是按这个顺序。事实上，根据最近的研究，这些东西被我们定义为 2013 年美国梦的。但是这四个目标有一个共同点，那就是它们都很昂贵。所以，如果你有一个正在为之存钱的人生大事，你如何筹集资金来实现它呢？
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/2013/11/whats-your-money-dream-a-financial-planner-tells-you-how-to-get-one-step-closer/)***。**T15】*
 

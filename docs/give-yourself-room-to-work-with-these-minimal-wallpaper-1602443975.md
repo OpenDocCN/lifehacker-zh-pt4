@@ -4,7 +4,7 @@
 
 好的壁纸不一定要忙着才好看，有时候有一张好看、优雅、简洁的壁纸也是不错的，这样你就不会分心工作了。在 之前，我们已经做了最少的 [几个](https://lifehacker.com/simplify-your-smartphone-or-tablet-with-these-minimalis-473003487) [次](http://lifehacker.com/simplify-your-desktop-with-these-minimalist-wallpapers-5812037) [，但是这里有一个新的集合可以下载。](http://lifehacker.com/get-all-that-crap-off-your-desktop-with-these-minimalis-5902787)
 
-Watch
+
 
 请记住，我们现在邀请您参与壁纸星期三系列！你会在这里找到一个选择，但是在下面的讨论中张贴你最喜欢的本周主题。尽可能坚持我们的格式，包括标题、图片、分辨率和链接。壁纸快乐！
 

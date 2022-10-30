@@ -4,7 +4,7 @@
 
 Android: Themer 有一大堆整洁的 [主屏幕主题](http://lifehacker.com/the-best-themer-themes-to-refresh-and-customize-your-an-1447449150) ，Expand 也不例外。这种设计有四个可折叠的部分，包含您需要的所有链接、快捷方式和小部件。
 
-Watch
+
 
 这个设计非常简单，分为四个部分:主页、分类、音乐播放器和天气。每一个展开显示快捷方式或信息部件。底部还有一个常用应用的快速链接栏。这个设计在 [主题](https://play.google.com/store/apps/details?id=com.mycolorscreen.themer) 中直接可用。
 

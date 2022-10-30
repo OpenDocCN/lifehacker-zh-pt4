@@ -4,7 +4,7 @@
 
 看来 [比以往](http://www.nytimes.com/2014/03/23/magazine/how-did-sleep-become-so-nightmarish.html) 更噩梦般，获得一个 [体面的睡眠](https://lifehacker.com/how-to-get-better-sleep-and-need-less-every-night-5971884) 并在此之后感觉良好。如果你想每天早上醒来精神焕发，而不是昏昏沉沉、脾气暴躁(不管你睡得多少)，记住 90 分钟法则。
 
-Watch
+
 
 这都是关于安排你的就寝时间，这样你就能在睡眠周期结束时醒来(平均 90 分钟),而不是在你处于深度睡眠阶段的中间醒来。
 

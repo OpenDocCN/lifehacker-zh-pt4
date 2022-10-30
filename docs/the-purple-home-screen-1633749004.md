@@ -4,7 +4,7 @@
 
 不，这不是手机上的 Ubuntu，但你可以原谅误把 [相似的配色](https://lifehacker.com/how-to-dual-boot-ubuntu-on-your-android-device-1577325241) 。这一设计得到了我的彩色屏幕用户 [Vivek S](http://mycolorscreen.com/viveks/) 的许可，为功能性的主屏幕带来了一抹亮色。
 
-Watch
+
 
 这个设计是 Themer launcher 的定制外观。要获得它，请从下面的来源下载 zip 文件，并按照以下说明操作:
 

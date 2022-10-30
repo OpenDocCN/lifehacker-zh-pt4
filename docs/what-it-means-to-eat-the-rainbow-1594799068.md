@@ -4,7 +4,7 @@
 
 健康饮食倡导者经常告诉人们“吃彩虹”这是一种简单的方式来提醒你，饮食中的各种水果和蔬菜会给你带来所需的维生素和矿物质。这也说明了一个事实，那就是只要看着食物，你就能对它有很多了解。这是它的含义和工作原理。
 
-Watch
+
 
 你可能听说过“吃掉彩虹”这句话——不仅仅是在彩虹糖广告 中的 [。](https://www.youtube.com/watch?feature=player_embedded&v=OfkT5SIH4gI) [营养师](http://www.todaysdietitian.com/newarchives/110308p34.shtml)[医生](http://www.uhc.com/source4women/health_wellness_tools_resources/nutrition/rainbow_of_fruits_vegetables.htm) 或 [其他健康和保健顾问](http://www.todayiatearainbow.com/) 用这个短语让人们——尤其是儿童——在饮食中摄入更多的水果和蔬菜。从表面上看，这是一个很好的建议——但就像这个口号一样简单，它隐藏了一些科学，为什么各种水果和蔬菜既赏心悦目又有益健康。让我们来看看细节，以及为什么吃彩虹是个好主意。
 

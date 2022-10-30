@@ -4,7 +4,7 @@
 
 本周我们 [学习了 Advil 和 Tylenol](https://lifehacker.com/this-chart-shows-when-you-should-use-ibuprofen-vs-acet-1704147149)[改进了我们的锻炼](http://vitals.lifehacker.com/tweak-these-common-exercises-for-your-body-type-1704004556)[听过你最糟糕的工作面试故事](http://lifehacker.com/the-worst-job-interview-horror-stories-1703736956)[教你在学校没学到的金钱管理技巧](http://lifehacker.com/how-to-manage-your-money-for-those-who-never-learned-g-1703892260) 。这里回顾一下。
 
-Watch
+
 
 ## [此图表显示了您应该何时使用布洛芬和对乙酰氨基酚](http://lifehacker.com/this-chart-shows-when-you-should-use-ibuprofen-vs-acet-1704147149)
 

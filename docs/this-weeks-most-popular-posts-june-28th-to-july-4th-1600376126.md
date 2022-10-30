@@ -4,7 +4,7 @@
 
 本周我们学习了 [什么是溺水真正的样子](https://lifehacker.com/use-this-infographic-to-identify-what-drowning-really-l-1598135751) ，选择了一些 [伟大的，被低估的度假胜地](http://lifehacker.com/the-best-most-underrated-vacation-destinations-1599392001) ， [为乐高](http://lifehacker.com/pley-is-like-netflix-for-lego-1596953129) 发现网飞，并给你 [一些伟大的面试技巧](http://lifehacker.com/the-five-best-questions-a-job-candidate-can-ask-1599296074) 。这里回顾一下。
 
-Watch
+
 
 ## 这本图文并茂的指南向你展示了溺水的真实样子
 

@@ -4,7 +4,7 @@
 
 今天，Windows 10 终于到来了！虽然推出 [将在波](http://gizmodo.com/okay-so-maybe-you-wont-get-windows-10-on-july-29th-1715532559) 到来，我们已经运行了几个月的内幕预览。当你决定升级时，这里有一些你可以期待的最好的功能。
 
-Watch
+
 
 ### **开始菜单回来了，宝贝**
 

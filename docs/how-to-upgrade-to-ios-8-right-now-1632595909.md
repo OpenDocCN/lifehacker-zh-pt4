@@ -4,7 +4,7 @@
 
 iOS 8 的正式发布是在 9 月 17 日 ，但是即使你不是开发者，你也可以马上安装最终版本。以下是方法。
 
-Watch
+
 
 **更新:** [iOS 8 正式上市](https://lifehacker.com/all-the-new-stuff-in-ios-8-1584893352) ！开始下载吧。
 

@@ -4,7 +4,7 @@
 
 [Workflow 的](https://itunes.apple.com/app/workflow-powerful-automation/id915249334) 一个新的 iOS 应用程序，你可以创建自己的小微型应用程序，可以立即搜索回家的方向，找到最近的披萨店，搜索当前播放歌曲的歌词，等等。最精彩的部分？工作流超级好用。让我们深入了解它是如何工作的，并学习如何制作自己的工作流程。
 
-Watch
+
 
 工作流让我们想起了很多 Mac 上最好的 [应用之一，Automator](https://lifehacker.com/automate-just-about-anything-on-your-mac-no-coding-req-5668648) 。有了 Workflow，你将获得我们在 iOS 上见过的最接近 Automator 的东西，你甚至不需要越狱就可以使用它。
 

@@ -4,7 +4,7 @@
 
 没有什么比一场糟糕的面试更能消磨一份可能的新工作的兴奋感了。上周 [我们问你](https://lifehacker.com/tell-us-your-worst-job-interview-experiences-1702967168) 你最糟糕的工作面试是什么样的，你回答了。以下是你讲述的最噩梦般的经历。
 
-Watch
+
 
 **多管闲事的 CEO** ，来自T3【GingertheDoc】T4:
 

@@ -4,7 +4,7 @@
 
 如果你在公共电脑上查看脸书，关闭标签够好了吗？如果你在朋友的 iPad 上查看你的银行余额呢？敏感信息在线上。 [*栈交换*](http://superuser.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=security-96) *的信息安全专家在这里帮你保持安全。*
 
-Watch
+
 
 快速的谷歌搜索并不能显示注销网络应用(网上银行、亚马逊、脸书等)是否重要。)，或者在安全的情况下关闭标签或浏览器。如果我没有正确注销，我会面临什么样的威胁？
 

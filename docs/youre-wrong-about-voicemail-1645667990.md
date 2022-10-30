@@ -4,7 +4,7 @@
 
 我母亲是不可捉摸的。至少，就语音邮件而言。我们一遍又一遍地重复同一首歌和舞蹈。我:别再给我留语音邮件了。她:*我不懂。这种情况持续了好几年，直到我发现她一直都是对的。*
 
-Watch
+
 
 *你可以听到这篇帖子的作者在 WNYC 的新科技城上读到的，在今天播出的* *的* [*一段中，2015 年 1 月 7 日。*](http://www.wnyc.org/story/theres-still-something-about-voicemail/?token=4bf38e172ee7a3586187d9053a485e2a&content_type_id=23&object_id=421778&_=ced29664&utm_content=buffer5307e&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer)
 

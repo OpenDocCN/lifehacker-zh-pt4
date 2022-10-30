@@ -4,7 +4,7 @@
 
 似乎每周都有一篇新文章赞美红酒的延年益寿功效，警告煎鸡蛋的危险，或者吹捧西藏野生蘑菇(或其他什么)的神奇超级食物性质。但这就是为什么围绕这些研究来改变你的生活是徒劳的。
 
-Watch
+
 
 字面上。每一个。一周。就在昨天，我们发布了关于“肌肉建设补充剂”——[最新的可能成为死神](http://vitals.lifehacker.com/no-muscle-building-supplements-havent-been-proven-to-c-1698106284) 。但是这种非黑即白的食物观一点帮助都没有。相反，它只会导致一个常见但毫无意义的游戏，叫做“生命最大化”。由循证倡导者杜撰的[Bryan Chung](http://evidencebasedfitness.net)T7】游戏规则是这样的:
 

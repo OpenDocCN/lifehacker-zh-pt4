@@ -4,7 +4,7 @@
 
 电饭煲不仅仅是为了米饭。让 [这款超级多功能设备](https://lifehacker.com/repurpose-your-rice-cooker-to-make-tasty-one-pot-meals-5462822) 投入工作，制作一个史诗般的煎饼。
 
-Watch
+
 
 正如你从上面的照片中看到的，煎饼最终比我们习惯的薄而平的圆形更像蛋糕。你可以把它切成楔形，像蛋糕一样作为早餐:
 

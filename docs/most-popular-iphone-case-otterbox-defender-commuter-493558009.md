@@ -6,7 +6,7 @@
 
 iPhone 保护套多如牛毛，但最好的保护你的手机安全，增加功能，甚至让已经很好看的设备看起来更好。上周，我们问了您 [哪些案例是您认为最好的](http://lifehacker.com/best-iphone-case-486580175) 。然后我们根据你的提名，看了看 [排名前五的 iPhone 手机壳](http://lifehacker.com/five-best-iphone-cases-489744751) 。现在我们回来强调获胜者。
 
-Watch
+
 
 经过长周末的投票，Otterbox 以[**Otterbox**](http://www.otterbox.com/)**[**Defender**](http://www.otterbox.com/defender-series/defender-series,default,pg.html)**[**通勤**](http://www.otterbox.com/commuter-series/commuter-series,default,pg.html) 系列案件和超过 41%的投票率摘得桂冠看起来你们中的大多数人更喜欢 Otterbox 为各种智能手机提供的强大、坚固和保护性外壳，而不仅仅是 iPhone。Defender 肯定是一个笨重的箱子，但通勤者就不那么笨重了，所以如果你想要没有笨重的保护，也可以看看。****
 

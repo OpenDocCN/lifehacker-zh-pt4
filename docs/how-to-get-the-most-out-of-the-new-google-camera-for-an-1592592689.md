@@ -4,7 +4,7 @@
 
 最近，谷歌 [向 Play Store](http://lifehacker.com/androids-camera-gets-a-ui-overhaul-new-features-play-1563880252) 发布了自己的摄像头，适用于任何运行 KitKat 或更高版本的设备。这一版本不仅增加了一些新功能，而且带来了许多以前被锁定在更多设备上的令人惊叹的东西。以下是你可以用 [谷歌相机](https://play.google.com/store/apps/details?id=com.google.android.GoogleCamera) 做的一些最酷的事情，以及如何充分利用它们。
 
-Watch
+
 
 ### 镜头模糊后调整焦距
 

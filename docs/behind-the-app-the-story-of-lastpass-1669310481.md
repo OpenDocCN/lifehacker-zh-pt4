@@ -4,7 +4,7 @@
 
 使用安全、复杂的密码非常不方便，因为最安全的密码 [是那些你不记得的](https://lifehacker.com/the-only-secure-password-is-the-one-you-can-t-remember-5785420) 。随着引人注目的安全漏洞变得司空见惯，许多人都在寻找安全管理其密码的解决方案。像 [LastPass](http://lifehacker.com/the-intermediate-guide-to-mastering-passwords-with-last-5645162) 。
 
-Watch
+
 
 [LastPass](https://lastpass.com/about-lastpass) 就是从这样的需求中诞生的，正如 [乔西格里斯特和他的联合创始人](https://lastpass.com/about-lastpass) 出于需要，需要一种管理自己密码的方法。他们着手创建一个管理随机生成的安全密码的平台，不管你何时何地需要登录你的网站。这项服务已经发展了多年，可以在 LastPass 团队管理的尽可能多的平台上使用，并且为了用户的利益继续升级安全措施。我们与 Joe 进行了交谈，以了解更多关于这一切是如何结合在一起的，以及他们如何管理自己的进度。
 

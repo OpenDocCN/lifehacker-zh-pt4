@@ -4,7 +4,7 @@
 
 在 Lifehacker，我们因 [我们的操作方法](https://lifehacker.com/most-popular-how-to-guides-of-2013-1474868022) 而闻名，但我们也喜欢不时地分解复杂的主题，只是解释事情是如何工作的——也许还会提供一些如何使用这些信息的信息。以下是我们 2013 年最好的解释者。
 
-Watch
+
 
 今年我们解释了各种伟大的事情，如 [HDR 摄影](https://lifehacker.com/what-is-hdr-and-when-should-i-use-it-in-my-photos-5991508)[常见的技术问题](http://lifehacker.com/10-common-tech-questions-and-their-high-tech-explanati-1411081494)[为什么你的内存很差](http://lifehacker.com/why-your-memory-sucks-and-what-you-can-do-about-it-596782066)[那个怪异的 10 秒等待时间技术支持坚持你在重启你的调制解调器](http://lifehacker.com/why-support-tells-you-to-wait-10-seconds-before-rebooti-836539426) 等等。
 

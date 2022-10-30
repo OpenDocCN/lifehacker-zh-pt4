@@ -4,7 +4,7 @@
 
 站着。只是你做的一些事情，对吧(比如 [呼吸](http://lifehacker.com/you-might-be-breathing-ineffectively-heres-how-to-fix-1547766439) )？事实是，有一种完美的对齐和平衡的站立方式...和我们许多人的不平衡方式。
 
-Watch
+
 
 好的 [姿势](http://lifehacker.com/tag/posture) 有助于 [缓解和预防疼痛](http://lifehacker.com/restore-your-natural-sitting-and-standing-posture-and-g-5990775)[改善你的态度](http://lifehacker.com/how-bad-posture-can-affect-your-brain-493738180) ，也 [正面影响你的大脑](http://lifehacker.com/the-science-behind-posture-and-how-it-affects-your-brai-1463291618) 。即使你不认为自己犯了最糟糕的姿势错误( [耸起肩膀](http://lifehacker.com/fix-your-computer-hunch-and-other-posture-problems-in-3-1476347921) 或弯下腰)，你也可能错过了正确站立的一个关键部分:完全平衡。
 

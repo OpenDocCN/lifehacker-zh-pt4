@@ -4,7 +4,7 @@
 
 我们已经从 [谈到了](https://lifehacker.com/five-things-i-wish-i-had-known-when-i-started-working-f-1497900668)[最佳策略](https://lifehacker.com/the-beginners-guide-to-working-from-home-733412770)[](http://lifehacker.com/how-to-work-from-home-without-going-insane-5858412)[工作](http://lifehacker.com/how-to-work-from-home-without-going-insane-5858412)但是当你的配偶或者和你一起生活的人在回家的路上时，你会怎么做呢？你如何尊重他们的空间而不被完全切断？这里有几条规则可以遵循，这样你就不会让你的同居者发疯。
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](https://www.themuse.com/advice/3-rules-to-follow-when-someone-you-live-with-works-from-home) ***。**T15】*
 

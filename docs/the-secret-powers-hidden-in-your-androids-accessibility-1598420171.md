@@ -4,7 +4,7 @@
 
 你可以在 Android 中调整这么多东西，你可能甚至都没有打开辅助功能设置。顾名思义，你可能会认为这些功能只适用于残疾人，但实际上它们对任何人都有用。
 
-Watch
+
 
 安卓 中的 [辅助功能设置，很像 iPhone](https://support.google.com/accessibility/android) 中的 [，用途多样。浏览至 Android 设备上的设置>系统>辅助功能，并尝试这些技巧。](https://lifehacker.com/the-secret-powers-hidden-in-your-iphones-accessibility-816886743)
 

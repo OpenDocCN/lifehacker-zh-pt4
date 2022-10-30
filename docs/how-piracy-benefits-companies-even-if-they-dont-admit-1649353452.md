@@ -4,7 +4,7 @@
 
 在 Lifehacker 这里，我们已经谈论了很多关于盗版 合法性的 [话题，但实际上，你可能每天都在违法。然而，盗版有时也有它的好处。即使是拥有版权的公司。](https://lifehacker.com/do-you-pirate-media-you-already-own-5510752)
 
-Watch
+
 
 *这篇文章是我们 Lifehacker 的* [*邪恶周*](https://lifehacker.com/welcome-to-lifehackers-fifth-annual-evil-week-1647621043) *系列的一部分，在这里我们看到了做事的阴暗面。知道邪恶意味着知道如何打败它，所以你可以用你的邪恶力量做好事。想要更多吗？查看我们的* [*恶周标签页*](http://lifehacker.com/tag/evilweek) *。*
 

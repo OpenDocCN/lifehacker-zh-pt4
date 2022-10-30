@@ -4,7 +4,7 @@
 
 iOS 7 的 [几周前刚刚越狱](https://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-5771943) ，虽然我们已经介绍了第一波优秀的应用程序和调整 ，但自那以后还会有更多的调整出现。这里有一些(更多)我们最喜欢的。
 
-Watch
+
 
 ### SlideForUsage
 

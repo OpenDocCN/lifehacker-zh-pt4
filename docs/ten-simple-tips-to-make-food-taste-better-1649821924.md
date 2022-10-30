@@ -4,7 +4,7 @@
 
 有时候，当你在厨房时，微小的接触会带来最大的不同。以下是来自美国试验厨房的一些简单的小贴士，用于准备、烹饪和调味，旨在增加日常烹饪的味道。
 
-Watch
+
 
 ***这些小技巧摘自*** [***美国的试厨新家庭食谱***](http://www.amazon.com/gp/product/1936493853/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/ten-simple-tips-to-make-food-taste-better-1649821924&asc_source=&tag=kinjalifehackerlink-20) ***。**T15】*
 

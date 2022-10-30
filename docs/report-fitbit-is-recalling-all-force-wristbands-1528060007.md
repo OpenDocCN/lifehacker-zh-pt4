@@ -4,7 +4,7 @@
 
 Fitbit 今天宣布将召回其新的 [Force](https://gizmodo.com/fitbit-force-review-a-health-tracker-youd-actually-ke-1454962288) 型号，此前用户抱怨在佩戴它时出现皮疹和烧伤。Fitbit 首席执行官詹姆斯·帕克表示，召回是出于“充分的谨慎”
 
-Watch
+
 
 《华尔街日报》*今天下午首先报道了 [召回](http://online.wsj.com/news/articles/SB10001424052702304275304579397250102593142) ，但 Fitbit 已经证实了这一举动，发布了一封来自 Park 的道歉信以及如何 [还手](http://fitbit.expertproductinquiry.com/Force.aspx) 。*
 

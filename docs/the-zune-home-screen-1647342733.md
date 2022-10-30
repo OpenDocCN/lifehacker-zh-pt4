@@ -4,7 +4,7 @@
 
 实话实说吧。虽然对多媒体党来说有点晚，但 Zune 产品家族正在做极简主义， [真正的数字](http://msdn.microsoft.com/en-us/library/windows/apps/hh781237.aspx#authentically_digital) 东西 [才酷](https://gizmodo.com/zune-hd-review-the-pmp-evolved-5360126) 。如果你对那些日子有点怀旧，这个受 Zune 启发的主屏幕(被称为 Xune)就是为你准备的。
 
-Watch
+
 
 这个设计是一个自定义外观的替代发射器主题。要在您的设备上获得它，请从以下来源下载并按照以下说明操作:
 

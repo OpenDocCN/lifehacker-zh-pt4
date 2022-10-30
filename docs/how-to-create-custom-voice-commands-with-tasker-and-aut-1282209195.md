@@ -4,7 +4,7 @@
 
 谷歌现在已经在 中内置了大量 [有用的语音命令。不过，多亏了 Tasker 插件 AutoVoice](https://lifehacker.com/everything-you-didnt-know-you-could-do-with-google-voi-512727229) 最近的 [更新，你现在可以创建自己的命令，直接插入 Google Now 来完成 Tasker 只用你的声音就能完成的任何事情。](http://lifehacker.com/preview/autovoice-now-lets-you-create-custom-google-now-command-1607156863)
 
-Watch
+
 
 在本指南中，我们将主要使用 Tasker 和 AutoVoice，重点是新的 UI[。如果你还没有这两个应用程序，它们当然值得你花几个钱去买。你不需要被告知这些。](https://lifehacker.com/taskers-new-user-friendly-ui-makes-automating-your-andr-5992802) [大伙儿都爱 Tasker](http://lifehacker.com/show-us-your-best-tasker-actions-487360630) 。那么，我们开始吧。
 

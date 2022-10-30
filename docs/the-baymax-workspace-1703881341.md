@@ -4,7 +4,7 @@
 
 《大英雄 6》是一部有趣、娱乐性强的电影，今天的特色工作空间是为了纪念其中的一个主要角色。
 
-Watch
+
 
 除了巨大的大白，这个空间的其余部分，由艺术家 Long Nguyen 设计和渲染，展示了其他的奇思妙想和艺术——从发光的罐子灯到策略性放置的照明和照片。可悲的是，这不是一个真实的房间(虽然我差点被骗了)，但我们仍然可以在建立自己的空间时从设计中获得灵感。(如果你不能为你的房间找到一个真人大小的大白，有 [墙壁贴花](http://www.ebay.com/itm/BAYMAX-WHITE-BiG-HERO-6-Giant-Wall-Decals-Disney-Robot-Room-Decor-Stickers-NEW-/151610508536?pt=LH_DefaultDomain_0&hash=item234cb0c4f8) 你可以购买或者你可以 [DIY 一个豆袋椅](http://imgur.com/a/dxnk0) 。)查看 Nguyen 的 Flickr photostream 获取更多照片。
 

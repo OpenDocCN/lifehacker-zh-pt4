@@ -4,7 +4,7 @@
 
 Chromecast 谁？真正的 [安卓电视](https://gizmodo.com/androidtv-googles-bajillionth-attempt-to-take-over-you-1595951410) 来了。这是 Nexus Player，一个 4 英寸、半磅重的冰球机顶盒，旨在观看你所有的电影和玩你的 Android 游戏。10 月 17 日售价 99 美元。
 
-Watch
+
 
 这款华硕制造的盒子由四核 1.8GHz 英特尔凌动处理器提供支持，配有 PowerVR 系列 6 显卡、1GB 内存和 8GB 存储空间，是第一款搭载谷歌新 Android TV 操作系统的设备。如果你没有注意到，它被设计成谷歌电视所没有的一切。T3】
 

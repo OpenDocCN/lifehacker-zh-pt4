@@ -4,7 +4,7 @@
 
 互联网几乎已经成为日常生活中必不可少的一部分。如果你正计划创业或搬家，并且网速对你来说是一个重要因素，这个列表显示了所有 50 个州的平均网速。
 
-Watch
+
 
 该名单和图片来自 Broadview Networks，基于 Akamai 的季度 [“互联网状况”报告](http://www.akamai.com/stateoftheinternet/) 。平均速度以 Mbps 为单位，反映了整个州的情况。以下是几个排名靠前的州:
 

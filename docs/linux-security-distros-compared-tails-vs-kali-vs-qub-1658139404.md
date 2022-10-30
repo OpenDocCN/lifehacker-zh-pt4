@@ -4,7 +4,7 @@
 
 如果您对安全性感兴趣，您可能已经听说过关注安全性的 Linux 发行版，如 Tails、Kali 和 Qubes。它们对于匿名浏览、渗透测试和收紧系统以防止潜在黑客攻击非常有用。以下是这三者的优缺点。
 
-Watch
+
 
 似乎每隔一天，我们就会听到另一个黑客攻击、浏览器漏洞或恶意软件。如果你在公共 Wi-Fi 网络上进行大量浏览， [你更容易受到这些类型的攻击](https://lifehacker.com/do-i-really-need-to-worry-about-security-when-i-m-using-5906233)。以安全为中心的 Linux 发行版会有所帮助。对于我们大多数人来说，这里的用例非常简单。
 

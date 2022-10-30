@@ -4,7 +4,7 @@
 
 相机背带会给你带来安全和保障，但它们并不总是舒适的，而且它们可能会碍事。在[*Stack Exchange*](http://photography.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=photography-118)*的照片专家就你是否需要一条表带提供了一些建议，并给出了一些备选方案。*
 
-Watch
+
 
 **使用相机背带有什么利弊？我个人的偏好是完全不使用表带，我发现这最符合我的拍摄习惯。还有什么其他的带子？他们如何解决默认表带的问题？**
 

@@ -4,7 +4,7 @@
 
 有 [很多小玩意和小发明](https://lifehacker.com/top-10-gadgets-you-should-have-in-your-go-bag-5858925)[让你的生活更轻松](http://lifehacker.com/rejuvenate-your-workspace-with-these-office-supply-favo-5364380) 。然而，有些比其他的更傻一些——以至于它们看起来像是玩笑产品。这里有几个听起来很疯狂，但实际上很管用的小玩意和产品。
 
-Watch
+
 
 ### 10.防水记事本
 

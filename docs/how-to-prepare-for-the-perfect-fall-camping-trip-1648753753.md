@@ -4,7 +4,7 @@
 
 暑假季节已经远去，但你仍然可以像露营一样挤进 [的微冒险](https://lifehacker.com/book-a-microadventure-when-you-dont-have-time-to-trav-1613943684) 。这里有一些建议可以帮助你准备下一次秋季野营。这些建议旨在指导那些寻找低调的帐篷体验的人，包括一些徒步旅行，但不是野外徒步旅行。
 
-Watch
+
 
 ### 决定去哪里以及如何到达那里
 

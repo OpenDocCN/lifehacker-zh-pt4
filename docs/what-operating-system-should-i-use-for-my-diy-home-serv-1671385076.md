@@ -5,7 +5,7 @@
 亲爱的 Lifehacker，
 我准备冒险和 [建立我自己的家庭服务器](https://lifehacker.com/how-can-i-build-a-quiet-low-powered-home-file-server-5938883) ，但是我不确定我应该走哪条路线。我看过 FreeNAS，Amahi，甚至普通 ol' desktop Linux 的指南，但是应该用哪个呢？这有关系吗？
 
-Watch
+
 
 真诚地，
 这么多服务器

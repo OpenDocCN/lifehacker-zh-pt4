@@ -4,7 +4,7 @@
 
 [Kali Linux](http://www.kali.org/) 是一个安全的操作系统，你可以在任何地方从 CD 或 USB 驱动器上运行。通过它的安全工具包，你可以破解 Wi-Fi 密码，创建假网络，并测试其他漏洞。以下是如何使用它给你自己的网络进行安全检查。
 
-Watch
+
 
 *这篇文章是我们 Lifehacker 的* [*邪恶周*](https://lifehacker.com/welcome-to-lifehackers-fifth-annual-evil-week-1647621043) *系列的一部分，在这里我们看到了做事的阴暗面。知道邪恶意味着知道如何打败它，所以你可以用你的邪恶力量做好事。想要更多吗？查看我们的* [*恶周标签页*](http://lifehacker.com/tag/evilweek) *。*
 

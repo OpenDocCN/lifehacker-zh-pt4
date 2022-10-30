@@ -4,7 +4,7 @@
 
 SteamOS 已经 [终于落下了它所有的 beta 荣耀](https://lifehacker.com/steamos-beta-is-available-for-download-1482911466) 。如果你是幸运的 300 人中的一员，拥有一些可以玩的硬件，你就万事俱备了。然而，我们其余的人必须将它安装在我们自己的机器上。以下是如何做到这一点。
 
-Watch
+
 
 在我们开始之前，有一些非常重要的警告:
 

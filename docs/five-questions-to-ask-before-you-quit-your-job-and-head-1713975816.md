@@ -4,7 +4,7 @@
 
 你是否有一些模糊的计划，想在某个时候回到学校，接受更多的教育？再拿一个学位不会错的，对吧？嗯，不。在不知道自己能从中获得什么的情况下获得一个昂贵的学位是一种快速积累债务的方式，不一定能帮助你实现目标。所以，在你(可能)让自己陷入很多麻烦之前，这里有五个问题需要在 [申请](https://www.themuse.com/advice/applying-to-grad-school-your-monthbymonth-guide) 学校之前再次考虑。
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](https://www.themuse.com/advice/5-questions-to-ask-yourself-before-you-just-quit-your-job-and-head-to-graduate-school) ***。**T15】*
 

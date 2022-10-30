@@ -4,7 +4,7 @@
 
 无论你是有一副听起来很棒的耳机，还是找不到一副麦克风符合你的品味、像你喜欢的那样便携、或者不会在音乐质量上妥协的耳机，都不要担心。将您最喜爱的耳机转变为可以录制语音、接听电话和处理视频聊天的耳机非常简单。
 
-Watch
+
 
 不要误解我们，有一些带麦克风的 [耳机](https://lifehacker.com/five-best-headsets-with-attached-microphones-5896076) 用于各种用途，如果你擅长电脑游戏， [你甚至有更多的选择](https://kotaku.com/your-6-nominations-for-best-gaming-headset-1518205874) 。然而，即使有其中一些，你可能会发现自己希望在工作或娱乐时，既可以与朋友聊天，也可以使用 Google Hangouts 或 Skype 通话，而不会牺牲音频质量或音乐质量。幸运的是，让你最喜欢的耳机变得声音友好并不难。这是你需要的。
 

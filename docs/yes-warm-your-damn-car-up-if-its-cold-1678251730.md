@@ -4,7 +4,7 @@
 
 总的来说，脸书就像有一个爱出风头的朋友，他必须给你所有的建议，然后给你看他午餐的照片。而最近，那个爱出风头的朋友一直在告诉你不要在冬天费心预热你的车，并张贴了 [许多](http://www.chicagotribune.com/classified/automotive/sc-cons-0108-autocover-cars-idle-20141230-story.html?utm_content=bufferff2e0&utm_medium=social&utm_source=facebook.com&utm_campaign=buffer#page=1) [文章](http://www.wxyz.com/weather/weather-news/idling-to-warm-up-your-car-dont-and-heres-why) [解释](http://www.washingtonpost.com/blogs/wonkblog/wp/2014/12/29/the-biggest-winter-energy-myth-that-you-need-to-idle-your-car-before-driving/) 为什么。你应该相信他吗？或者看看他的午餐照片？
 
-Watch
+
 
 首先，去他妈的午餐照片。你知道热狗或汤是什么样的。就汽车预热而言，似乎大多数反对预热的文章都遗漏了一些要点，可能会给大多数人带来潜在的破坏性信息，尤其是大多数人，他们不会每时每刻都想着汽车，也不会试图不碰自己。我会解释的。
 

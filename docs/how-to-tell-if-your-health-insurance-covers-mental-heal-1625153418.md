@@ -4,7 +4,7 @@
 
 对一些人来说，与精神疾病相关的耻辱使他们不愿寻求帮助，但其他人可能只是因为不确定他们是否负担得起或他们的健康保险是否涵盖它而回避治疗。
 
-Watch
+
 
 ***本帖原载于***[***nerd wallet***](http://www.nerdwallet.com/blog/health/2014/08/18/health-insurance-cover-mental-health-treatment/)***。**T15】*
 

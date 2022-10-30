@@ -4,7 +4,7 @@
 
 全画幅相机已经成为最高端数码单反相机的代名词——最大、最贵。不再是了。一种新型的相机在这里，它的脚很轻，但却拥有专业级设备之外的最佳图像质量，它始于索尼的 [新 A7 系列](https://gizmodo.com/sony-a7r-and-a7-first-impressions-full-frame-power-pa-1456083926) 。
 
-Watch
+
 
 ## 这是什么？
 

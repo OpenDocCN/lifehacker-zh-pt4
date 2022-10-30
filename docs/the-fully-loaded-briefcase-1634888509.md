@@ -4,7 +4,7 @@
 
 仅仅因为你在工作中使用公文包并不意味着你必须在里面放一些无聊的旧文件。《每日邮报》的读者德里克是联邦应急管理局的客户服务代表，他对包里物品的选择显示了该组织的血统。
 
-Watch
+
 
 包里是一个 [泰德·贝克的公文包](http://www.tedbaker.com/row/Mens/Accessories/Bags/c/category_mens_accessories_bags) 。这是里面的内容:
 

@@ -4,7 +4,7 @@
 
 苹果公司已经准备好了一个修补程序，可以修复令人恐惧的 OS X 安全漏洞 ，该漏洞可以让对你的网络连接拥有“特权访问”的人获取你认为安全的信息。现在 App Store 里是。以下是您需要了解的修复信息。
 
-Watch
+
 
 苹果发言人已经证实，10.9.2 更新解决了 OS X Mountain Lion 和 OS X Mavericks 中的 SSL 问题。更新显示在 OS X 的 [网络 iTunes 列表中很慢，但如果你在 Mac 上打开应用商店，它会找到更新。](https://itunes.apple.com/us/app/os-x-mavericks/id675248567?mt=12&ls=1&v0=www-osx-upgrade-button)
 

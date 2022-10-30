@@ -4,7 +4,7 @@
 
 在 Lifehacker，我们每天都在分享新的提示和技巧，帮助你更好地生活，但要跟上所有这些提示和技巧并不容易。这就是我们每周总结的最受欢迎的建议派上用场的地方。以下是 2014 年最受欢迎的十大榜单。
 
-Watch
+
 
 今年，我们发掘了 [一些有用的 Windows 程序](https://lifehacker.com/top-10-incredibly-useful-windows-programs-to-have-on-ha-1584009886) ，收集了 [金钱可以买到的最好的技术升级](http://lifehacker.com/top-10-superior-tech-products-youll-never-go-back-from-1625547811) ，发现了[iOS 8](http://lifehacker.com/top-10-secret-features-of-ios-8-1635558327)的隐藏功能，发现了 [做基本、日常事情](http://lifehacker.com/top-10-things-you-might-be-doing-wrong-every-day-1603832593) 的更好方法，等等。
 

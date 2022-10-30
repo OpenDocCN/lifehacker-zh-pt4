@@ -4,7 +4,7 @@
 
 仅仅因为你在开会的时候把所有事情都写下来并不意味着你订婚了。如果你不把心思放在你写的东西上，心不在焉的笔记是没有用的；相反，你应该像学生一样对待它。
 
-Watch
+
 
 ***本帖原载于*** [***快公司***](http://www.fastcompany.com/3046058/work-smart/how-to-master-the-art-of-taking-better-notes) ***。**T15】*
 

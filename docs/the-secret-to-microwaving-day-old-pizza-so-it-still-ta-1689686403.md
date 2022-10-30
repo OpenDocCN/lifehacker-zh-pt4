@@ -4,7 +4,7 @@
 
 直接从冰箱里拿出一片冷披萨并没有错，但是如果你想让它变热，你有几个选择。借助 [长柄锅](https://lifehacker.com/reheat-pizza-in-a-skillet-to-bring-back-crispy-crusts-5862749) 、烤箱或烤面包机，让放了一天的面包皮复活的最佳方法。但是如果微波炉是你唯一的选择，以下是如何达到最佳效果的方法。
 
-Watch
+
 
 与普遍的看法相反，用微波炉加热食物而不破坏它是可能的——这包括比萨饼。但是仅仅把它放在微波炉里就能产生易碎的、牙齿破碎的外壳。幸运的是， [勺子大学](https://spoonuniversity.com/how-to/how-to-reheat-pizza-in-the-microwave) 有一个方便的窍门，可以让放了一天的披萨在微波炉中复活，达到有嚼劲但不硬的外皮。秘密？在你的比萨饼旁边加热一杯水。
 

@@ -4,7 +4,7 @@
 
 每年都有成千上万的人参加会议，谈论科技、游戏、极客文化，甚至编织！到最后， [与会者带着赃物，](https://lifehacker.com/everything-you-need-to-know-to-survive-a-convention-1578952029) 走出来，有时还带着相当讨厌的感冒。保护自己免受臭名昭著的“con crud”的伤害，让这些聚会免受惩罚。
 
-Watch
+
 
 正如我们在无数僵尸电影中看到的那样，只需要一个零号病人就能发出一阵阵死亡的涟漪。像 [圣地亚哥动漫展](https://en.wikipedia.org/wiki/San_Diego_Comic-Con_International)(SDCC)[电子娱乐博览会](https://en.wikipedia.org/wiki/Electronic_Entertainment_Expo)(E3)[SXSW](https://en.wikipedia.org/wiki/South_by_Southwest)[苹果全球开发者大会](https://en.wikipedia.org/wiki/Apple_Worldwide_Developers_Conference) (WWDC)这样的事件为流感病毒在人与人之间快速传播创造了完美的条件(大多是巨大的人群和许多人接触同样的东西)。除非你在泡泡里打滚，否则你就暴露了。
 

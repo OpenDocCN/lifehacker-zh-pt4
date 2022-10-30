@@ -4,7 +4,7 @@
 
 本周我们花了很长时间看了一下 [超宽显示器](https://lifehacker.com/ultrawide-vs-dual-monitors-which-are-better-for-produc-1695967682) ，思考了一下 [是否值得拥有六块腹肌](http://vitals.lifehacker.com/how-getting-a-six-pack-changes-your-life-and-how-it-do-1696896251) ，学习了如何 [在减肥时最大限度地减少皮肤松弛](http://vitals.lifehacker.com/how-to-minimize-loose-skin-during-weight-loss-1696145766) ，从爱德华·斯诺登 那里获得了关于密码的 [一课，等等。这里回顾一下。](http://lifehacker.com/edward-snowden-explains-why-you-should-use-passphrases-1696958545)
 
-Watch
+
 
 ## 超宽显示器与双显示器:哪一种更有利于提高工作效率？T3】
 

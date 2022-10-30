@@ -4,7 +4,7 @@
 
 如今，不缺乏 [在线资源](http://lifehacker.com/the-best-resources-to-learn-to-code-1517844722#_ga=1.155127864.1230454105.1438273190)[自学编码](http://lifehacker.com/top-10-ways-to-teach-yourself-to-code-1684250889) ，但也没有什么比从头到尾阅读一本好的指导手册更好的了。Jon Duckett 的《JavaScript》&JQuery**、** ,也许是你可以从中学习 JavaScript 的最优雅、最吸引人的书籍。
 
-Watch
+
 
 *这是 Lifehacker 的* [*书评*](http://lifehacker.com/book-reviews) *系列的一部分。不是每个生活帮都能在一篇博客文章中概括，所以我们决定回顾一些我们最喜欢的改变生活的书籍，更深入地探讨生活中最重要的话题。*
 

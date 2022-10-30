@@ -4,7 +4,7 @@
 
 有时，我们喜欢看到只剩下必需品的包，但通常，看到全包包也很有趣。西蒙自称是“合作者、电子产品爱好者和户外运动爱好者”，每天都带着一个这样的包
 
-Watch
+
 
 包包是一个 [Timbuk2 Especial Vuelo 背包](http://www.amazon.com/gp/product/B00E1O3JEA?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-gadget-lovers-go-bag-1608358242&asc_source=&tag=kinjalifehackerlink-20) 。这是里面的内容:
 

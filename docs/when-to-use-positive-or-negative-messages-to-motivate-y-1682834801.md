@@ -4,7 +4,7 @@
 
 积极思考是激励自己保持健康习惯的好方法...但 [负面消息](http://lifehacker.com/the-positive-power-of-negative-thinking-1459381519) 也是如此，像是害怕失败。一份关于动机背后的心理学的新综述给了我们四种方法来决定什么时候积极或消极的信息最有效。
 
-Watch
+
 
 这是一个很好的负面信息的例子，它激励了漫画家马特·因曼，反过来也激励了成千上万的他的[bl arch 主题比赛](http://www.beattheblerch.com/) 的粉丝。何 [向跑者的世界](http://www.runnersworld.com/runners-stories/beware-the-blerch) 描述了他的动机:
 

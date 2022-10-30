@@ -4,7 +4,7 @@
 
 离婚带来的情感痛苦可能令人心碎——共同生活的分离和建立独立生活的斗争几乎是极其困难的。离婚也是人们经济灾难的因素之一。
 
-Watch
+
 
 ***本帖最初出现在*** [***一次一分***](http://onecentatatime.com/after-the-divorce-getting-back-on-your-financial-feet/) ***。*T15】**
 

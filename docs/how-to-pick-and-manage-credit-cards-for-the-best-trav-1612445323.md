@@ -4,7 +4,7 @@
 
 每个人都喜欢访问外国和异国他乡，但很难为你想做的旅行存钱。幸运的是，信用卡里程是找到你一直想要的欧洲之旅的好方法。
 
-Watch
+
 
 ***本帖原载于*** [***千禧创业***](http://www.millennialventure.com/how-to-pick-and-manage-credit-cards-for-the-best-travel-rewards/) ***。*T15】**
 

@@ -4,7 +4,7 @@
 
 本周我们 [看看微软的新浏览器](https://lifehacker.com/is-microsoft-edge-any-good-1702545838)[处理了一些电脑灾难](http://lifehacker.com/top-10-computer-disasters-and-how-to-deal-with-them-1701627195)[抓了骗子个正着](http://lifehacker.com/ask-unexpected-questions-to-catch-someone-in-a-lie-1702323993)[揭穿了一些关于转基因食品的神话](http://vitals.lifehacker.com/the-biggest-concerns-about-gmo-food-arent-really-about-1702906290) 。这里回顾一下。
 
-Watch
+
 
 ## [五款最佳小型机](http://lifehacker.com/five-best-small-form-factor-pcs-1701619172)
 

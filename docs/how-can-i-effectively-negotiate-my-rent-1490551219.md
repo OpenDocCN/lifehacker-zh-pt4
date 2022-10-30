@@ -4,7 +4,7 @@
 
 对很多人来说，这是一个房东市场，但这并不意味着你不能按自己的条件租房。金钱专家在 [*栈交换*](http://money.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=money-98) *第一次和老房客就租金上涨进行谈判时插话。*
 
-Watch
+
 
 **如果我是新的** [**租户**](https://lifehacker.com/what-do-i-need-to-look-out-for-in-an-apartment-landlord-5850768) **我该如何协商？如果我正在重新谈判或为自己辩护反对拟议中的租金上涨怎么办？**
 

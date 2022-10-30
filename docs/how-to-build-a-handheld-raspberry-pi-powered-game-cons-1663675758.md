@@ -4,7 +4,7 @@
 
 树莓派是一款很棒的迷你电脑，可以让 [在童年时玩经典的视频游戏](https://lifehacker.com/how-to-turn-your-raspberry-pi-into-a-retro-game-console-498561192) 。但是，由于它的小尺寸，它也可以变成一个便携式手持游戏机，播放你最喜欢的游戏，从 NES 到 N64。我称之为“eNcade”。
 
-Watch
+
 
 eNcade 是一个用于预购 的 [Kickstarter 项目，但只要有一点工程和焊接技能，自己制作一个并不困难。](https://www.kickstarter.com/projects/2032055368/the-encade-a-portable-raspberry-pi-gaming-console)
 

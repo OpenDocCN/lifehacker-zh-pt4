@@ -4,7 +4,7 @@
 
 有一些家用维修是如此简单，甚至连专业人士都觉得收费不好(真的！).这些管道、供暖、电力、空调和电器维修中的许多都是房主忽略的简单事情，所有这些维修可以在下次出现问题时为你节省一大笔钱。
 
-Watch
+
 
 ***本帖原载于*** [***家庭杂工***](http://www.familyhandyman.com/smart-homeowner/ways-to-save-money/saving-money-diy-repair-tips/view-all) ***。*T15】**
 

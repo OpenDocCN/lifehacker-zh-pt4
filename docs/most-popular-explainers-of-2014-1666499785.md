@@ -4,7 +4,7 @@
 
 在提示和操作之间，我们也经常做“解释者”，在那里我们把复杂的主题分解成简单的语言。我们的目标是帮助你理解这些困难的主题是如何工作的，并向你展示你能用这些知识做什么。这是我们过去一年的最佳作品。
 
-Watch
+
 
 我们今年解决的一些话题包括[Beats By Dre 耳机是否物有所值](https://lifehacker.com/are-beats-by-dre-headphones-any-good-1509805994) ，为什么你 [在恋爱中做出错误的决定](http://lifehacker.com/why-you-make-bad-decisions-when-youre-attracted-to-som-1501035149) ，色彩理论基础，以及 [预测键盘如何工作](http://lifehacker.com/how-predictive-keyboards-work-and-how-you-can-train-yo-1643795640) :
 

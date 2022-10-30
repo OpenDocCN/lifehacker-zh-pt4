@@ -4,7 +4,7 @@
 
 如果需要，振动工具可以在狭小的空间内打磨、研磨、切割、切入切割、平切、移除灌浆和刮削。这使得它成为你店里最通用的电动工具，也是任何 DIY 者的必备之物。
 
-Watch
+
 
 25 年来，Fein Multimaster 垄断了振荡工具市场，他们的工具要价高达 400 美元，远远超出了许多周末建设者的承受能力。但是在 2008 年底， [Fein 关于振荡工具的专利](http://www.finehomebuilding.com/item/9449/fein-multimaster-patent-has-expiredcompetitors-on-the-move) 到期了，这使得过多的工具制造商可以制造他们自己版本的这种神奇工具。你可以从博世、波特电缆、Dremel 或罗克韦尔买到不到 150 美元的高质量振动工具。费恩仍然提供 Multimaster，在 [亚马逊上售价 230 美元](http://www.amazon.com/Fein-MultiMaster-FMM-250Q-Top/dp/B000U8S3QA/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/tool-school-the-do-it-all-oscillating-tool-1657735344&asc_source=&tag=kinjalifehackerlink-20) 。
 

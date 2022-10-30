@@ -4,7 +4,7 @@
 
 写日记有很大的情感好处，帮助你正确看待生活，同时激发你的创造力，我们最喜欢的工具之一就是 [第一天](http://lifehacker.com/day-one-for-mac-and-ios-is-a-gorgeous-journaling-tool-t-5878371) 。
 
-Watch
+
 
 Day One 是一个可爱的日志应用程序，它可以帮助你跟踪你的条目，同时也是一个强大的写作工具，使用起来很愉快。这款应用的背后是保罗·梅恩(Paul Mayne)，他是他的公司 [Bloom](http://bloombuilt.com/) 的设计师和创始人，在这里，第一天实现了。我们采访了 Paul，了解他如何以及为什么要开发这个应用程序。
 

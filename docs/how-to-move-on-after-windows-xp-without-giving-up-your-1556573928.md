@@ -4,7 +4,7 @@
 
 4 月 8 日，微软将正式切断对 Windows XP 的支持、服务和安全更新。这是一个漫长的时刻，但取决于你的立场，这要么是逾期或绝对的世界末日。如果你刚从 Windows XP 世界出来，需要帮助你熟悉环境，这里有一些提示可以帮助你熟悉环境。
 
-Watch
+
 
 无论你只是首选 Windows XP，还是因为兼容性原因被迫使用，或者你的公司不会升级，别担心， [还有很多你剩下的](http://techcrunch.com/2014/04/02/discontinued-windowsxp-still-no-2-desktop-os-after-windows7-windows-8-lagging-far-behind/) 。我们已经讨论了 [支持终止的真正含义](http://lifehacker.com/what-should-i-do-with-my-old-windows-xp-laptop-493108508/all) ，现在支持终止在即，您可以选择。如果你熟悉 Windows 世界，升级到 Windows 7 或 Windows 8 是最有意义的，这是微软同一操作系统的新版本。或者，如果你想要替代品，总有 Linux，如果你不想花钱买新电脑或操作系统，后者尤其如此。
 

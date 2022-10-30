@@ -4,7 +4,7 @@
 
 史蒂夫·乔布斯、阿尔伯特·爱因斯坦和马克·吐温。这三个幻想家有什么共同点？他们的工作空间都很乱。
 
-Watch
+
 
 ***本帖最初出现在*** [***忙着建东西博客***](http://busybuildingthings.tumblr.com/post/68180225961/why-you-should-have-a-messy-desk) ***。*T15】**
 

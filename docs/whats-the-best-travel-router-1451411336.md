@@ -4,7 +4,7 @@
 
 如果你计划一次旅行，需要带一些小工具，旅行路由器可以是一个救命稻草。当然，你可以限制你的手机，但旅行路由器可以让你与你的笔记本电脑、平板电脑、智能手机或其他设备共享无线，同时保持充电。但是哪一个是最好的呢？
 
-Watch
+
 
 有大量的旅行路由器可供选择，从老式的坚定的(经过最近的修订，它的便携性不如以前了)到新的 [和最近提到的](https://lifehacker.com/satechi-smart-travel-router-fits-any-plug-and-charges-y-1443019620) [我们非常喜欢的 Satechi 旅行路由器](http://www.amazon.com/Satechi-Adapter-charging-Android-Blackberry/dp/B00EZT2PB4?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/whats-the-best-travel-router-1451411336&asc_source=&tag=kinjalifehackerlink-20) 。本周，我们想知道你更喜欢哪一个，即使它真的只是你的有线智能手机，让数据限制见鬼去吧。在下面的讨论中分享您的提名！
 

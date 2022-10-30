@@ -4,7 +4,7 @@
 
 在美国，自来水通常是安全的，但在某些地区会有一种难闻的味道。自来水也可能含有微量的杀虫剂、挥发性有机化合物、铅和灰尘，所有这些你都不想摄入，无论数量有多少。在水槽下安装一个滤水器，以改善水的味道并去除许多杂质。
 
-Watch
+
 
 [Brita](http://www.amazon.com/Brita-10-Cup-Everyday-Filter-Pitcher/dp/B004GNGID0?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-install-an-under-the-sink-filter-for-better-tast-1707129524&asc_source=&tag=kinjalifehackerlink-20) 过滤水水罐工作良好，但稍有不便。装满水罐并等待水通过过滤器是很费时间的。过滤水的下一个最经济的解决方案是安装一个水槽下的水过滤系统，它包括一个单独的水龙头用于按需过滤水和一个容易更换的过滤器。
 

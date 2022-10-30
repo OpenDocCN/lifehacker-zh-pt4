@@ -4,7 +4,7 @@
 
 让我们面对现实吧:没有人早上醒来时会有强烈的购买日常必需品的欲望，比如宠物食品、卫生纸、电池或尿布。然而，当你离开它们时，你的整个世界会嘎然而止。
 
-Watch
+
 
 ***本帖原载于***[***DealNews***](http://dealnews.com/features/12-Items-You-Should-Buy-When-You-Dont-Need-Them/656656.html)***。**T15】*
 

@@ -4,7 +4,7 @@
 
 据婚礼策划网站称，39%的婚礼始于感恩节和情人节之间的求婚。每个人都想买一枚完美的戒指。作为我们一生中最昂贵的购买之一，提前计划并理解这个过程是很重要的。这会让收件人和你的钱包都开心。
 
-Watch
+
 
 这个帖子最初出现在 [五分镍币](http://www.fivecentnickel.com/2014/01/13/how-to-get-the-best-deal-on-an-engagement-ring/?WT.qs_osrc=HAC) 上。
 

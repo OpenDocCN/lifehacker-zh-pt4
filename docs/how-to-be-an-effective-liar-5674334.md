@@ -4,7 +4,7 @@
 
 说谎被认为是一件坏事，但是让任何人证明他们说过的谎言是正确的，他们可能会这样做。何时何地撒谎由你决定，但如果你不得不这么做，以下是有效的方法。
 
-Watch
+
 
 *这篇经典的帖子被重新发布，是我们在 Lifehacker 的* [*邪恶周*](https://lifehacker.com/welcome-to-lifehackers-fifth-annual-evil-week-1647621043) *系列的一部分，在这里我们看到了做事的阴暗面。知道邪恶意味着知道如何打败它，所以你可以用你的邪恶力量做好事。想要更多吗？查看我们的* [*恶周标签页*](http://lifehacker.com/tag/evilweek) *。*
 

@@ -4,7 +4,7 @@
 
 如果你把便宜的衣服带回家，却不小心对待它们，你很可能不得不马上换掉它们。然而，如果你适当地护理你的衣服，它们会穿得更久，从长远来看，这将为你节省更多的钱。
 
-Watch
+
 
 ***本帖原载于***[***DealNews***](http://dealnews.com/features/How-to-Make-Your-Clothes-Last-Longer/554888.html)***。**T15】*
 

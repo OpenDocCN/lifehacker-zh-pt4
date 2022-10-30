@@ -4,7 +4,7 @@
 
 通常你应该在工作中接受新的任务和责任来展示你的潜力，但有时机会来了，可能只会让你陷入困境，而不会促进你的职业发展。这里有四种情况，你最好说不，谢谢。
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](https://www.themuse.com/advice/4-times-you-should-say-no-to-additional-responsibilities) ***。**T15】*
 

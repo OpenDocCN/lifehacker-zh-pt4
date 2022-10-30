@@ -4,7 +4,7 @@
 
 Raspberry Pi 是一款非常棒的设备，事实上它是开源的，这意味着它有各种各样很棒的附件。所以，让我们为你的各种 DIY 项目建立一个最佳配件清单。
 
-Watch
+
 
 我们已经谈论了树莓酱 [一吨](https://lifehacker.com/a-beginners-guide-to-diying-with-the-raspberry-pi-5976912) 因为它对每个人来说都很容易使用。自从它首次推出以来，已经有大量的配件问世。其中一些增加了基本功能，如蓝牙或 Wi-Fi，但其他的增加了 [疯狂的功能，如摄像头](http://lifehacker.com/the-raspberry-pi-camera-board-turns-your-pi-into-a-cust-505535392) 。让我们弄清楚哪些是最好的。
 

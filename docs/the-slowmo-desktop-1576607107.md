@@ -4,7 +4,7 @@
 
 Flickr 用户 [何塞](https://www.flickr.com/photos/59423015@N05/) 组装了这个好看的 Linux Mint 桌面，桌面上有媒体控件，底部有一个简单的启动器，还有足够的工作空间。他是这样设计的。
 
-Watch
+
 
 何塞(在他的 Flickr 页面上用西班牙语)解释了他是如何考虑许多发行版的，但最终选择了 [【薄荷】](http://linuxmint.com/)[肉桂](http://cinnamon.linuxmint.com/) ，因为他的东芝卫星 XP 已经死亡，是时候继续前进了。他琢磨了一会儿，选定了这个设计。如果您想要相同的设置，以下是您需要的:
 

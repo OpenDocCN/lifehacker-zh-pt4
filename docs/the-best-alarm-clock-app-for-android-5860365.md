@@ -4,7 +4,7 @@
 
 你的安卓手机自带一个非常好用的闹钟和定时器，所以你可能不会想再下载一个。这可能是真的，但如果你正在寻找更多的功能，更多的定制选项，以及比你的股票时钟更强大的闹钟，温柔的闹钟就在这里-我们认为它是最好的。
 
-Watch
+
 
 ### [轻柔的报警](https://play.google.com/store/apps/details?id=com.mobitobi.android.gentlealarm&hl=en)
 

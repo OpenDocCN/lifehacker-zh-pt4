@@ -4,7 +4,7 @@
 
 如果头条新闻是可信的，消费者正在成群结队地放弃传统的电视订阅，拥抱越来越容易使用的流媒体工具和应用程序，并在他们最喜欢的节目播出后几分钟内观看它们。但事实实际上要复杂得多。
 
-Watch
+
 
 ***本帖原载于***[***DealNews***](http://dealnews.com/features/Running-With-Scissors-7-Myths-About-Cutting-the-Cable-Cord/1023333.html)***。*T15】**
 

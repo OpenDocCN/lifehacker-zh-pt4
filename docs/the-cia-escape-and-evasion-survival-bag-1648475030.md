@@ -4,7 +4,7 @@
 
 中情局特工要做好一切准备，有时这意味着依靠有限的资源生存。他们的生存工具包很小，但包括出城住一段时间所需的一切。
 
-Watch
+
 
 这个包看起来像一个 [Maxpedition M-2 腰包](http://www.maxpedition.com/store/pc/M-2-WAISTPACK-p152.htm) 。这是里面的内容:
 

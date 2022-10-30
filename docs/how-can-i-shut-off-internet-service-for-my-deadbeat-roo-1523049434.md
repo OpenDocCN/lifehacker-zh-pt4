@@ -4,7 +4,7 @@
 
 *赖账的室友？你不必忍受他们拖欠的支票。自动关闭他们的互联网。只要有一点编码技巧，你就能做到。* [*栈交换*](http://cooking.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=superuser-105) *的专家告诉你怎么做。*
 
-Watch
+
 
 我有几个 [**的室友**](https://lifehacker.com/how-can-i-spot-a-horrible-roommate-before-i-move-in-732317810) **，他们每个月都和我分摊我的网费。有时他们忘了付钱给我，我不得不缠着他们要钱。如果纠缠了三天，他们仍然没有付款，我会在我的基于 Unix 的**[](http://lifehacker.com/a-command-line-primer-for-beginners-5633909)****路由器中创建一个防火墙规则，阻止流量流向他们的 Mac 地址。事实证明，这对于让拖欠房租的室友掏钱非常有效。****
 

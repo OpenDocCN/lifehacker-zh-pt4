@@ -4,7 +4,7 @@
 
 曾经想要在不离开键盘的情况下控制你的 Mac 吗？阿尔弗雷德是一个应用程序启动器和实用工具，使这成为可能。只需一点点设置和专业知识，您就可以使用 Alfred 在任何地方搜索任何内容、移动文件、控制软件等等，而无需将手从键盘上拿开。
 
-Watch
+
 
 Alfred 现在是我们选出的 Mac 上最好的应用程序启动器，虽然它很容易使用，但你如何使用它并不总是显而易见的。如果你想超越启动应用程序和搜索文件，你将需要 [阿尔弗雷德](http://www.alfredapp.com/) (免费)和[power pack](https://buy.alfredapp.com/)(27 美元)。在你 [安装好一切](http://support.alfredapp.com/tutorials:your-first-5-minutes) 之后，是时候开始摆弄它了。
 

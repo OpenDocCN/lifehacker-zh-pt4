@@ -4,7 +4,7 @@
 
 每当我们看到一个 [Craigslist 谋杀案](http://jalopnik.com/police-man-charged-with-murder-of-student-killed-him-o-1702804264) 时，我们就被提醒，通过互联网从陌生人那里买东西可不是在公园散步。但是这十个建议可以让它变成一个。
 
-Watch
+
 
 * * *
 

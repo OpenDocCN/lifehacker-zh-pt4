@@ -4,7 +4,7 @@
 
 像炖肉和贾斯汀比伯一样，冷冻蔬菜需要改变形象。他们得到了不好的评价，但事实上，冷冻蔬菜是一种经济实惠的方式，可以全年获得你最喜欢的产品，在某些情况下，他们 [比他们的新鲜同行](http://lifehacker.com/is-frozen-produce-less-nutritious-than-fresh-1493535430#_ga=1.66918958.1858201741.1399074092) 更好地保留了营养。这个过程虽然比 [<small>冷冻水果</small>](https://lifehacker.com/how-to-properly-freeze-fruit-for-longer-lasting-freshne-1692241279) 更复杂，但还是相当容易的。
 
-Watch
+
 
 ### **为什么要冷冻蔬菜？**
 

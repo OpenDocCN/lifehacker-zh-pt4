@@ -4,7 +4,7 @@
 
 无论你说的是 [预装 PC](https://lifehacker.com/can-i-reinstall-windows-on-my-computer-without-the-bloa-1512345361)[安卓手机](http://lifehacker.com/how-to-fix-androids-biggest-annoyances-2013-edition-1488535064) ，还是其他小玩意，预装软件往往 [恶名昭彰](http://lifehacker.com/the-pc-decrapifier-detects-more-bloatware-385741) 。但是仅仅因为它是预装的，并不意味着它是膨胀的——每隔一段时间，你就会得到一个你可能从未见过的宝石。
 
-Watch
+
 
 我最近买了一台 Moto X，虽然大部分是库存，但包含了一些来自摩托罗拉的额外应用和功能。一拿到手机，我就开始从我的启动器中隐藏那些应用程序，包括不太描述性的 [摩托罗拉辅助](https://play.google.com/store/apps/details?id=com.motorola.contextual.smartrules2) 应用程序——事实证明这是一个有用的小工具。它可以在你睡觉时让你的手机静音，在你开会时自动回复(根据你的日历事件)，甚至在你开车时给你读短信。现在每天都在用。
 

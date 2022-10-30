@@ -4,7 +4,7 @@
 
 有时候，当你得到一份工作面试，你最终会和一个可能不是最好的面试官交谈。无论你遇到的是沉默寡言的面试官还是关注错误事情的缺乏经验的经理，知道如何应对桌子另一边的流氓对获得这份工作至关重要。
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](https://www.themuse.com/advice/3-steps-for-dealing-with-a-truly-terrible-interviewer) ***。*T15】**
 

@@ -4,7 +4,7 @@
 
 又是一年，又是一个版本的 OS X，不管你是爱小牛还是恨小牛，这都是 Mac 的大年。以下是我们关于苹果电脑的一些最好的帖子。
 
-Watch
+
 
 今年，我们讨论了[Mavericks 是否值得升级](http://lifehacker.com/should-i-upgrade-to-os-x-mavericks-1449627553)[解决常见问题](http://lifehacker.com/how-to-troubleshoot-the-four-most-common-oh-sh-t-mac-487080511)[构建自己的创意套件](http://lifehacker.com/build-your-own-adobe-creative-suite-with-free-and-cheap-5976725) 等等。
 

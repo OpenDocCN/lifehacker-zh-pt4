@@ -4,7 +4,7 @@
 
 几乎每个人都会尽可能地省钱，但是当你和朋友出去的时候，去拿优惠券会很尴尬。就好像存钱有什么不酷的。但是节俭并不意味着对每个人都一样，你永远不应该对此感到难为情。
 
-Watch
+
 
 ***本帖原载于***[***ReadyForZero***](http://blog.readyforzero.com/why-you-should-never-feel-self-conscious-about-being-frugal/)***。**T15】*
 

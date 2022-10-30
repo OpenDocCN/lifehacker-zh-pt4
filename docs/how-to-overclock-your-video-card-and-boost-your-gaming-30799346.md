@@ -6,7 +6,7 @@
 
 超频——或者说 [以高于设计运行速度的](https://lifehacker.com/a-beginners-introduction-to-overclocking-your-intel-pr-5580998)——[运行硬件是提升游戏性能的最佳方式之一](http://lifehacker.com/myth-vs-fact-how-much-can-free-pc-tweaks-improve-gami-5846435) 。以下是如何超频你的显卡，获得更快，更流畅的游戏，而不花一分钱。
 
-Watch
+
 
 超频可以让你物有所值，但它并不像点击几个“涡轮”按钮启动游戏那么简单。就像超频您的处理器一样，超频显卡需要一些耐心，一些稳定性测试，如果处理不当还会有一点风险。值得庆幸的是，只要你坚持这些指示，这是非常容易做到的。
 

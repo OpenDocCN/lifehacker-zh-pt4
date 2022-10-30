@@ -5,7 +5,7 @@
 亲爱的生活黑客，
 我不太喜欢吃甜食，所以我不太担心 [我的糖摄入量](https://lifehacker.com/what-sugar-actually-does-to-your-brain-and-body-5809331) ，但是我喜欢咸的食物。盐也一样不好吗？我应该对这些东西有什么健康顾虑？
 
-Watch
+
 
 真诚地，
 钠迷

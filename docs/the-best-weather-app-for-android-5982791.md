@@ -4,7 +4,7 @@
 
 Android 似乎有十亿种不同的天气应用程序可用，但当涉及到以易于阅读的方式获取基本信息时，我们更喜欢 1Weather。
 
-Watch
+
 
 ### [1 天气](https://play.google.com/store/apps/details?id=com.handmark.expressweather)
 

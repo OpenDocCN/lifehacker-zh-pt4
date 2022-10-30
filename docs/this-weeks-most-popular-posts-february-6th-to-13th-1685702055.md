@@ -4,7 +4,7 @@
 
 本周我们 [看了角色扮演游戏](https://lifehacker.com/the-surprising-benefits-of-role-playing-games-and-how-1684582789)[教自己编码](http://lifehacker.com/top-10-ways-to-teach-yourself-to-code-1684250889)[学了一些关于健身的杂凑真理](http://vitals.lifehacker.com/four-harsh-truths-that-will-make-you-a-healthier-person-1684899154)[提炼了我们的自我形象](http://lifehacker.com/four-phrases-we-all-say-but-should-remove-from-our-voc-1684047793) 。这里回顾一下。
 
-Watch
+
 
 ## [角色扮演游戏的惊人好处(以及如何入门)](http://lifehacker.com/the-surprising-benefits-of-role-playing-games-and-how-1684582789)
 

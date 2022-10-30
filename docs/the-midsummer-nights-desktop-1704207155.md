@@ -4,7 +4,7 @@
 
 现在是林荫大道上的夏天，这个漂亮的拱形 Linux 桌面带我们去海滩。我们的朋友 [dobbie03](http://kinja.com/dobbie03) 提交了它，下面是他的制作方法。
 
-Watch
+
 
 Dobbie03 最近从 Manjaro 转到 Arch proper(你可能还记得 [他最后的 Manjaro 桌面](http://lifehacker.com/the-distant-pyramid-desktop-1654404411) )并创建了这个美丽的工作空间来搭配它——一个让我们渴望温暖天气带来的所有美好事物的工作空间。如果你喜欢这个造型，下面是你重新打造它所需要的:
 

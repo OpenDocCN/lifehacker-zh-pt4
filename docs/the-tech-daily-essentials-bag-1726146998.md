@@ -4,7 +4,7 @@
 
 我们为各种类型的人推出了各种各样的包，但有时，你只需要一点点科技和简单。读者 Louie Tran 就是这样。
 
-Watch
+
 
 这个包是一个 [沃特菲尔德设计的](https://www.sfbags.com/products/staad-laptop-backpack)斯塔德背包。这是里面的内容:
 

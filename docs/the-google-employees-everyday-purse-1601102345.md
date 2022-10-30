@@ -4,7 +4,7 @@
 
 在任何科技公司工作都需要混合使用各种日常设备。谷歌高级政策分析师 Lauren Skelly 与 daily Carry 分享了她的日常包包。
 
-Watch
+
 
 她的包是一个 [凯特·斯派德的手提包](http://www.katespade.com/) 。这是里面的内容:
 

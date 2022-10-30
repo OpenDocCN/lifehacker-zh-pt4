@@ -4,7 +4,7 @@
 
 你知道拖延会以明显的方式影响你的生活:当你吃饭迟到时惹恼你的朋友，或者因为错过另一个截止日期而激怒你的老板。但是你可能没有意识到推迟任务也会影响你的钱包。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/2014/08/ways-procrastination-can-wreak-havoc-on-your-wallet/)***。**T15】*
 

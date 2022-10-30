@@ -4,7 +4,7 @@
 
 我们都有过这样的经历——一封意外的邮件，突然你的整个组织都在你的收件箱里塞满了愤怒的回复。每个人都会在工作中犯错，但你可以学习如何驾驭职场政治，以保持冷静，避免戏剧性事件。
 
-Watch
+
 
 ***本帖原载于***[***LinkedIn***](https://www.linkedin.com/pulse/article/20141002171034-9522584-how-to-win-at-office-politics-every-single-time)***。**T15】*
 

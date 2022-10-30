@@ -4,7 +4,7 @@
 
 自由职业是有益的，但它不适合心脏虚弱的人。是的，你可以做你喜欢的工作，并且(大部分)按照你自己的方式去做。你也可以扮演你可能不太喜欢的角色，比如营销人员、销售人员和簿记员，其中一些 [我们已经在](https://lifehacker.com/things-you-should-expect-if-you-start-freelancing-and-h-5889901) 之前谈过[。自由职业者面临的最大挑战之一是管理不稳定的收入。](http://lifehacker.com/what-do-i-need-to-do-now-that-im-making-some-legit-mone-5895507)
 
-Watch
+
 
 在我开始为 Lifehacker 工作之前，我做了 20 多年的自由计算机顾问和作家。我喜欢为自己工作，就像我喜欢和这里的人一起工作一样，但管理工作的繁荣和萧条周期从来都不容易。尽管如此，我还是学到了一些好的经验。
 

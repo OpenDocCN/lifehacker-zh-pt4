@@ -4,7 +4,7 @@
 
 似乎每周我们都会听到智能手机的安全漏洞。无论是 iOS 中的 [大规模 bug](https://gizmodo.com/why-apples-huge-security-flaw-is-so-scary-1529041062)[应用向公众泄露你的位置数据](http://valleywag.gawker.com/new-tinder-loophole-exposed-users-precise-physical-loca-1525980041) ，还是我们手机上的 [不安全密码](http://lifehacker.com/how-secure-is-the-passcode-on-my-phone-5992740) ，智能手机的安全都没有得到重视。然而，它应该是:在很多情况下，你可以通过一个人的手机了解他的整个生活。
 
-Watch
+
 
 ### 问题是:你的生活在你的手机上
 

@@ -4,7 +4,7 @@
 
 在花了几个小时精心修改你的求职信和简历后，你终于得到了一个与你梦想中的雇主进行面试的机会。但是你怎么知道你是否真的会融入公司文化呢？你可能需要问一些关键问题来了解这家公司是否适合你。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/2014/11/want-to-know-the-real-deal-with-a-companys-culture-6-interview-questions-you-should-ask/)***。*T15】**
 

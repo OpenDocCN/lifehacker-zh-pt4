@@ -4,7 +4,7 @@
 
 你到底有多理性？这个由[ClearerThinking.org](http://www.clearerthinking.org)主持的综合在线测试不仅会给你答案，还会告诉你属于 16 种推理风格中的哪一种，你的优势在哪里，以及如何提高你的思维技巧。
 
-Watch
+
 
 *如果您想直接跳到前面做测验，请点击* [*此处*](http://programs.clearerthinking.org/how_rational_are_you_really_take_the_test.html#.VYq4Eu1VhBc) *。*
 

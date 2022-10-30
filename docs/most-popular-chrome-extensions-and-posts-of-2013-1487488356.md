@@ -4,7 +4,7 @@
 
 2013 年对谷歌 Chrome 浏览器和产品来说都是重要的一年，大量有用的应用程序和插件保护你的隐私，帮助你提高工作效率，定制网络，让它为你服务。让我们回顾一下 2013 年与 Chrome 相关的最热门帖子。
 
-Watch
+
 
 你最喜欢的网络浏览器谷歌 Chrome 今年取得了长足的进步。我们 [预演了它的一些最具实验性的功能](https://lifehacker.com/the-best-experimental-chrome-features-you-should-check-478620752)[下载了一些很棒的隐私保护扩展](http://lifehacker.com/the-best-browser-extensions-that-protect-your-privacy-479408034)[与 Chrome 的新桌面应用](http://lifehacker.com/new-chrome-apps-run-on-your-desktop-offline-and-outsid-1258080268)[一起玩，被介绍到 Google Chromecast](http://lifehacker.com/chrome-unveils-the-chromecast-an-hdmi-stick-for-stream-897062318) 等等。
 

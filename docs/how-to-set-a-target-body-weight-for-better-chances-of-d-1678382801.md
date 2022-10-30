@@ -4,7 +4,7 @@
 
 大家都知道减肥很难。然而，最大的挑战是保持体重。知道你的目标体重，然后像你在那个体重一样吃，可以提供一个路线图，让你持续进步。原因如下。
 
-Watch
+
 
 为了了解人们看待节食的传统方式的一些问题，我们采访了两位专家，艾伦·阿拉贡和卢·舒勒，他们是《瘦肉减肥法》[](http://www.amazon.com/The-Lean-Muscle-Diet-Customized-ebook/dp/B00K8DSURY?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-set-a-target-body-weight-for-better-chances-of-d-1678382801&asc_source=&tag=kinjalifehackerlink-20)**的作者。**
 

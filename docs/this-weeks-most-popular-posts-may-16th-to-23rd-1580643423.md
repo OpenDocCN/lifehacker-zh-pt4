@@ -4,7 +4,7 @@
 
 这一周我们 [打败了我们的口臭](https://lifehacker.com/how-to-defeat-bad-breath-once-and-for-all-1578897788)[免费翻译单词](http://lifehacker.com/word-lens-the-real-time-translation-app-is-now-free-1579220195)[发现了 Google Now 能做的一切](http://lifehacker.com/top-10-awesome-features-of-google-now-1577427243)[了解了我们的钱在不同城市能走多远](http://lifehacker.com/how-far-your-paycheck-actually-goes-based-on-where-you-1580105016) 。这里回顾一下。
 
-Watch
+
 
 ## [如何一劳永逸战胜口臭](http://lifehacker.com/how-to-defeat-bad-breath-once-and-for-all-1578897788)
 

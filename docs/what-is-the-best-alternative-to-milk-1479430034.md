@@ -5,7 +5,7 @@
 亲爱的生活黑客，
 我听说 [牛奶实际上对你不好](https://lifehacker.com/you-dont-need-and-probably-shouldnt-have-milk-30781798) ，或者至少与许多替代选择相比是无益的。但是如果我不应该喝牛奶，最好的选择是什么？有好的吗？我听说过 most 的好消息和坏消息，所以我该如何决定？
 
-Watch
+
 
 真诚，被牛奶迷惑
 

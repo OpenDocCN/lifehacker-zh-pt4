@@ -4,7 +4,7 @@
 
 我们大多数人认为自己是精明的、见多识广的人，用敏锐的眼光看待世界。但事实是，当涉及到伪科学和骗术时，我们往往非常容易受骗。这是坏消息。好消息是，区分骗术和真正的科学是非常容易的。
 
-Watch
+
 
 ***本帖原载于***[***Amy Tuteur 博士的博客***](http://www.skepticalob.com/2014/05/six-red-flags-you-need-to-recognize-to-quack-proof-yourself.html) ***。*T15】**
 

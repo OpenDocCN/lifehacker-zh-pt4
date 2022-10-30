@@ -6,7 +6,7 @@
 
 本周是[CES](http://ces.gizmodo.com/)，这意味着成吨的记者涌入拉斯韦加斯报道以小工具为中心的事件。Tested 的威尔·史密斯分享了他的设置，包括基本的旅行装备和移动播客设备。
 
-Watch
+
 
 包里有一个 [人力车斜挎包](http://www.rickshawbags.com/) 。这是里面的内容:
 

@@ -4,7 +4,7 @@
 
 当我们头脑风暴时，我们试图想出大量的新想法，直到我们实现一个灵光乍现的时刻，但这可能不是最好的方法。相反，最好专注于小的创造性步骤，并使用类比来帮助联系想法。
 
-Watch
+
 
 ***本帖原载于*** [***快公司***](http://www.fastcompany.com/3032418/the-future-of-work/the-science-of-brainstorming) ***。**T15】*
 

@@ -4,7 +4,7 @@
 
 “追随你的激情”可能是常见的职业指导，但这是个好建议吗？成功也可以来自于完善你已经拥有的技能，而不是担心你的工作是否适合你。
 
-Watch
+
 
 ***本帖原载于*** [***快公司***](http://www.fastcompany.com/3026272/leadership-now/the-secrets-to-career-contentment-dont-follow-your-passion) ***。**T15】*
 

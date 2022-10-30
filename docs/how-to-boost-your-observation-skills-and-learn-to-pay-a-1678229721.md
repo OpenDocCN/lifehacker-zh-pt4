@@ -4,7 +4,7 @@
 
 很容易不关注这个世界。我们走路时会垂下眼睛，在超市里会避免目光接触。对于我们大多数人来说，我们的默认状态往往是忽视我们周围的事情。但是这样做让我们错过了灵感，也没有发展我们的好奇心。以下是如何训练自己对周围的世界多一点关注。
 
-Watch
+
 
 我们知道，出去走走 [可以激发创造力](https://lifehacker.com/study-explains-why-walking-can-boost-your-creativity-1569838156) 和 [小小的正念可以帮助](http://lifehacker.com/what-is-mindfulness-and-why-is-everyone-talking-abo-1502693174) 处理各种事情。但是如果你仍然盯着你的肚脐，这两个都没用。善于观察意味着观察人、情况和事件，然后 [批判性地](http://lifehacker.com/how-to-train-your-mind-to-think-critically-and-form-you-1516998286) 思考你所看到的。当我们忙于四处奔波时，我们错过了世界上的很多东西。虽然没有办法量化它如何影响我们的幸福，但很明显，你越关注，你就越有可能想出新的点子。如果没有别的，你会扩展你的世界观。首先，你得训练自己重新集中注意力。
 

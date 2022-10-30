@@ -4,7 +4,7 @@
 
 即使最近揭露出 NSA 正在监听，Tor 仍然可能是匿名上网的最佳方式。但是为了做好这件事，你必须采取一些预防措施。 [信息安全栈交易所](http://security.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=security-100) 的专家为安全使用 Tor 提供指导。
 
-Watch
+
 
 **众所周知**[](http://security.stackexchange.com/questions/37430/is-the-fact-that-tors-development-is-largely-government-funded-cause-for-concer?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=security-100)****在安全社区中，像**[**Tor**](https://www.torproject.org/)**这样多功能的工具很可能是情报机构强烈关注的目标。虽然美国联邦调查局已经承认对一起**[**Tor**](https://lifehacker.com/how-can-i-prevent-my-isp-from-tracking-my-every-move-5923017)**恶意软件攻击负责，但 SIGINT 组织的参与尚未得到证实。2013 年 10 月初,《卫报》发布了“**[**Tor stanked**](http://www.theguardian.com/world/interactive/2013/oct/04/tor-stinks-nsa-presentation-document)**”一份 NSA 演示文稿(2012 年 6 月)概述了当前和拟议的利用网络的策略，这消除了所有疑问。****
 

@@ -4,7 +4,7 @@
 
 如果有一样东西能让你在电脑上更快更有效率，那就是键盘快捷键。有 [很多键盘快捷键初学者都应该知道](https://lifehacker.com/six-keyboard-shortcuts-every-computer-user-should-know-5836288) ，但是这里有三个特定于 Windows 的快捷键，可以让你使用起来更加方便。
 
-Watch
+
 
 这是一个非常小的、基本的列表，而且远非详尽——但这是我在 Windows 中认为理所当然的三个快捷方式的列表。如果你想真正掌握键盘快捷键，请点击 查看我们的基础知识指南。Mac 用户应该看看 [这份提高生产率的快捷方式列表](http://lifehacker.com/7-productivity-boosting-keyboard-shortcuts-every-mac-us-1464245394) 。
 

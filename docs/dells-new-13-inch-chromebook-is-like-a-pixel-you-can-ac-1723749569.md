@@ -4,7 +4,7 @@
 
 当谷歌在 2011 年推出 Chromebooks 时，其“永远在云中”的理念让这些机器看起来像是 lite 笔记本电脑用户的入门套件。但是 [谷歌令人难以置信的像素线](http://gizmodo.com/googles-new-chromebook-pixel-dangerously-close-to-buya-1690797754#_ga=1.117106246.1523925811.1419643295) 升级了游戏。现在，戴尔遵循这一顶级思维，制造了一款你实际上负担得起的强大的 Chromebook。
 
-Watch
+
 
 戴尔的 Chromebook 13 不是为 ChromeOS 初学者设计的。它的起价为 400 美元，这意味着你得到的不仅仅是一台连接互联网的低分辨率机器。戴尔的新 13 英寸(实际上是 13.3 英寸)Chromebooks 是绝对出色的 330 美元 11 英寸型号 的真正继任者(之前的更新 [更面向教育](http://gizmodo.com/the-new-dell-chromebook-11-fixes-what-wasnt-broken-1685340880) )。它还配备了一个更新的 1080p 屏幕，以及一系列选项，您可以挑选并选择以获得您想要的功能和价格。
 

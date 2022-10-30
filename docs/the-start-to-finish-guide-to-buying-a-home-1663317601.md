@@ -4,7 +4,7 @@
 
 买房是一个重要的里程碑，排在许多人一生要做的事情清单的首位——也许也是他们财务恐惧的清单。但这肯定不一定是一次可怕或紧张的经历。随着时间的推移，护理和研究，你可以控制购房过程。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/knowledge-center/how-to-prepare-to-buy-a-house/)***。*T15】**
 

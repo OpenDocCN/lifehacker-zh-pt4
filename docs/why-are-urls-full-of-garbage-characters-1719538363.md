@@ -6,7 +6,7 @@
 
 你可能知道，URL(统一资源定位符)基本上是网站的“地址”。在你的浏览器中输入一个，你就可以立即阅读新闻，观看视频，安排 [粗略的 T2](http://gizmodo.com/hackers-threaten-to-expose-40-million-cheating-ashleyma-1718965334)等等。
 
-Watch
+
 
 这就是为什么 URL 最初被认为是容易记住的。然而，今天的大量网址长得令人难以置信，难以辨认。为什么会这样？这些字符是什么意思？
 

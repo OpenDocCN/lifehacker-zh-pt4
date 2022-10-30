@@ -4,7 +4,7 @@
 
 许多人抱怨，微软听取了他们的意见。该公司在 Windows 8.1 中重新推出了开始按钮。但是这个按钮不一定要留在你的任务栏中——有黑客可以重新隐藏它。 [*栈兑换*](http://superuser.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=superuser-95) *的超级用户都来帮忙了。*
 
-Watch
+
 
 有人知道如何在 Windows 8.1 中隐藏开始按钮，使任务栏看起来像在“旧”Windows 8 中一样吗？
 

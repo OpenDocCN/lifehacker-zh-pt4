@@ -4,7 +4,7 @@
 
 通过 [计划你的膳食](https://lifehacker.com/how-to-plan-your-weekly-meals-stress-free-30791921) 会有很多收获。你吃更好、更健康的食物，为自己做更多的烹饪，对你吃的东西花更多的心思，尝试新的食谱，同时在杂货店省钱。然而，这可能有点令人生畏；筛选食谱并列出清单。这就是为什么会有 app 帮忙的原因。本周，我们来看五个最好的。
 
-Watch
+
 
 本周早些时候 [我们问你，你认为哪些膳食计划应用程序最好](https://lifehacker.com/whats-the-best-meal-planning-app-1532034767) 帮你省钱，吃得更好，还有 [继续做美味的食物](http://lifehacker.com/how-to-save-money-on-groceries-and-keep-making-awesome-1442877348) 。你的提名远远超出了我们在此强调的范围，但以下是你的前五名，排名不分先后:
 

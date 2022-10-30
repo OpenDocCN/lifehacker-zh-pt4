@@ -4,7 +4,7 @@
 
 你曾经买过东西，然后在零售商的下一页传单上发现该商品正在打折吗？如果你像我一样是一个 [讨价还价的购物者](https://lifehacker.com/know-which-retailers-accept-coupons-from-competitors-1571845239) ，你知道这可能会让人抓狂。但幸运的是，许多主要零售商会很乐意在规定的时间内为你提供 [价格调整](http://lifehacker.com/know-these-major-retailers-online-price-match-policies-1501472181) 。
 
-Watch
+
 
 这里有 34 个价格调整(或价格保护)政策，让你成为一个更明智的购物者，并帮助你节省一些钱。
 

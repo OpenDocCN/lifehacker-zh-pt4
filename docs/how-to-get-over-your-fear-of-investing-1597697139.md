@@ -4,7 +4,7 @@
 
 前不久，我们的读者被问到(谈论你的个人财务旅程)“ [下一步是什么？](http://www.getrichslowly.org/blog/2013/03/08/ask-the-readers-what-is-the-next-step/)”j . d .在他的 [2009 年文章](http://www.getrichslowly.org/blog/2009/02/06/what-next-the-third-stage-of-personal-finance/) 中给出了答案:第三阶段是……**投资。**
 
-Watch
+
 
 ***本帖最初出现在*** [***慢慢变富***](http://www.getrichslowly.org/blog/2014/06/24/how-close-are-you/) ***。*T15】**
 

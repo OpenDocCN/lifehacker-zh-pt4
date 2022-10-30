@@ -4,7 +4,7 @@
 
 作为一名系统管理员和程序员意味着你需要为突发奇想的任何事情做好准备。读者 Scott Buffington 与我们分享了他的包，其中包括他工作(和生活)所需的一切。
 
-Watch
+
 
 巴芬顿的包是一个 [埃迪·鲍尔背包](http://www.amazon.com/Eddie-Bauer-Cargo-Pack-Black/dp/B00D457PV0/ref=sr_1_12?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-system-admins-everyday-bag-1604787906&asc_source=&ie=UTF8&keywords=eddie bauer backpack&qid=1405361289&sr=8-12&tag=kinjalifehackerlink-20) 。这是里面的内容:
 

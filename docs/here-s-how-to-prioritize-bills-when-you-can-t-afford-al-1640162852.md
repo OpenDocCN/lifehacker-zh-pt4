@@ -4,7 +4,7 @@
 
 一场疾病或失业会让原本运转良好的家庭预算不堪重负。你认为你已经考虑到了所有的基础——然后事情变得很糟糕，突然到期的付款比钱还多。你首先支付哪个帐单？
 
-Watch
+
 
 **本帖原载于**[](http://blog.credit.com/2014/09/what-order-do-you-pay-bills-when-you-cant-pay-them-all-96770/)****。****
 

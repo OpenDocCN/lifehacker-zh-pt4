@@ -4,7 +4,7 @@
 
 当一个心爱的人去世时，家庭成员和亲密的朋友留下来收拾残局并计划葬礼。在考虑成本的同时，必须做出如何让所爱的人安息的重要决定。这些决定将直接影响葬礼的经济负担。
 
-Watch
+
 
 ***本帖原载于***[***mybank tracker***](http://www.mybanktracker.com/news/2014/04/17/how-to-save-on-expensive-funeral-costs/)***。*T15】**
 

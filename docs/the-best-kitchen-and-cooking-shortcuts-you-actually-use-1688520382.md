@@ -4,7 +4,7 @@
 
 从 10 秒内将一个 [石榴去籽](https://lifehacker.com/deseed-a-pomegranate-in-10-seconds-using-a-wooden-spoon-5895852) 到 [用水瓶分离一个蛋黄](http://lifehacker.com/separate-eggs-with-a-water-bottle-and-keep-your-hands-m-5936889) ，厨房里有成千上万种节省时间的方法。但是我们中有多少人真正使用了这些技巧呢？让我们列出最好的。
 
-Watch
+
 
 多年来，我们已经展示了如此多的厨房捷径(互联网也是如此)，几乎不可能缩小哪些东西比其他东西更好，更重要的是，哪些东西实际上值得做，以节省你在厨房的时间。考虑到这一点，我们想听听你在厨房里都做些什么。我们会让它开始，但我们更感兴趣的是你的想法。**以下是如何格式化你的小费:**
 

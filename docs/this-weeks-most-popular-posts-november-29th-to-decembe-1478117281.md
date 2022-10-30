@@ -4,7 +4,7 @@
 
 本周我们 [感谢我们最喜欢的免费应用](https://lifehacker.com/the-50-free-apps-were-most-thankful-for-5962588)[想了太多我们撒尿的事](http://lifehacker.com/what-the-color-of-your-pee-says-about-your-health-1477171258)[学会了剥橘子的新方法](http://lifehacker.com/dont-peel-oranges-quickly-unroll-them-in-a-strip-inst-1475560174)[让我们的早晨更有效率](http://lifehacker.com/5-things-successful-people-do-before-8-am-1474846488) 。这里回顾一下。
 
-Watch
+
 
 ## [我们最感谢的 50 款免费应用](https://lifehacker.com/the-50-free-apps-were-most-thankful-for-5962588)
 

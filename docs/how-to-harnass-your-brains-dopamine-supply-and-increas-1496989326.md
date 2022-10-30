@@ -4,7 +4,7 @@
 
 我花了一个小时写这一段。提醒你一下，这一个小时花得并不值得。当然，我在工作——写作、删除、到处修改文字——但是我每小时写一段的速度更多的是因为缺乏动力，而不是犹豫不决。
 
-Watch
+
 
 ***本帖原载于***[***idonet 博客***](http://blog.idonethis.com/post/70179626669/the-science-of-motivation-your-brain-on-dopamine) ***。**T15】*
 

@@ -4,7 +4,7 @@
 
 许多年轻的毕业生背负着几千到几十万美元的学生贷款债务，学生们目前面临着巨大的财务挑战。除了已经很高的数字之外，学生贷款债务是一种棘手的债务，因为无论如何，它都与借款人或联署人在一起。
 
-Watch
+
 
 ***本帖原载于***[***ReadyForZero***](http://blog.readyforzero.com/what-happens-if-you-default-on-your-student-loans/)***。**T15】*
 

@@ -4,7 +4,7 @@
 
 这不是一张普通的桌子。相反，它是一个精心制作的铝覆盖的桌子，设计具有空气动力学的外观。
 
-Watch
+
 
 Imgur 用户 SirLanceOlong 用 0.5 毫米厚的铝板精心制作了这张桌子。角落仍然需要做，但除此之外，这是一个令人印象深刻的建设，花了 60 多个小时才建成木结构。可以在 imgur 上看到 [part 1](http://imgur.com/a/EuMRT) 和 [part 2](http://imgur.com/a/adumB) 中详细的 DIY 照片，以及下面链接的 Reddit 线程上的评论。
 

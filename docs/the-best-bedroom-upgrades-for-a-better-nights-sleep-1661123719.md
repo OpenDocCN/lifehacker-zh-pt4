@@ -4,7 +4,7 @@
 
 合适的家具和装饰可以把你的卧室变成一个放松的地方，帮助你睡个好觉。你对改造卧室有什么建议吗？
 
-Watch
+
 
 正如我们的 [办公室升级](https://lifehacker.com/the-best-budget-office-upgrades-money-can-buy-1493605408) 和 [厨房升级](http://lifehacker.com/the-best-kitchen-upgrades-money-can-buy-1498308611) 帖子一样，我们正在收集和分享对我们家中这个非常重要的房间的想法。
 

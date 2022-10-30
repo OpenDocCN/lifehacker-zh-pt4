@@ -4,7 +4,7 @@
 
 我们总有一天会经历艰难的金融时期，你准备得越充分，忍受的痛苦就越少。然而，当你觉得自己被财务问题压垮时，这并不会让事情变得更容易。
 
-Watch
+
 
 ***本帖原载于***[***ReadyForZero***](http://blog.readyforzero.com/how-to-get-through-the-tough-financial-times/)***。*T15】**
 

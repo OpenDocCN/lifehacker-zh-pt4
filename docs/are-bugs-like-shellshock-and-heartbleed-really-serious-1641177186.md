@@ -5,7 +5,7 @@
 亲爱的 Lifehacker，
 所以 Shellshock 是 [可能“攻破互联网”的最新漏洞](https://gizmodo.com/why-the-shellshock-bash-bug-could-be-even-worse-than-he-1639047786) 上次他们说的 [是关于心痛](http://lifehacker.com/what-the-heartbleed-security-bug-means-for-you-1560801201) 。我真的需要担心所有这些错误和漏洞吗，或者这是科技公司需要关心的事情吗？有人能用这些来对付我吗？
 
-Watch
+
 
 真诚地，
 安全怀疑论者

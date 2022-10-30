@@ -4,7 +4,7 @@
 
 Chrome 很快从谷歌的宠物项目一飞冲天，成为世界上最受欢迎的浏览器。以下是 Lifehacker 在 2014 年发布的一些最受欢迎的 Chrome 扩展和指南。
 
-Watch
+
 
 ## [Chrome 的 Lifehacker Pack:我们的基本扩展列表](http://lifehacker.com/lifehacker-pack-for-chrome-our-list-of-essential-chrom-880863393)
 

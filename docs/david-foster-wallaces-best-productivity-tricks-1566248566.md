@@ -4,7 +4,7 @@
 
 戴维·福斯特·华莱士 于 2008 年自杀，时年 46 岁，但尽管时间短暂，他仍然是 21 世纪最有创造力和最有趣的作家之一。我们来看看他是怎么做到的。
 
-Watch
+
 
 戴维·福斯特·华莱士最著名的作品是《T0》[《无限的玩笑》](http://www.amazon.com/Infinite-Jest-David-Foster-Wallace-ebook/dp/B000S1M9LY/ref=la_B000APPJ3S_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/david-foster-wallaces-best-productivity-tricks-1566248566&asc_source=&ie=UTF8&qid=1398188201&s=books&sr=1-1&tag=kinjalifehackerlink-20) ，但他作为散文家的成就却不亚于《T4》。在他的许多文章、书籍和演讲中，他阐述了自己对富有成效地生活的想法。更重要的是，他公开了自己的失败和挣扎，这使得向他学习更容易。
 

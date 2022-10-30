@@ -5,7 +5,7 @@
 亲爱的 Lifehacker，
 用火狐 [获取广告](https://blog.mozilla.org/advancingcontent/2014/02/11/publisher-transformation-with-users-at-the-center/) 和 Chrome 扩展 [刺探我](https://lifehacker.com/many-browser-extensions-have-become-adware-or-malware-1505117457) ，真的有一款浏览器在隐私方面比其他的好吗？如果我用 Opera 或 Safari 之类的东西来代替，有关系吗？我的浏览器是否在监视我在做什么并向我报告？
 
-Watch
+
 
 真诚地，
 关注浏览器

@@ -4,7 +4,7 @@
 
 每个人在职业生涯的某个时刻都会感觉到:我是个骗子，每个人都将发现这一点。质疑自己的资格并暂停是健康的，但之后你需要找到前进的方法并重拾信心。
 
-Watch
+
 
 ***本帖原载于***[***startup bros***](http://startupbros.com/21-ways-overcome-impostor-syndrome/)***。**T15】*
 

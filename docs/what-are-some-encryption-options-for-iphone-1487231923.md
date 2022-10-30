@@ -4,7 +4,7 @@
 
 你可以在 iPhone 上用你的标准邮件应用或应用商店的应用加密电子邮件，不需要越狱。苹果专家在 [*栈交换*](http://apple.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=apple-97) *提供一些小技巧。*
 
-Watch
+
 
 最近，我开始更加认真地对待安全问题。现在，我有电子邮件自动签名和加密，我有他们的密钥。以前我只在必要的时候这样做，但我正试图培养一种改变的意识。我对 GPG 在雷鸟、Outlook 或安卓系统上使用 K9 邮件和 APG 没有意见，但我不知道如何在[**iOS**](https://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-5771943)**上处理 GPG。**
 

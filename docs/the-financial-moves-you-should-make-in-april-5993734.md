@@ -4,7 +4,7 @@
 
 快乐 [理财扫盲月](http://twocents.lifehacker.com/your-guide-to-free-resources-for-improving-your-money-s-1557390942) ！我们经历了你每个月都应该做的 [财务行动](http://lifehacker.com/tag/financial-calendar) ，但是 4 月——税收月和财务知识月——是开始的好时机。以下是你在接下来几周应该做的事情。
 
-Watch
+
 
 你可以简单地为自己设置日历提醒，开始像思考社交日历一样思考你的“财务日历”。在你的日历上记下生日贺卡后，你永远不会忘记给你的妈妈寄一张——所以以同样的方式对待重要的任务，如为退休储蓄、准备税收和向慈善机构捐款。准备好迎接一个更有条理的月份(和一年)！
 

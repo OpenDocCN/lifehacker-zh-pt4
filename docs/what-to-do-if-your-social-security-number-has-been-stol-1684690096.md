@@ -4,7 +4,7 @@
 
 上周，健康保险公司 Anthem 丢失了超过 8000 万份患者记录，其中包括社会保险号、电子邮件和物理地址等敏感信息。余波已经开始，Anthem 的客户 [受到网络钓鱼诈骗](https://gizmodo.com/beware-anthem-hack-victims-are-getting-bombarded-by-ph-1684285394) 的狂轰滥炸。如果你是 Anthem 的客户——或者只是担心下一次被黑——以下是你需要做的保护自己的方法。
 
-Watch
+
 
 雪上加霜的是，看起来 [Anthem 甚至没有对被盗](http://www.wsj.com/articles/investigators-eye-china-in-anthem-hack-1423167560) 的数据进行加密(尽管法律要求他们这样做。)因此，如果法律要求保护您的数据的公司不愿意这样做，您如何填补空白？这里有一些你现在可以做的事情。
 

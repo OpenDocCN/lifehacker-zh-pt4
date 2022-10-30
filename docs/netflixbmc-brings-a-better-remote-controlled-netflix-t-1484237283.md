@@ -4,7 +4,7 @@
 
 有了一台好的家庭影院电脑，你可以 [播放任何东西](https://lifehacker.com/create-a-kickass-seamless-play-everything-media-cente-5900626)——尽管网飞总是有点困难。一个名为 NetfliXBMC 的新 XBMC 插件使这一过程比以往任何时候都更加简单和高效。下面是如何设置它。
 
-Watch
+
 
 已经有一些网飞插件了，但是因为网飞使用 Silverlight 和一些严格的 DRM，它总是很难与 XBMC 集成。由用户 AddonScriptorDE 创建的 NetfliXBMC 是我们见过的最好的附加组件，它只需要几分钟就可以设置好。
 

@@ -4,7 +4,7 @@
 
 一些信用卡附带费用，特别是如果他们提供 [甜蜜奖励计划](http://twocents.lifehacker.com/money-advice-not-everyone-agrees-on-using-credit-card-1594620799) 。如果你的卡有年费，打电话给运营商看看他们是否会免除它是值得的。
 
-Watch
+
 
 百万英里秘密说，许多银行将免除年费在第一年你有卡。他们建议 [简单地打电话问](https://millionmilesecrets.com/guides/how-to-get-your-annual-fee-waived)——当然是礼貌地。在某些情况下，发卡行可能不会免除费用，但会提供声明信用或奖励积分:
 

@@ -4,7 +4,7 @@
 
 每个人都喜欢一本好书，虽然小说可以教你很多关于生活的知识，但有时最能改变生活的书也会提供直截了当的生活建议。这里有一些很棒的书给你名单上的人。
 
-Watch
+
 
 我们没有读完这些书中的每一本书，但是在 之前，我们已经 [复习了](https://lifehacker.com/a-guide-to-the-good-life-the-best-life-hacks-from-the-1644415861)[。我们最近还](http://lifehacker.com/the-obstacle-is-the-way-the-right-mindset-for-finding-1665117695) [问了你](http://lifehacker.com/what-nonfiction-book-has-helped-improve-your-life-1659766842) 关于你最喜欢的改善生活的非小说类书籍，你们有很多建议。所以，这里有一些我们最喜欢的，也有一些你喜欢的。
 

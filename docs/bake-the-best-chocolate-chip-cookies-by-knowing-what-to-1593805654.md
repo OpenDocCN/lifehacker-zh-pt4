@@ -4,7 +4,7 @@
 
 有些人喜欢他们的巧克力曲奇又软又有嚼劲。其他人喜欢脆一点的。不管你喜欢什么样的饼干，只要简单调整一下配料，就能帮你烤出*你的*完美巧克力曲奇。
 
-Watch
+
 
 OZY 从几位专注于科学的食品专家(加州大学洛杉矶分校科学和食品教师 Kendra Nyberg，烹饪书作者 Tessa Arias，Serious Eats，和 [饼干视频](http://lifehacker.com/learn-the-science-of-baking-cookies-with-this-video-1469688810) )那里获得了见解，提出了制作不同种类饼干的经验法则。
 

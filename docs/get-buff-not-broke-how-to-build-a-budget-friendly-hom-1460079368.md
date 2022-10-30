@@ -4,7 +4,7 @@
 
 我以前身材很好。真的。两百个俯卧撑，二十个引体向上的那种形状。我会冲过 50 公里长的滑雪道。当然，那是当时的情况。
 
-Watch
+
 
 ***本帖原载于***[***money sense***](http://www.moneysense.ca/spend/get-buff-not-broke-2)***。**T15】*
 

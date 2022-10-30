@@ -4,7 +4,7 @@
 
 Android:这个来自我的彩色屏幕用户 [ogkillergreen](http://mycolorscreen.com/ogkillergreen/) 的主屏幕使用干净、易于阅读的小工具，让你一目了然地获得你需要的基本信息，同时看起来非常棒。
 
-Watch
+
 
 概念主屏幕是为主题定制的设计。您可以下载。包含主题的 zip 文件(注意:开发者有一个 Mediafire 链接，在绿色大按钮下面有正确的下载)。一旦你在手机上安装了它，以下是安装方法:
 

@@ -5,7 +5,7 @@
 亲爱的 Lifehacker，
 我喜欢 [在没有额外设备的情况下进行锻炼的想法](https://lifehacker.com/how-to-get-a-complete-workout-with-nothing-but-your-bod-5839197) ，但有些人告诉我，这不足以有效地真正锻炼肌肉。这是真的吗？体重练习有效吗？
 
-Watch
+
 
 真诚地，
 俯卧撑保罗

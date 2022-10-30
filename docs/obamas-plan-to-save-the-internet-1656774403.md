@@ -4,7 +4,7 @@
 
 好消息，美国。我们的总统巴拉克·欧巴马 [终于站出来支持互联网](http://www.whitehouse.gov/blog/2014/11/10/president-obama-urges-fcc-implement-stronger-net-neutrality-rules) ，并要求联邦通信委员会将其归类为公共事业。换句话说，他是在要求代理*而不是*允许像快车道(又名付费优先)或节流这样的破坏性事情。真是美好的一天！
 
-Watch
+
 
 至少，今天的新闻是朝着正确方向迈出的一大步。
 

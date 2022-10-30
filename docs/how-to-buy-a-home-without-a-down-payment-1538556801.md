@@ -4,7 +4,7 @@
 
 在大萧条之前，买房子不需要首付是相当容易的。但是抵押贷款危机和金融危机让事情发生了一些变化。信贷要求——尤其是住房贷款——大幅收紧。
 
-Watch
+
 
 ***本帖原载于***[***ReadyForZero***](http://blog.readyforzero.com/can-you-buy-a-home-with-no-down-payment/)***。**T15】*
 

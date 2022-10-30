@@ -4,7 +4,7 @@
 
 有些应用程序很受欢迎，因为它们很有用或能解决问题。其他人受欢迎是因为他们是应用程序的卡戴珊:他们因出名而出名。其他人都在使用他们，或者因为他们有大量的预算和负责为公司建立思想共享的“增长黑客”。在你注册、付款或放弃你的数据之前，让我们确保你这样做的理由是正确的。
 
-Watch
+
 
 为什么专注于团队的聊天应用 Slack 如此受欢迎，以至于它有多个专栏文章[它是如何“杀死电子邮件”](http://www.nytimes.com/2015/03/12/technology/slack-the-office-messaging-app-that-may-finally-sink-email.html) ，而它实际上只是(老实说)一个美化了的、不那么令人讨厌的形式的 [IRC](https://en.wikipedia.org/wiki/Internet_Relay_Chat) ？是什么让人们继续使用 Snapchat，即使公司 [根本不在乎你的安全](http://www.wired.com/2014/10/the-snappening-is-not-your-fault/) ，整个服务只是美化了的彩信——已经内置在你的手机里了？是什么鼓励应用程序开发者不断推出漏洞百出、制作拙劣的“自毁消息”应用程序尽管作为一个类别，他们声称“只是为了好玩”，但 [用安全和隐私承诺来推销自己](http://lifehacker.com/wiper-offers-encrypted-calls-and-text-messages-you-can-1659681612) 他们没有 [打算保留](https://lifehacker.com/whats-the-deal-with-all-these-messaging-apps-1561543034) ？
 

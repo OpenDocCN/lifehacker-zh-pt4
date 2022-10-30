@@ -4,7 +4,7 @@
 
 在 Flickr 上， [艾哈迈德](https://www.flickr.com/photos/130314598@N05/) 为 [火眼金睛](http://www.firewatchgame.com/) 而欢呼，这是一款即将到来的游戏，有望令人惊叹。他的桌面让我们从一个美丽的制高点看日落——但它也帮助他启动应用程序和检查他的系统状态。他是这样设置的。
 
-Watch
+
 
 我们可以想出更糟糕的方法来等待一个看起来很棒的新游戏的发布，而不是把你的桌面献给它(还记得 [命运桌面](http://lifehacker.com/the-destiny-desktop-1605919811) ？)
 

@@ -4,7 +4,7 @@
 
 我做到了。我去了一个不认识任何人的鸡尾酒会，成功地聊了两个小时。(不是对自己。我实际上和其他人交谈过。)我从来不擅长那种你应该走进一个满是陌生人的房间，然后带着“人脉”走出去的社交活动。
 
-Watch
+
 
 ***本帖原载于***[***Inc***](http://www.inc.com/kimberly-weisul/how-to-work-a-room-the-only-strategy-you-need.html)***。*T15】**
 

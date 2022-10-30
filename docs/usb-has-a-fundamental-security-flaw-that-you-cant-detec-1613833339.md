@@ -4,7 +4,7 @@
 
 我们都依赖 USB 来互连我们的数字生活，但《连线》 首先报道的新研究 [揭示，在不起眼的通用串行总线的工作方式中存在一个根本的安全缺陷，它可以被用来对任何计算机进行破坏。](http://www.wired.com/2014/07/usb-security/)
 
-Watch
+
 
 [《连线》报道](http://www.wired.com/2014/07/usb-security/) 安全研究人员 Karsten Nohl 和 Jakob Lell 对控制 USB 基本通信功能的固件进行了逆向工程。不仅如此，他们还编写了一款名为 BadUSB、 [的恶意软件，可以](http://www.wired.com/2014/07/usb-security/) “安装在 USB 设备上，完全接管电脑，无形中改变从记忆棒安装的文件，甚至重定向用户的互联网流量。”
 

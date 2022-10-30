@@ -4,7 +4,7 @@
 
 工作时很容易迷失在杂草中。虽然低头有它的位置，但抬头也同样重要:反思事情的进展，考虑替代策略，问自己一些困难的、高层次的问题。怎么才能退一步看大局？
 
-Watch
+
 
 ***本帖原载于*** [***快公司***](http://www.fastcompany.com/3036143/how-to-be-a-success-at-everything/5-strategies-for-big-picture-thinking) ***。**T15】*
 

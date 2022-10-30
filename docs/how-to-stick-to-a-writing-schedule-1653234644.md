@@ -4,7 +4,7 @@
 
 俗话说，熟能生巧，你写得越多，就越擅长。无论你是为了钱而写博客还是 [为自己写作](http://lifehacker.com/how-writing-regularly-changed-my-life-and-how-you-can-746865755)——也许是为了 11 月的 [NaNoWriMo](http://nanowrimo.org/) ，国家小说写作月——这里有一些培养写作习惯的小贴士。
 
-Watch
+
 
 有规律的写作是对你的头脑和情绪健康有益的。然而，坚持一个时间表，总是面对那残酷的空白页面，会感觉像是一种折磨。然而，俗话说，“ [灵感是给业余爱好者的——我们其余的人只是出现并开始工作。](http://lifehacker.com/inspiration-is-for-amateurs-the-rest-of-us-just-show-u-5972825) “以下是让展示变得更容易的方法。
 

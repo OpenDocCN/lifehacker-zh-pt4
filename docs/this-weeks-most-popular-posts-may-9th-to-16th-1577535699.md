@@ -4,7 +4,7 @@
 
 本周我们 [学习了在好市多](https://lifehacker.com/what-to-buy-and-not-buy-at-costco-according-to-consu-1573463028) ， [获得了文字 911](http://lifehacker.com/you-can-text-911-in-an-emergency-starting-tomorrow-1576457059) ， [谈妥更好的折扣](http://twocents.lifehacker.com/this-phrase-will-help-you-negotiate-better-discounts-1573190685) ， [获得了我们的路由器](http://lifehacker.com/the-most-important-security-settings-to-change-on-your-1573958554) 。这里回顾一下。
 
-Watch
+
 
 ## [据《消费者报告》报道，在好市多买什么(和不买什么)](http://lifehacker.com/what-to-buy-and-not-buy-at-costco-according-to-consu-1573463028)
 

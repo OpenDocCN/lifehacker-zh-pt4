@@ -4,7 +4,7 @@
 
 在苹果 [让位于优胜美地](http://gizmodo.com/os-x-yosemite-first-impressions-apple-biggest-desktop-1585095300) 的视觉大修之后， [今年的台式机和笔记本电脑更新](http://gizmodo.com/the-10-most-important-things-from-apples-wwdc-keynote-1709889032) 更加低调或许并不奇怪。这是一个进步，而不是飞跃，但仍然有很多值得升级的小改进。
 
-Watch
+
 
 我已经和 OS X El Capitan 一起工作了几个星期，如果你想参与的话，公共测试版 将在 7 月份开放，但我不建议现在就在主要机器上安装它。这是我对即将完成的 Mac OS X 更新的第一印象。
 

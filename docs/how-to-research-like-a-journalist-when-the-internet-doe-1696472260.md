@@ -4,7 +4,7 @@
 
 互联网上充满了信息，但有时你寻找的东西需要不同的方法。无论你是在寻找公共记录、家谱，还是真正的旧档案，是时候像老派记者一样做一些线下挖掘了。以下是开始的方法。
 
-Watch
+
 
 毫无疑问:互联网是研究人员的梦想。无论你是 [寻找科学信息](https://lifehacker.com/how-to-conduct-scientific-research-on-the-internet-wit-5985561)[反驳争议](http://lifehacker.com/how-to-determine-if-a-controversial-statement-is-scient-5919830) ，还是 [只是想加强自己的论点](http://lifehacker.com/how-to-find-evidence-to-support-any-argument-1454627815) ，这个网是巨大而无限的。然而，有些东西还没有数字化。
 

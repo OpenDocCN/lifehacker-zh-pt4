@@ -4,7 +4,7 @@
 
 LinkedIn 是你职业生涯中最好的社交网络，无论你是想用它来 [找工作](https://lifehacker.com/how-can-i-make-linkedin-more-useful-in-landing-a-job-1066870899) 还是只是 [提高你的就业率](http://lifehacker.com/how-to-use-linkedin-to-increase-your-hirability-5836507) 。然而，它也不是没有烦恼。如果你特别为找工作准备你的个人资料，在一切变得糟糕之前，你会想先去 LinkedIn 上看看这个设置。
 
-Watch
+
 
 该设置与“祝贺新工作！”LinkedIn 和你的电子邮箱里随时都会弹出通知。如果你不改变它，每次你调整你的头衔(比如说，更具体地说明你下一步想找的工作)，LinkedIn 都会告诉你的社交网络，他们会认为你刚刚找到了一个新职位。如果你正在找新工作，正在面试公司，同时在调整你的 LinkedIn 个人资料，那就不太好了。
 

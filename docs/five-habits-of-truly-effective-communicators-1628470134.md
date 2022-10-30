@@ -4,7 +4,7 @@
 
 我们都有提高沟通技巧的空间——有些人想要更加自信，有些人需要冲突管理方面的帮助，还有一些人发现很难在群体环境中说出自己的想法。这里有一些技巧可以帮助你表达你的想法。
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](https://www.themuse.com/advice/5-habits-of-truly-amazing-communicators) ***。*T15】**
 

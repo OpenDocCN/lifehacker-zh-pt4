@@ -4,7 +4,7 @@
 
 这是企业家的福音——雇佣那些比你聪明的人。这种智慧并不神秘。聪明、熟练的员工要求管理少， [不断教你新东西](http://www.inc.com/jessica-stillman/one-surprising-sign-youre-cut-out-to-be-an-entrepreneur.html) ，撑起你的弱点。虽然这个经常重复的技巧背后的基本原理很简单，但是执行起来却不简单。
 
-Watch
+
 
 ***本帖原载于***[***Inc***](http://www.inc.com/jessica-stillman/7-tips-for-working-with-people-who-are-smarter-than-you.html)***。**T15】*
 

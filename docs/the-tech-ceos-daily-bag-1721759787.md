@@ -4,7 +4,7 @@
 
 成为 Automattic 的首席执行官并非易事，但 Matt Mulenweg 分享了他随身携带的工具，以完成日常工作。
 
-Watch
+
 
 包里是一个 [Hardcraft 老式学校笔记本电脑](http://www.hardgraft.com/products/oldschool-classic) 。这是里面的内容:
 

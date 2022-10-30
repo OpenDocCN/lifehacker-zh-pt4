@@ -4,7 +4,7 @@
 
 *技能:检查。学历:查。体验:没那么多。当你知道自己有能力胜任一份工作，但工作要求却说你太没有经验时，你该怎么办？职场专家在* [*栈交流*](http://workplace.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=workplace-115) *提供一些有益的建议。*
 
-Watch
+
 
 刚刚因为我没有展示出所需的工作经验年限而被拒绝，我对招聘经理如何理解“工作经验年限”有一些疑问。
 

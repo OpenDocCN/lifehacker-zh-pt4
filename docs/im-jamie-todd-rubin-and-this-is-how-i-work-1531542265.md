@@ -4,7 +4,7 @@
 
 我第一次联系到 [杰米·托德·鲁宾](http://www.jamierubin.net/) 是在去年研究 [Evernote 大使](http://evernote.com/community/) 的时候。(杰米是 Evernote 的无纸生活大使，这意味着他热衷于使用 Evernote 和其他程序来数字化地生活。)来了解一下，他还是一位多产的科幻小说作家、博客作者、软件开发人员和两个孩子的父亲。我采访了杰米，了解他关于每天写作、无纸化办公等等的建议。
 
-Watch
+
 
 **地点:**弗吉尼亚州福尔斯彻奇
 **当前 Gig** :软件开发人员、科幻作家、Evernote 大使 [无纸生活](https://lifehacker.com/ask-an-expert-all-about-paperless-living-5985091)

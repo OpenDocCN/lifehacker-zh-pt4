@@ -4,7 +4,7 @@
 
 本周我们 [在 Costco 无会员购物](https://lifehacker.com/the-best-things-you-can-do-at-costco-without-a-membersh-1591680306)[做了一个史诗煎饼](http://lifehacker.com/make-a-giant-pancake-in-your-rice-cooker-1592047844)[学习了一些重要的夏季安全提示](http://lifehacker.com/properly-remove-a-tick-with-this-illustrated-guide-1590681271)[发现了最好的大学学位](http://lifehacker.com/the-college-degrees-with-the-worst-return-on-your-mone-1592079715) 。这里回顾一下。
 
-Watch
+
 
 对于那些愿意支付会员费的人来说，好市多是一个大批量购买和获得许多服务的好地方。然而，如果你不想付现金,《明智的面包》建议你不用卡也可以享受很多东西。
 

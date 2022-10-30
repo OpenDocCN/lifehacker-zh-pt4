@@ -4,7 +4,7 @@
 
 你读这篇文章是因为在某个地方，你花的钱比你所有的钱都多。你可能没能控制住自己的冲动。或者也许你对意外毫无准备，最终因为医疗费用而欠下如此多的债务，以至于你挣扎着度过难关。不管是什么情况，你有债务，它需要被消除。
 
-Watch
+
 
 ***本帖最初出现在***[***Johnny money seed***](http://www.johnnymoneyseed.com/debt-free/guide-becoming-really-really-ridiculously-debt-free/)***。*T15】**
 

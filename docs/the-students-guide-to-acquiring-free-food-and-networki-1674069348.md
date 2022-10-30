@@ -4,7 +4,7 @@
 
 你是学生吗？你今天吃过免费餐了吗？如果没有，你就错过了。几乎在任何一所大学校园里，到处都有免费的食物等待采摘。读者
 
-Watch
+
 
 查看下面来自 [Hackerspace](http://hackerspace.lifehacker.com/) 的完整帖子，了解所有提示。
 

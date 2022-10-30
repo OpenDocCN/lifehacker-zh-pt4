@@ -4,7 +4,7 @@
 
 上大学前的那个夏天可能是一场活动的旋风，尽管令人兴奋，但事情很容易被遗漏或推迟到最后一分钟。为了让事情变得更顺利，这里有一个你应该注意的事情的清单。
 
-Watch
+
 
 首先，祝贺你即将毕业！我们假设到这个时候，你已经处理好了一些事情，比如参观和申请大学，申请 [经济资助](https://lifehacker.com/a-beginner-s-guide-to-applying-for-college-financial-ai-1668023420) ，也许还对你被录取的大学做了一些决定。也许你已经读过一些关于如何充分利用大学经历的 [重要读物](http://lifehacker.com/seven-things-i-wish-i-knew-when-i-was-still-in-college-1538265078) 。现在，是时候计划接下来的几个月了。
 

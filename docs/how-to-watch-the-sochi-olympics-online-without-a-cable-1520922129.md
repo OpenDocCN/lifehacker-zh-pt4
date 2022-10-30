@@ -4,7 +4,7 @@
 
 索契奥运会正在如火如荼地进行，但希望在线观看比赛的美国人需要一个有线电视账户来查看 NBC 的报道。不过，还是有办法解决的。这是你需要做的。
 
-Watch
+
 
 除了英国的[【BBC】](http://www.bbc.com/sport/winter-olympics/2014)和加拿大的 [CBC](http://olympics.cbc.ca/online-listing/grid.html) 之外，你还有两个相当不错的选择，那就是 NBC 的付费视频流 ，但美国人无法在没有一些变通办法的情况下播放直播视频，因为他们被地区锁定了。正如 NPR 在上届奥运会期间指出的那样，利用服务来规避这一点有点 [法律和道德的灰色地带](http://www.npr.org/2012/08/03/158100714/annoyed-by-tape-delay-viewers-pry-into-bbcs-feed) ，所以使用它们要自担风险。
 

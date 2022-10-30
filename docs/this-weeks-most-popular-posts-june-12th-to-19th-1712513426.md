@@ -4,7 +4,7 @@
 
 这周我们 [换了密码](https://lifehacker.com/lastpass-hacked-time-to-change-your-master-password-1711463571)[变得更有魅力](https://lifehacker.com/become-more-charismatic-in-conversation-with-the-two-s-1711766133)[还了用过的物品](https://lifehacker.com/17-stores-that-let-you-return-used-items-for-a-full-ref-1710866911)[做了一些真正的自制拉面](https://lifehacker.com/this-graphic-shows-you-the-many-ways-to-make-real-ramen-1710220570) 。这里回顾一下。
 
-Watch
+
 
 ## [LastPass 被黑，现在修改你的主密码](http://lifehacker.com/lastpass-hacked-time-to-change-your-master-password-1711463571)
 

@@ -4,7 +4,7 @@
 
 史蒂文·麦柯里拍摄了一些我们这个时代最具标志性的照片。他一生都在周游世界，与人交往，用他令人惊叹的照片讲述引人入胜的故事。在这一系列视频 [中，他分享了他在那次激动人心的旅程中学到的一些东西。](http://petapixel.com/2015/01/26/words-wisdom-photographers-renowned-photojournalist-steve-mccurry/)
 
-Watch
+
 
 #### 摄影的一生
 

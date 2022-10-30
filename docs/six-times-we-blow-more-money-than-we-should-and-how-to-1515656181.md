@@ -4,7 +4,7 @@
 
 我们都知道预订去海滩的航班或喝下第二杯加薪后庆祝香槟后的感受——我们准备好消费了。像这样的机会无处不在。但诱人的情况，无论是朋友挥舞着周末度假或商店橱窗展示你梦想中的平板电脑，对你的钱来说都不一定是坏事。相反，我们可以选择将它们视为做出好的消费决定的机会。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/2014/01/times-we-blow-more-money-than-we-mean-to-and-ingenious-ways-to-stop/)***。**T15】*
 

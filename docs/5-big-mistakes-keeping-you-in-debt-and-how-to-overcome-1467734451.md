@@ -4,7 +4,7 @@
 
 好吧，你有债务。的确令人沮丧，但这不是世界末日。数百万人现在都在同一条船上，他们中的许多人正在朝着无债务的方向稳步前进。你也能做到。不管你是如何陷入债务的，你都可以摆脱它。
 
-Watch
+
 
 ***本帖原载于***[***ReadyForZero***](http://blog.readyforzero.com/mistakes-you-should-never-make-with-debt/)***。**T15】*
 

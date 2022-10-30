@@ -4,7 +4,7 @@
 
 iOS 通知对于让你及时了解应用程序中发生的任何事情非常有用，但它们很快就会变得令人不知所措。有了 [如果这个然后那个](https://ifttt.com) ，你 [现在可以提炼](http://lifehacker.com/ifttt-brings-app-automation-to-the-ipad-adds-collectio-1557202299) 那些通知，这样它们就更少打扰，更智能，更有用。以下是方法。
 
-Watch
+
 
 ### 为什么值得改进你的通知系统
 

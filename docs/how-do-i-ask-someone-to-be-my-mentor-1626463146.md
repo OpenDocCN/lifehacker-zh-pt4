@@ -5,7 +5,7 @@
 亲爱的生活黑客，
 我明白 [有一个导师](https://lifehacker.com/find-a-mentor-to-take-your-career-to-the-next-level-5990246) ，或者一个我可以从其经验中受益的人是多么有用。一旦我找到了某人，我该怎么问他们呢？你只是发邮件问他们，还是有更好的方法来说明你的情况？
 
-Watch
+
 
 诚心诚意，拼命求森派
 

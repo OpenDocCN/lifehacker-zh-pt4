@@ -4,7 +4,7 @@
 
 由于信用评分和信用报告被用于从潜在房东确定你的可靠性到你的新雇主检查你的一切，所以你知道什么时候你的不良记录会从你的报告中抹去是很重要的。让我们来看看。
 
-Watch
+
 
 ***本帖原载于*** [***准备零***](http://blog.readyforzero.com/how-long-does-a-bad-mark-stay-on-your-credit-report/) ***。**T15】*
 

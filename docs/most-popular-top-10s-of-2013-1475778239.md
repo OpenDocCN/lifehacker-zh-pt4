@@ -4,7 +4,7 @@
 
 在 Lifehacker，我们每天都分享大量的技巧，所以很容易错过一些。幸运的是，我们定期在每周十大系列的每个类别中收集我们最喜欢的技巧。以下是 2013 年最受欢迎的十大榜单。
 
-Watch
+
 
 今年我们 [黑掉了电子](https://lifehacker.com/top-10-things-you-can-upgrade-with-a-little-electronics-5987998)[学了一些 MacGyver 的小把戏](http://lifehacker.com/top-10-awesome-macgyver-tricks-that-speak-for-themselve-476433796)[用我们的电脑搞出了](http://lifehacker.com/top-10-computer-tricks-every-geek-should-know-500223907)[打印了很多信息图](http://lifehacker.com/top-10-infographics-and-cheat-sheets-that-make-life-eas-1154316001) 等等。
 

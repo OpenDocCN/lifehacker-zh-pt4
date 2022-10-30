@@ -4,7 +4,7 @@
 
 六月终于到来了——随之而来的是一种全新的乐趣:不用上学，夏天的周五在办公室，如果你幸运的话， [也许还有一两次](http://www.learnvest.com/2014/04/affordable-road-trips/) 的假期。但是在你去夏威夷或者去后院烧烤之前，让我们花点时间检查一下你的财务状况。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/knowledge-center/your-june-2014-financial-to-dos/)
 

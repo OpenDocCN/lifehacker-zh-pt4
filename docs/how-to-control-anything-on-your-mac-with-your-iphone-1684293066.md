@@ -4,7 +4,7 @@
 
 从移动设备上控制电脑并不是什么新鲜事，但在过去一年左右的时间里，iOS 和 Mac 上出现了一些著名的应用程序，让它成为一种真正令人敬畏的体验。让我们来看看几个最好的应用程序，让你在手掌上控制你的 Mac。
 
-Watch
+
 
 如果你是安卓用户， [看看这个指南](https://lifehacker.com/how-to-control-anything-on-your-pc-with-your-android-ph-1500063190) 把你的安卓设备和你的电脑整合起来。对于这一点，我们将坚持使用 iOS。
 

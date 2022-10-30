@@ -4,7 +4,7 @@
 
 这个世界充满了物质，但真正的生活发生在我们所有物质之间的空间。弗朗辛·杰伊的《更少的快乐》，一本极简生活指南将帮助你 [整理你的家](https://lifehacker.com/how-to-kick-your-clutter-habit-and-live-in-a-clean-hous-5957609) ，在你不需要的物质上少花钱，专注于你生活中重要的事情。
 
-Watch
+
 
 *这是 Lifehacker 新* [*书评*](http://lifehacker.com/book-reviews) *系列的一部分。不是每个生活帮都能在一篇博客文章中概括，所以我们决定回顾一些我们最喜欢的改变生活的书籍，更深入地探讨生活中最重要的话题。*
 

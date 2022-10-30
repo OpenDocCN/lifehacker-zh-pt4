@@ -4,7 +4,7 @@
 
 卡路里计数在跑步机屏幕上、食品标签上，甚至在 [餐厅菜单上](http://fivethirtyeight.com/features/calorie-counts-on-menus-wont-change-what-americans-eat/) 都很显眼。但是如果你正在努力减肥(或者只是监测你的饮食健康程度)，这些数字可能会误导你。
 
-Watch
+
 
 你需要制造卡路里赤字来达到减肥的目的；那很清楚。但是你通过饮食和锻炼调整的卡路里是不可能精确测量的。你是在做估计，而不是精确计算。那个[1003 卡路里的餐馆汉堡](http://www.calorieking.com/foods/calories-in-sandwiches-burgers-burger-aged-cheddar-bacon-without-sides_f-ZmlkPTE3NzQwMg.html) 可能大约是 1000 卡路里，但是你不能预算到最后三卡路里，或者甚至最后 103 卡路里。原因如下。
 

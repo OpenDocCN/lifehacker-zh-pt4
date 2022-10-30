@@ -5,7 +5,7 @@
 亲爱的 Lifehacker，
 真的有人会沉迷于网络吗？我的意思是，我们都喜欢我们的手机，也许我会在手机响的时候检查一下，但这就等同于对酒精或毒品上瘾吗？我听说有人 [沉迷于电子游戏](http://www.newsweek.com/south-koreas-video-game-addiction-68309) 以至于忘记吃饭或者 [喂孩子](http://www.thedailybeast.com/articles/2014/07/21/love-child-game-over-internet-addicts-let-their-baby-starve-to-death.html) 。有多少是真正的心理学，多少是技术恐惧炒作？
 
-Watch
+
 
 真诚地，
 粘在我的小玩意上

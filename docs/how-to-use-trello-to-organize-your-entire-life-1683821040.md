@@ -4,7 +4,7 @@
 
 [Trello](https://trello.com) 是一个很棒的项目管理工具， [让协作变得简单，我敢说，甚至有趣](https://lifehacker.com/trello-makes-project-collaboration-simple-and-kind-of-e-5839942) 。但是这个可视化列表工具可以做更多的事情，无论你是组织工作项目，家庭琐事，旅行计划，还是其他任何事情。以下是一些让特雷罗管理你整个生活的方法。
 
-Watch
+
 
 ### Trello 是如何工作的(以及为什么它很棒)
 

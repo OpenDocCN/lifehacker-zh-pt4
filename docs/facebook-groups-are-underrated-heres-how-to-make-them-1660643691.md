@@ -4,7 +4,7 @@
 
 脸书 [昨天推出了一款新的手机群组应用](http://lifehacker.com/facebook-launches-dedicated-groups-app-to-make-groups-e-1660199423) ，让许多人感到困惑。虽然很多人可能已经完全忘记了群，但它们实际上是脸书与朋友保持联系的最佳工具之一。另外，它们比新闻更私人化。
 
-Watch
+
 
 ### **群组比新闻订阅源(或列表)提供更多控制**
 

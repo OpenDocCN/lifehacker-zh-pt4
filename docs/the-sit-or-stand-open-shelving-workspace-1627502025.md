@@ -4,7 +4,7 @@
 
 今天的特色工作区不仅有许多内置的组织和一个愉快的自然氛围，它也是一个灵活的设置，可以在坐着或站着工作之间转换。
 
-Watch
+
 
 工作区属于 Flickr 用户月球上的女人。Flickr 上没有太多的设置细节，但看起来她建造了这个开放式书架加书桌的单元——比我们在 之前见过的 [更漂亮的版本——和一个配套的站立式书桌，这样她就可以避免](http://lifehacker.com/build-a-beautiful-shelving-unit-and-desk-out-of-pipes-5884071) [整天坐着的危险](http://lifehacker.com/this-graphic-explains-all-the-health-hazards-of-sitting-1595834900) 或者如果她想坐着工作。
 

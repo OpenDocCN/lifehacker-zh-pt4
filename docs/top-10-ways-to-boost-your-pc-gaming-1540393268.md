@@ -4,7 +4,7 @@
 
 [PC 游戏](https://lifehacker.com/why-im-a-pc-gamer-1471860201) 很棒，但是比 [主机游戏](http://lifehacker.com/why-im-a-console-gamer-1472081937) 要复杂一点。你有很多不同的硬件可供选择，可以调整以提高性能，还有其他方式来改善体验——只要你愿意投入时间和精力。这里是我们的 10 大电脑模式和技巧，以提高游戏质量。
 
-Watch
+
 
 ### 10.超频你的显卡
 

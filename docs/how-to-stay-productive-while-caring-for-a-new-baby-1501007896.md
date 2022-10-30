@@ -4,7 +4,7 @@
 
 最近，当我和妻子第一次做了父母时，我们做出了一个决定，在一周内分担抚养孩子的责任。虽然避免日托而喜欢早上额外的依偎是一件美好的事情，但同时工作和照顾婴儿可能是一个真正令人生畏的挑战。
 
-Watch
+
 
 <small>*这是一个由*</small>[<small>*Anish Majumdar*</small>](http://dashamerican.com/)<small>*组成的客串帖子。*T15】</small>
 

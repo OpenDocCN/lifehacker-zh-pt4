@@ -4,7 +4,7 @@
 
 向马修·凯普尼斯问好——你可能更熟悉他的名字 [、游牧民族马特](http://www.nomadicmatt.com/) 、旅行作家、《T4】 [如何以每天 50 美元环游世界](http://www.nomadicmatt.com/travel-tips/how-to-travel-the-world-on-50-usd/) 的作者，以及最大化你的旅行体验的全方位战略鉴赏家。
 
-Watch
+
 
 无论你是在寻找最便宜的酒店和机票，还是试图用几天的假期来满足自己的旅行欲望，马特都是寻求建议的人。有关于旅行的问题要问 Matt 吗？下一个小时他会在这里，所以问吧！
 

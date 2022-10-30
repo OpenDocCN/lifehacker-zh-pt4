@@ -4,7 +4,7 @@
 
 现在征税还是以后征税？不幸的是，“完全免税”不是一个选项。但当涉及到你的退休储蓄时，你确实可以控制何时支付给山姆大叔。
 
-Watch
+
 
 ***本帖原载于*** [***消费主义***](http://consumerist.com/2013/10/29/how-to-not-suck-at-picking-a-retirement-plan/) ***。**T15】*
 

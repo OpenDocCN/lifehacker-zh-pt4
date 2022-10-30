@@ -4,7 +4,7 @@
 
 教你的孩子早点在预算内工作会给他们带来很大的回报。即使在很小的时候，孩子们就已经准备好接受基本的想法，随着年龄的增长，将他们纳入你自己的预算计划有助于他们从一开始就养成良好的习惯。
 
-Watch
+
 
 我小时候没学会 [预算](https://lifehacker.com/top-10-tricks-for-building-the-perfect-budget-1485998627) 我的钱。预算的 [技巧](http://lifehacker.com/adult-budgeting-101-how-to-create-your-first-budget-in-1440446091) 稍后不难掌握，但我真正错过的是尽早养成良好理财习惯的机会。像大多数习惯一样，随着年龄的增长，这些习惯越来越难养成，坏习惯有机会生根发芽。
 

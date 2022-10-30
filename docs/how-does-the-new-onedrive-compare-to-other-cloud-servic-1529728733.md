@@ -5,7 +5,7 @@
 亲爱的 Lifehacker，
 我从来没有仔细看过 SkyDrive，但人们告诉我它真的很好。新的 [OneDrive](http://onedrive.com/) 服务值得一看吗？比 Dropbox 或者 box 之类的东西好吗？还是只是换个名字？
 
-Watch
+
 
 真诚地，
 OneDriver

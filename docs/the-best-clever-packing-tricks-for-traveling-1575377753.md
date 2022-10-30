@@ -4,7 +4,7 @@
 
 当你旅行时，你的打包方式可能是必不可少的。无论你是一个节省空间的人，还是喜欢东西尽可能有条理的人，你可能已经学会了一些技巧。这里有一些最好的想法。
 
-Watch
+
 
 我们之前已经分享了无数的打包技巧 [和策略](http://lifehacker.com/pack-your-suitcase-as-efficiently-as-a-flight-attendant-5788501) ，但今天我们的目标是编制一份最佳清单。
 

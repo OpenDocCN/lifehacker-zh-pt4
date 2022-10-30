@@ -4,7 +4,7 @@
 
 *本内容由* [*商业团队*](http://bit.ly/19x6duf) *为您带来，同一组作家和产品爱好者将您的日常交易汇总在一起:*[*Gizmodo Deals*](http://dealzmodo.kinja.com)*，*[*Kotaku Deals*](http://moneysaver.kinja.com)*和*[*life 我们独立于 Gizmodo 的编辑人员，为您带来最优惠的价格，并告诉您我们最喜欢的产品。——谢恩·罗伯茨，高级商务编辑*](http://dealhacker.kinja.com)
 
-Watch
+
 
 如果你打算在这个假期买一台新的笔记本电脑，你应该买一台 [MacBook Air](http://www.amazon.com/Apple-MacBook-MD761LL-13-3-Inch-VERSION/dp/B00746YTLY?asc_campaign=InlineText&asc_refurl=https://gizmodo.com/the-laptops-worth-buying-this-holiday-season-1457597408&asc_source=&tag=kinjagizmodolink-20) 。它的制造质量是同类中最好的，它 12-15 小时的电池寿命(在 13 英寸机型上)绝对让竞争对手尴尬，它的操作系统极其可靠和完善。此外，尽管你可能听说过苹果产品，但与竞争对手相比，它实际上是 [相当实惠的](http://www.amazon.com/Apple-MacBook-MD760LL-13-3-Inch-VERSION/dp/B00746YPQI?asc_campaign=InlineText&asc_refurl=https://gizmodo.com/the-laptops-worth-buying-this-holiday-season-1457597408&asc_source=&tag=kinjagizmodolink-20) 。
 

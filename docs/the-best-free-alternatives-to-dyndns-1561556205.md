@@ -4,7 +4,7 @@
 
 你可能听说过， [DynDNS 正在关闭其免费计划](http://lifehacker.com/dyndns-gets-rid-of-free-accounts-now-costs-25-per-yea-1560977109) ，这有点令人失望。尽管如此，如果你需要一个主机名来从任何地方访问你的家庭计算机，并且你不想为此花钱，它们并不是唯一的选择。以下是一些替代方案。
 
-Watch
+
 
 公平地说，对于 DynDNS 的人们来说，25 美元/年的要求并不算多，如果你在家里设置了一些你喜欢在旅途中访问的东西，比如 [一个用于流媒体的 Plex 服务器](http://lifehacker.com/how-to-stream-your-media-from-home-to-your-phone-anywhe-5821512) 、 [一个包含你所有重要文件的个人云](http://lifehacker.com/how-to-set-up-your-own-private-cloud-storage-service-in-5993596) ，或者也许是 [一个你在家里运行的小型网络服务器](http://lifehacker.com/geek-to-live-how-to-assign-a-domain-name-to-your-home-124804) 。尽管如此，你能花几个钱并不意味着你必须花，尤其是如果你需要的只是最基本的服务。如果你正在为失去你的 DynDNS 帐户而悲伤，让我们建立一个列表，列出一些很好的替代选择。
 

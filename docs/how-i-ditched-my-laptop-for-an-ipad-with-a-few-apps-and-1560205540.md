@@ -4,7 +4,7 @@
 
 如果你一直在考虑把你的 iPad 作为你的主要计算设备，你并不孤单。平板电脑已经变得 [如此强大和实用](http://lifehacker.com/how-tablets-are-actually-great-productivity-tools-5779982) 以至于你几乎可以抛弃你的台式机，转而使用 iPad——只用于日常任务，加上一些有用的应用程序和附件，你可能不会错过随身携带那台电脑。以下是我如何把我的平板电脑变成一台高效的机器。
 
-Watch
+
 
 ***本帖原载于*** [***亚洲效率***](http://www.asianefficiency.com/technology/going-ipad-only/) ***。**T15】*
 

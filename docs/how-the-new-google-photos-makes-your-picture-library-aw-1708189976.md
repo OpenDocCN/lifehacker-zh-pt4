@@ -4,7 +4,7 @@
 
 谷歌上周宣布了谷歌照片(Google Photos)，这是一种新的照片托管服务，结合了 Google+ Photos 的所有优点和高质量照片和高清视频的无限免费存储。无论你是第一次尝试，还是登录看看有什么不同，这里有什么新的，以及如何充分利用它。
 
-Watch
+
 
 谷歌照片令人印象深刻，但它并不完全是新的。这项服务之前与谷歌+ 的 [非常紧密地联系在一起，但仍然可以让你用你的照片做大量令人敬畏的事情](https://lifehacker.com/google-vs-dropbox-which-is-better-for-hosting-and-sha-1488854866) 。使用 Snapseed 的强大工具 进行快速照片编辑 [、照片滤镜、自动上传和“auto-awesome”(从你的照片创建 gif 和短视频)都是 Google+粉丝会认识的功能，但现在每个人都可以使用，无论他们是否有 Google+帐户。让我们来看看其他一些重大变化，这些变化使管理您的照片比以往任何时候都更容易。](http://lifehacker.com/google-edits-photos-with-snapseeds-powerful-tools-1300178913)
 

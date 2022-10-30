@@ -4,7 +4,7 @@
 
 千禧一代最常见的批评之一是声称我们自私和浅薄，我一直无法理解这一点。毕竟，这一代人见证了“走向绿色”成为一种基本期望，也让“社会公正”等术语变得司空见惯。
 
-Watch
+
 
 **本帖原载于**[***初级读本***](http://www.primermagazine.com/2014/earn/what-you-need-to-know-about-working-for-a-non-profit) ***。**T15】*
 

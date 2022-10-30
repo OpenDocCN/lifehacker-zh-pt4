@@ -4,7 +4,7 @@
 
 随着 iPad Air 2 从今天开始预售，你可能已经准备好把你的旧平板电脑扔到路边了。但是当技术的进步把你的石板扔进了垃圾抽屉， [不要仅仅卖掉](https://gizmodo.com/the-best-way-to-recycle-your-old-gadgets-5972639) 。将其回收到一个高性能的专业设备中。
 
-Watch
+
 
 以下是你的旧 iPad 的九种新用途，它们将永远取代它。
 

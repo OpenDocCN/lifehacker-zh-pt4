@@ -4,7 +4,7 @@
 
 微软本周发布了最新版本的 Windows，我们一头扎了进去。如果你错过了任何新闻，这里有你需要知道的一切的综述，来自我们和我们在 [Gizmodo](http://gizmodo.com/) 的朋友。
 
-Watch
+
 
 请务必查看我们的 [Windows 10](http://lifehacker.com/tag/windows-10) 标签，了解更多 Windows 10 发布优惠。
 

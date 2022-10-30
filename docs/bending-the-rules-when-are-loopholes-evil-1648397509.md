@@ -4,7 +4,7 @@
 
 邪恶以多种形式出现——一些比另一些更灰暗。今天，我们想谈论一种棘手的邪恶:什么时候漏洞、利用和“玩弄系统”是好的？
 
-Watch
+
 
 *这篇文章是我们 Lifehacker 的* [*邪恶周*](https://lifehacker.com/welcome-to-lifehackers-fifth-annual-evil-week-1647621043) *系列的一部分，在这里我们看到了做事的阴暗面。知道邪恶意味着知道如何打败它，所以你可以用你的邪恶力量做好事。想要更多吗？查看我们的* [*恶周标签页*](http://lifehacker.com/tag/evilweek) *。*
 

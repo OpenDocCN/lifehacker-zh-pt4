@@ -4,7 +4,7 @@
 
 所有的浏览器扩展都是有用的，但是有些对于我们的工作和娱乐来说是如此重要，以至于没有它们我们可能会哭。让我们列出这些超级有用的扩展。
 
-Watch
+
 
 我们已经为 [Chrome](https://lifehacker.com/lifehacker-pack-for-chrome-our-list-of-essential-chrom-880863393) 和 [Firefox](http://lifehacker.com/lifehacker-pack-for-firefox-our-list-of-the-essential-896766794) 的基本扩展准备了自己的指南，但是我们希望听到你的意见以及它对你的帮助。
 

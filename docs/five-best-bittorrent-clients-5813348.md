@@ -4,7 +4,7 @@
 
 BitTorrent 仍然是传输大文件的好方法，但是它的方便和效率取决于你用来播种和下载它们的应用程序。本周，我们将根据您的提名，来看看五个最好的 BitTorrent 客户端。
 
-Watch
+
 
 本周早些时候， [我们向您询问了最佳 BitTorrent 客户端](https://lifehacker.com/whats-the-best-bittorrent-client-1704316012)——您自己使用的客户端，以及您认为提供最佳功能和性能组合的客户端。你得到了大量的提名，但以下是你的前五名，排名不分先后:
 

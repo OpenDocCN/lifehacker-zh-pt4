@@ -4,7 +4,7 @@
 
 说到前进，我们都必须时不时地争取一份有挑战性的工作或项目。但是让别人在你身上冒险可能很难，尤其是在规避风险的环境中。有些人尝试“假装直到你成功”的方法，但是你应该假装多少呢？
 
-Watch
+
 
 ***本帖原载于*** [***快公司***](http://www.fastcompany.com/3041177/hit-the-ground-running/how-to-fake-it-till-you-make-it-without-being-deceitful) ***。**T15】*
 

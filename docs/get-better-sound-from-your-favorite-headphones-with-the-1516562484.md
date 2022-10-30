@@ -4,7 +4,7 @@
 
 [找到一副完美的耳机](https://lifehacker.com/how-to-choose-the-perfect-pair-of-headphones-5800772) 是一个挑战——尤其是因为有时候*没有*适合你的“完美”耳机。幸运的是，你可以用一点 DIY 魔法来调整任何耳机以适应你的口味。欢迎来到令人兴奋的耳机调制解调器世界。
 
-Watch
+
 
 您可以在一副耳机上执行任意数量的 mod，它们都有不同的好处。 [有些让你的耳机更舒适](https://lifehacker.com/make-your-tight-brain-squeezing-headphones-more-comfor-5886125) ， [有些把中音耳机变成高质量耳机](http://lifehacker.com/upgrade-a-pair-of-mid-range-headphones-to-an-audiophile-1456454424) ，还有一些只是稍微调整一下，让它们适合你的特定口味。在本帖中，我们将详细介绍几个具体耳机型号的例子(包括 [你的五个最爱](http://lifehacker.com/five-best-headphones-5949489) )，让你对那里有什么有个概念。如果你的型号没有列出来，一定要谷歌一下，看看有没有适合你的好型号！
 

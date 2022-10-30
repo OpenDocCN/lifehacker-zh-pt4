@@ -4,7 +4,7 @@
 
 我成年后最大的遗憾是，大学毕业后，我用债务来为自己的人生选择融资。这是我能做的最简单的事了。债务是 T2 的一个巨大错误。
 
-Watch
+
 
 ***这个帖子最初出现在*** [***这个简单的美元***](http://www.thesimpledollar.com/how-to-live-a-rich-modern-life-without-debt/) ***。***
 

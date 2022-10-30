@@ -4,7 +4,7 @@
 
 云存储巨头 Dropbox 刚刚 [大幅削减了](http://gizmodo.com/you-can-now-get-1tb-of-dropbox-pro-storage-for-just-10-1627380415) 的计划价格，以每月 10 美元的价格提供 1TB 的存储。而且不是一个人。在过去的一年里，大多数主要的参与者一直在降价和增加尺寸。那么今天最好的选择是什么呢？
 
-Watch
+
 
 存储的价格变得如此便宜，以至于你会考虑的大多数严肃的选择几乎都放弃了。Dropbox、MediaFire、微软 OneDrive 和谷歌 Drive 都以每月 10 美元或更低的价格提供 1TB 的服务。MediaFire 的 2.50 美元大甩卖是一笔令人难以置信的好交易；令人惊讶的是更多的人不谈论。相比之下，iCloud 和 Box 似乎是非常可悲的选择。
 

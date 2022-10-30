@@ -4,7 +4,7 @@
 
 无论是一位总是很到位的公共演说家，还是你一直敬仰的业内名人，我们都有自己钦佩的人，并希望与他们接触。但是你可能担心他们会认为你是个怪人。以下是如何告诉人们你欣赏他们的工作，而不会听起来像个讨厌鬼。
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](https://www.themuse.com/advice/how-to-tell-people-youre-a-fan-of-their-work-without-being-creepy) ***。*T15】**
 

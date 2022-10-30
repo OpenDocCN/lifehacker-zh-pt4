@@ -4,7 +4,7 @@
 
 我们在 Lifehacker 上涵盖了大量的 DIY 项目，它们很容易被错过或忘记，除非你正在做一个项目。为了让你想起一些伟大的作品，以下是我们 2013 年最受欢迎的 DIY 项目。
 
-Watch
+
 
 这一年我们学到了很多关于 [树莓派](https://lifehacker.com/turn-a-raspberry-pi-into-an-xbmc-media-center-in-under-5929913)[修拉链](http://lifehacker.com/how-to-fix-every-common-zipper-problem-5975700)[用 FreeNAS 8](http://lifehacker.com/turn-an-old-computer-into-a-do-anything-home-server-wit-510023147) ，甚至 [更新汽车音响](http://lifehacker.com/easily-add-an-auxiliary-port-to-an-old-car-stereo-for-a-5987818) 的知识。
 

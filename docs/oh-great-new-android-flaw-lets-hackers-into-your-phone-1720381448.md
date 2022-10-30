@@ -4,7 +4,7 @@
 
 防止你的任何电子产品被恶意软件淹没的最好方法就是保持个人警惕。“嗯，这个应用程序看起来很粗糙，来自我从未听说过的第三方应用程序商店。没有！”但是 Zimperium 的安全专家发现了一个新的漏洞，只需一条短信就可以攻击你的手机。
 
-Watch
+
 
 根据 Zimperium 研究员约书亚·德雷克 [通过 NPR](http://www.npr.org/sections/alltechconsidered/2015/07/27/426613020/major-flaw-in-android-phones-would-let-hackers-in-with-just-a-text) 的说法，这种可怕的恶意黑客行为是如何发生的:
 

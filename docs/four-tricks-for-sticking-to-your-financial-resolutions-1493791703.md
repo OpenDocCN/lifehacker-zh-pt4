@@ -4,7 +4,7 @@
 
 当涉及到你的钱的时候，你的新年决心是什么？你越早决定今年的财务重点，你就能越早开始实现你的目标。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/2013/12/4-secrets-to-making-and-sticking-to-a-money-resolution/2/)***。**T15】*
 

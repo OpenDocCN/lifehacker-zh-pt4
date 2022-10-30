@@ -4,7 +4,7 @@
 
 给某人你的名片并不意味着你将被添加到他们的联系人中。毕竟，每个设备上都有数字联系人，这使得其他人很容易与您联系。以下是如何超越纸质名片，进入某人的真实联系人列表。
 
-Watch
+
 
 传统的名片 [尚未消亡](https://lifehacker.com/is-the-business-card-irrelevant-5878524) ，但人们很少会在添加联系人后删除联系人。此外，纸质名片很容易丢失或放错地方。将您添加到某人的数字联系人最符合您的利益。我们已经谈论了如何 [建立一个良好的职业关系网](http://lifehacker.com/how-to-skip-the-sleaze-and-build-a-real-professional-ne-510256651) ，但是现在让我们来谈谈如何让保持联系更容易。交换名片后，应立即 [分享一张数字名片](http://lifehacker.com/share-a-digital-contact-card-right-after-you-exchange-b-1444012754) 。所需要的只是一些准备。
 

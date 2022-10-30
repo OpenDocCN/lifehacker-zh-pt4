@@ -4,7 +4,7 @@
 
 就在三年多以前，Lifehacker 在 Youtube 频道上只有六个视频。随着 2013 年底的临近，这一数字已增至 809。今年哪些最受欢迎？请继续阅读，寻找答案。
 
-Watch
+
 
 在 2013 年，我们解决了许多视频主题，如 [越狱 iphone](https://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-5771943)[制作树莓派媒体中心](http://lifehacker.com/turn-a-raspberry-pi-into-an-xbmc-media-center-in-under-5929913)[超频显卡](http://lifehacker.com/how-to-overclock-your-video-card-and-boost-your-gaming-30799346)[打造一体化复古游戏主机](http://lifehacker.com/how-to-turn-your-raspberry-pi-into-a-retro-game-console-498561192) 。
 

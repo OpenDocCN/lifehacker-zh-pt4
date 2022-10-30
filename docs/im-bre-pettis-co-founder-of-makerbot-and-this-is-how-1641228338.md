@@ -4,7 +4,7 @@
 
 在过去的几年里，3D 打印已经从一个小众爱好变成了一种主流实践，这在很大程度上归功于 Bre Pettis。Bre 联合创立了 MakerBot Industries ，这是将简单和 [廉价的 3D 打印机](http://lifehacker.com/how-to-get-started-with-3d-printing-without-spending-a-1340345210) 带给大众的先锋力量。
 
-Watch
+
 
 最近，Bre 辞去了 MakerBot Industries 的首席执行官一职，以在其母公司 [Stratasys](http://www.stratasys.com/) 下追求新的创新，该公司于 2013 年收购了 MakerBot。现在在 [Bold Machines](http://www.boldmachines.com/) ，英国建筑研究所正在探索 3D 打印机的新的可能性。我们采访了 Bre，了解他最喜欢的工具、常用的软件以及他的工作方式。
 

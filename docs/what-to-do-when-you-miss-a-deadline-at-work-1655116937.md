@@ -4,7 +4,7 @@
 
 这种事在我们大多数人身上都会发生——也许会计部门没有及时给你提供数据。也许你原以为要花 4 个小时的设计工作现在花了 14 个小时。也许玉米卷星期二变成了食物中毒星期二，你知道你不会让你的最后期限。
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](https://www.themuse.com/advice/what-to-do-when-you-know-youre-going-to-miss-a-deadline) ***。**T15】*
 

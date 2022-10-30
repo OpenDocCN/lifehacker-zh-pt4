@@ -4,7 +4,7 @@
 
 即使你已经持有了几十年的经纪账户，或者一直关注每日股市新闻，有一点是明确的:只有一个 [沃伦·巴菲特](https://lifehacker.com/warren-buffett-s-best-money-advice-1597691871)——你不是他。这没关系。我们都可以从中吸取教训。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/2014/08/investing-mistakes/)***。**T15】*
 

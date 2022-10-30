@@ -4,7 +4,7 @@
 
 Android L 最好的特性之一是它光滑的新界面。现在，承蒙我的彩色屏幕用户 [empol](http://mycolorscreen.com/empol/) ，你现在就可以在你的主屏幕上看到它。无需等待 OTA 更新。
 
-Watch
+
 
 这个设计是 Themer 应用程序的自定义外观。您可以从 [这里](https://drive.google.com/folderview?id=0B0pplGL-eKHEQndrRkRCd3hMN1E&usp=sharing) 下载并按照以下说明进行试用:
 

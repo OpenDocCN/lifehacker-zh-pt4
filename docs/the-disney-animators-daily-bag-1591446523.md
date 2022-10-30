@@ -4,7 +4,7 @@
 
 为迪士尼工作可不是闹着玩的。正如约翰·埃德加·帕克向我们展示的那样，当你在迪士尼卡通工作室的 CG 动画部门时，你需要为各种事情做好准备。
 
-Watch
+
 
 包里是一个 [菲尔森 72 小时公文包](http://www.amazon.com/exec/obidos/ASIN/B00IGUJAYS/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-disney-animators-daily-bag-1591446523&asc_source=&tag=kinjalifehackerlink-20) 。这里包括的内容既有日常职责也有航班。这是里面的内容:
 

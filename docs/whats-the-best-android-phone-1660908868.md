@@ -4,7 +4,7 @@
 
 现在是购买安卓手机的好时机，但是有很多选择。当然，你可以通过处理器速度、屏幕尺寸或电池寿命等复选框特性来判断它们，但这只是一部分情况。我们想要一个完整的观点，听听你认为今年哪些是最好的。
 
-Watch
+
 
 你可能记得这不是我们第一次问这个问题。我们去年搜出了 2013 年度最佳安卓手机，前年又搜出了。另外，距离 [我们听说有哪些安卓手机受你欢迎](http://lifehacker.com/the-most-popular-android-phones-among-lifehacker-reader-5979676) 已经有一段时间了。今年，我们稍微等了一会儿，直到年度最佳手机全部发布，并上市到人们手中。无妨的是, [棒棒糖现在也很流行,](http://lifehacker.com/updating-all-the-new-stuff-in-androids-l-release-prev-1595928268) 并且正在向许多设备发展。
 

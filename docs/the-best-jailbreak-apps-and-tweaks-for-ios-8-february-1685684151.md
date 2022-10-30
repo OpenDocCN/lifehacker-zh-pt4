@@ -4,7 +4,7 @@
 
 iOS 8 越狱 已经有一段时间了，这意味着应用程序和调整真的开始进入功能的甜蜜点。让我们来看看自从上次 我们 [看了它们](http://lifehacker.com/the-best-jailbreak-apps-and-tweaks-for-ios-8-1655227137) [以来最好的应用。](http://lifehacker.com/the-best-jailbreak-apps-and-tweaks-for-ios-8-part-ii-1663344687)
 
-Watch
+
 
 ### Acapella 将手势控制添加到音乐应用程序中
 

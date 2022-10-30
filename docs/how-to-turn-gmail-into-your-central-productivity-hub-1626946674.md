@@ -4,7 +4,7 @@
 
 我们中的大多数人使用 Gmail 作为我们主要的电子邮件服务，但这还远远不够。Gmail 可以作为你的待办事项列表、你的笔记板、你的提醒、你的列表制作工具，以及你高效工作所需的所有其他东西。
 
-Watch
+
 
 浏览器占用计算机资源，所以打开太多标签会影响性能。这是我讨厌做的事情。在过去的几个月里，我已经不再使用 [待办事项管理器](https://lifehacker.com/five-best-to-do-list-managers-5924093)[笔记应用](http://lifehacker.com/five-best-note-taking-applications-30803800) 以及其他通常与工作效率相关的服务。相反，我一直依赖我的 Gmail 标签作为单一的生产力枢纽。我是这样做的。
 

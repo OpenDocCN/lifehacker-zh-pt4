@@ -4,7 +4,7 @@
 
 一次又一次，我们听说钱是已婚夫妇的最大问题，是的，也是离婚的主要原因。这是大多数夫妇结婚前就存在的问题。
 
-Watch
+
 
 ***本帖原载于***[](http://consumerist.com/2014/02/04/how-to-not-suck-at-merging-your-money-when-you-marry/)****。*T15】***
 

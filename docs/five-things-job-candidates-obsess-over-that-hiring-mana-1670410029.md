@@ -4,7 +4,7 @@
 
 你有没有精心制作一份字体完美的简历？你可能关注了这个过程的错误方面，因为招聘经理只是在寻找合格的人。这里有五件人们过分强调但招聘经理实际上并不关心的事情。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/2014/12/whats-not-important-when-finding-a-job/)***。*T15】**
 

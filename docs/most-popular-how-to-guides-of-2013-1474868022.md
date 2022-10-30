@@ -4,7 +4,7 @@
 
 在 Lifehacker，操作指南是我们的生命线。我们喜欢一步一步地完成一个项目，这样你就可以用一个周末的时间做出令人惊叹的东西。以下是今年最受欢迎的方法。
 
-Watch
+
 
 今年我们发现了如何惊人地使用 Evernote 的[将一个树莓派变成了 XBMC 媒体中心](http://lifehacker.com/turn-a-raspberry-pi-into-an-xbmc-media-center-in-under-5929913)[扎根于我们的安卓手机](https://lifehacker.com/everything-you-need-to-know-about-rooting-your-android-5789397)[修复了 iOS 7 最大的烦恼](http://lifehacker.com/ios-7s-biggest-annoyances-and-how-to-fix-them-1334420963) 等等。
 

@@ -4,7 +4,7 @@
 
 你得到了一份新工作，你未来的雇主希望你签署一份竞业禁止协议。你应该吗？许多人并不真正理解这些协议意味着什么，或者他们需要问什么问题。
 
-Watch
+
 
 ***本文原载于*** [***快公司***](http://www.fastcompany.com/3031956/the-future-of-work/what-you-need-to-know-before-signing-a-noncompete-agreement) ***。**T15】*
 

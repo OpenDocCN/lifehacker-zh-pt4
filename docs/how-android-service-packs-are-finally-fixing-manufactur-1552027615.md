@@ -4,7 +4,7 @@
 
 昨天，HTC [宣布了它的新手机](https://gizmodo.com/htc-one-2014-review-faster-stronger-better-1550841872) ，以及一大堆新功能。一个不太受欢迎但可能更重要的功能是新的 [HTC 服务包](https://play.google.com/store/apps/details?id=com.htc.sense.hsp) 。这个后台应用程序允许 HTC 独立于 OTA 更新分发其 Sense 应用程序。HTC 现在是第三家追随这一令人鼓舞的趋势的公司:将应用和服务分开。
 
-Watch
+
 
 我们之前已经讨论过 [Google Play 服务](https://lifehacker.com/why-google-play-services-are-now-more-important-than-an-975970197) 。摩托罗拉延续了创建一个独立服务的趋势，APK 的 [摩托罗拉的](https://play.google.com/store/apps/details?id=com.motorola.context) 。HTC 的新服务包是谷歌和摩托罗拉的延续。该公司现在是第三个开始将其 Android 修改转移到 Play Store 的公司，而不是将其内置于固件更新中。
 

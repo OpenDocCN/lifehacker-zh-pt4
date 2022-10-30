@@ -6,7 +6,7 @@
 
 作家兼记者丹·哈里斯说，从技术上讲，睡眠已经是我们大脑的定期维护，但如果有任何其他事情可以改善你的心理健康，减轻压力，并以所有正确的方式提高效率，那就是冥想。
 
-Watch
+
 
 我们对 [并不陌生，来这里打坐的还有](https://lifehacker.com/what-happens-to-the-brain-when-you-meditate-and-how-it-1202533314) 。这种 [并不是解决所有心理健康问题](http://lifehacker.com/is-meditation-really-beneficial-or-is-it-just-ridiculo-5989429) 的灵丹妙药，但当涉及到 [提高你的注意力、集中力和注意力持续时间](http://lifehacker.com/how-meditating-for-eight-weeks-can-boost-your-brain-5989078) ，以及 [缓解压力和焦虑](http://lifehacker.com/why-meditation-relieves-chronic-pain-and-stress-5800249) 时，它确实有显著的好处。
 

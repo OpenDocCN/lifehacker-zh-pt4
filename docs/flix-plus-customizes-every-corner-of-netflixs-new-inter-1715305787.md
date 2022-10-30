@@ -4,7 +4,7 @@
 
 Chrome: [Flix Plus](https://lifehacker.com/flix-plus-customizes-netflix-to-your-hearts-desire-1640968001) ，Lifehacker 原针对网飞的 Chrome 扩展，已全面更新定制 [网飞新布局](https://lifehacker.com/netflix-is-getting-its-first-big-web-interface-update-i-1711442438) 。你可以隐藏剧透，显示烂番茄评级，等等。这是最新消息。
 
-Watch
+
 
 网飞的重大更新破坏了 Flix Plus 扩展的大部分功能，但我们一直在努力让它恢复运行。最新版本的扩展恢复了许多原有的功能:你可以隐藏剧透，显示烂番茄和 IMDB 的评级，将我的列表移动到顶部，观看电影预告片，播放随机剧集，以及为视频播放器定制键盘快捷键。你可以在 这里找到 [的全部功能列表。](http://lifehacker.com/flix-plus-customizes-netflix-to-your-hearts-desire-1640968001#_ga=1.2242548.515970378.1434646157)
 

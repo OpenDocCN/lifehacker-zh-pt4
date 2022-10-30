@@ -4,7 +4,7 @@
 
 六个月前，我停止使用 Adobe Photoshop，转而使用开源软件 GIMP 来完成我所有的个人摄影项目。这并不是大多数人认为的不可能完成的任务。
 
-Watch
+
 
 ***本帖最初出现在*** [***莱利·勃兰特的摄影博客***](http://www.rileybrandt.com/2014/03/09/photoshop-to-gimp/) ***。**T15】*
 

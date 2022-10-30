@@ -4,7 +4,7 @@
 
 你偶尔会听说重大安全漏洞在被利用之前就被发现了，比如去年臭名昭著的 [Heartbleed](http://lifehacker.com/what-the-heartbleed-security-bug-means-for-you-1560801201) bug。安全研究人员努力消除这些危险的缺陷，以免被更具恶意的黑客发现。这种先发制人的黑客行为有时被称为 [白帽](http://en.wikipedia.org/wiki/White_hat_%28computer_security%29) ，或者简称为“道德黑客”
 
-Watch
+
 
 这些黑客与企业合作，在考虑可能有犯罪动机的人的心态的同时，探测他们的网络的安全漏洞、社会工程的漏洞等等。为了了解这样的工作是怎样的，我们采访了本·米勒，一位在[Parameter Security](https://www.parametersecurity.com/)的职业黑客。
 

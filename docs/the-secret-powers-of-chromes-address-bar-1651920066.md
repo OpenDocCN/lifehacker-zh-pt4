@@ -4,7 +4,7 @@
 
 Chrome 的地址栏一看就没啥用。输入一个网址，你就会被带到一个网站。但是如果你知道如何使用它，它可以做得更多。
 
-Watch
+
 
 这些年来，我们已经介绍了大量的 [伟大的 Chrome 技巧](http://lifehacker.com/the-always-up-to-date-power-users-guide-to-chrome-5867446) ，但是地址栏总是有点被忽视。不过，实际上你可以用它做很多事情，所以让我们来挖掘一些更好的技巧。
 

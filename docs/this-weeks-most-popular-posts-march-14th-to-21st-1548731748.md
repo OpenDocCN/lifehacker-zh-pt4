@@ -4,7 +4,7 @@
 
 本周我们 [得到了对 20 多岁的人的建议](https://lifehacker.com/10-of-the-most-important-life-lessons-i-learned-from-my-1547298543)[找到了最好的待办事项列表管理器](http://lifehacker.com/five-best-to-do-list-managers-5924093)[学习了一些 Windows 快捷键](http://lifehacker.com/three-windows-shortcuts-every-beginner-should-know-1545115910)[让 PC 游戏变得更好](http://lifehacker.com/top-10-ways-to-boost-your-pc-gaming-1540393268) 。这里回顾一下。
 
-Watch
+
 
 ## [我 20 多岁时学到的 10 条最重要的人生经验](http://lifehacker.com/10-of-the-most-important-life-lessons-i-learned-from-my-1547298543)
 

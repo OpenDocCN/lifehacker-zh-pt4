@@ -4,7 +4,7 @@
 
 由于[无休无止的](http://gizmodo.com/another-leaked-nexus-5-shows-off-its-giant-screen-and-g-1330680111) [泄露](http://gizmodo.com/heres-a-closer-look-at-what-the-nexus-5-might-look-lik-1430767315) ，我们在过去的几周里发现了关于 Nexus 5 的一切。今天，谷歌终于披露了这个可怕的秘密，很少有惊喜。以下是你需要知道的。
 
-Watch
+
 
 * * *
 

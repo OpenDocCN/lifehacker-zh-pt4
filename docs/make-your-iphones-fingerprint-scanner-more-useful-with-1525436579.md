@@ -4,7 +4,7 @@
 
 iPhone 5s 指纹扫描仪，又名触控 ID，是一个方便的小功能，让你只需用手指触摸即可解锁手机。不幸的是，这就是它所做的一切，但一些越狱的调整使它使用起来更棒。
 
-Watch
+
 
 你需要一部 [越狱的 iPhone 5s](https://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-5771943) 来利用这些调整，但是如果你有一部的话，他们仅仅基于他们的创新就为越狱提供了一个很好的案例。如果你还没有，在你开始做这些调整之前，确保你的 [指纹被正确扫描](http://lifehacker.com/get-better-results-from-your-touch-id-by-scanning-your-1481910803) 也是有用的。
 

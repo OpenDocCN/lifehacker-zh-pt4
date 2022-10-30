@@ -4,7 +4,7 @@
 
 我们大多数人都有 LinkedIn 的个人资料，即使我们不知道我们为什么要上这项服务。你实际上如何使用这个网站，你应该提供多少关于你自己的信息？
 
-Watch
+
 
 唐娜·斯维在这里帮助我们找出如何优化我们的 LinkedIn 个人资料，并让这项服务发挥作用。唐娜是一名经验丰富的简历撰写者、招聘主管和职业博客作者，在——我们之前和她谈过关于 [完善你的简历](https://lifehacker.com/ask-an-expert-all-about-perfecting-your-resume-1540577314) 和 [在你的面试](http://lifehacker.com/ask-an-expert-all-about-acing-the-job-interview-1601113070) 中表现出色，但现在我们把目光投向了在线 LinkedIn。
 

@@ -4,7 +4,7 @@
 
 Backblaze 为其在线备份服务使用了 25，000 个硬盘驱动器。这提供了一些有趣的信息，例如 [硬盘可能持续多长时间](https://lifehacker.com/how-long-your-hard-drive-is-likely-to-last-1462918832) 以及 [企业和消费者硬盘之间的可靠性差异](http://lifehacker.com/why-enterprise-hard-drives-might-not-be-worth-the-cost-1476333889) 。今天，Backblaze 透露了哪些驱动器制造商最可靠。
 
-Watch
+
 
 比较对象是希捷、日立和西部数据。(该公司有一些东芝和三星驱动器，但不足以进行分析。)Backblaze 表示，根据压力测试和几周的生产情况，他们购买性能良好的最便宜的驱动器。
 

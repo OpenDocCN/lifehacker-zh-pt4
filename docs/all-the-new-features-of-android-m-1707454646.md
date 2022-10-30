@@ -4,7 +4,7 @@
 
 今天，谷歌公布了最新版本 Android 的开发者预览版。像往常一样，这个新版本 Android M 将在今年晚些时候推出。不过，那些拥有某些 Nexus 设备的用户可以从今天开始下载预览版。下面是你可以期待的下一个版本的 Android。
 
-Watch
+
 
 如果你喜欢冒险，并且拥有一台 Nexus 5、6、9 或播放器，你可以马上安装 Android M 开发者预览版。查看 [我们的向导在这里](https://lifehacker.com/how-to-install-the-android-m-developer-preview-on-your-1707530107) 进行说明。
 

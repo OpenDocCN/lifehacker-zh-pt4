@@ -4,7 +4,7 @@
 
 新闻组已经存在了几十年，但它仍然是一个伟大的资源，它提供了 bittorrent 无法比拟的速度和可靠性。抛开整个“新闻组第一法则”，本周我们来看看基于你的提名的五个最好的新闻组提供商。
 
-Watch
+
 
 本周早些时候， [我们向您询问了您最喜欢的新闻组供应商](https://lifehacker.com/whats-the-best-usenet-provider-1609847326) ，您给出了数不清的好选择。在我们开始之前:是的，是的，第一条规则。我们 [在之前的指南中讨论了这种做法的徒劳——以及如何开始使用新闻组](http://lifehacker.com/how-to-get-started-with-usenet-in-three-simple-steps-5601586) ,所以我们在这里不再赘述。大家都知道，这不是专门的知识，几十年来都不是，我们继续吧。如果你在想“为什么不使用 bittorrent”， [我们也有一个解释者。最后，如果你想找到很棒的文件并回馈社区，看看这个关于如何找到新闻组文件的帖子，里面有很多有用的提示。](http://lifehacker.com/is-usenet-safer-than-bittorrent-5905756)
 

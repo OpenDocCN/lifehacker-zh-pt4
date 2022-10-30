@@ -4,7 +4,7 @@
 
 问题 [*我需要喝多少水？*](http://lifehacker.com/how-much-water-do-i-actually-need-to-drink-every-day-5986895) 后面常跟着一个相关的问题*我能喝太多吗？我们在这里告诉你，虽然很难意外做到，但事实上喝太多水是有可能的——而且后果可能是致命的。*
 
-Watch
+
 
 #### <small>图片来源:</small> [<small>洛拉王公</small>](https://flic.kr/p/6tHrrs) <small>| CC BY 2.0</small>
 

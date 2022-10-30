@@ -4,7 +4,7 @@
 
 如果你想找一个比大银行更好的地方存钱，信用社是一个很好的选择。在大多数情况下，他们提供更好的服务、更低的费用和更好的利率，从贷款和抵押贷款到储蓄账户和存款证。本周，我们想知道你认为哪些是最好的。
 
-Watch
+
 
 我们已经讨论了 [为什么你应该考虑信用社而不是银行](https://lifehacker.com/why-choose-a-credit-union-over-a-bank-5055408) ，然后带你了解 [如何切换](http://lifehacker.com/how-do-i-switch-from-my-bank-to-a-credit-union-5857091) ，甚至 [如何解决信用社](http://lifehacker.com/how-to-fix-credit-unions-biggest-annoyances-1629502038) 带来的烦恼。我们还没做的是看看你们认为哪个信用合作社是最好的。让我们试着把讨论集中在对公众开放或容易加入的信用合作社。在下面的讨论中分享你的提名吧！
 

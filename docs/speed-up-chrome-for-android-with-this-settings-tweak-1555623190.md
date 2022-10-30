@@ -4,7 +4,7 @@
 
 Android: Chrome 是 [我们最喜欢的 Android 浏览器](https://lifehacker.com/five-best-android-web-browsers-5925969) 之一，但它有时会有点迟钝。多亏了 Redditor [红血球数量 64](http://www.reddit.com/user/erythrocytes64) ，这个设置调整可以给你一个相当快的速度提升，这取决于你的设备。
 
-Watch
+
 
 简而言之，你所做的是让 Chrome 获得更多的内存，并消除你上下滚动页面时的口吃。你所要做的就是在你的 Android 设备上打开一个新的 Chrome 标签，并把它粘贴到地址栏中:
 

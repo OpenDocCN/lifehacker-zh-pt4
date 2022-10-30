@@ -4,7 +4,7 @@
 
 人体是奇妙的。如果你知道如何 [利用其内置的超能力](https://lifehacker.com/learn-the-built-in-superpowers-of-your-brain-and-body-t-5911636) ，你可以比现在做得更多。用这些小技巧成为一个更有效率的工作者。
 
-Watch
+
 
 ### 把拇指放在嘴里吹气来减轻压力
 

@@ -4,7 +4,7 @@
 
 如果你喜欢大胆、高对比度的设计，今天的主屏幕就是为你准备的。这种设计主要使用黑色基底(这使得它非常适合 AMOLED 显示器)，用鲜明的绿色强调，以形成有吸引力的显示器。
 
-Watch
+
 
 这个主屏幕是为 Zooper 和 Themer 设计的。如果你想用这个在你自己的启动器上抓取 [这里的 Zooper 文件](https://www.dropbox.com/sh/j7hrsypd0godr1n/AACOzrWnGd06xP7yB0nbpANHa?dl=0) 。如果您想在 Themer 上使用它，请下载。压缩下面的源代码链接，并按照以下步骤操作:
 

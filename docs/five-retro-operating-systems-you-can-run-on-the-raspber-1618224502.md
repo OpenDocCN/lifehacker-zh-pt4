@@ -4,7 +4,7 @@
 
 Raspberry Pi 是一个很好的实验设备，因为它可以很容易地替换掉突发奇想的操作系统，所以运行你不怎么用的旧系统是很有趣的。为此，这里有一些我们最喜欢的。
 
-Watch
+
 
 我们大多数人都可以用 VirtualBox 模拟几乎任何我们想要的 [操作系统。但是树莓派很好，因为它很容易更换操作系统。为这些有趣的项目准备一台专用的机器也很好，这样你就不用花时间在你的普通电脑前了。](https://lifehacker.com/the-power-users-guide-to-better-virtual-machines-in-vir-1569943402)
 

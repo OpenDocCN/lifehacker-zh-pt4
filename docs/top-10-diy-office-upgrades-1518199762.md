@@ -4,7 +4,7 @@
 
 所以，也许你的工作空间 [并不杂乱](https://lifehacker.com/top-10-office-decluttering-tricks-5641578) ，但也许它并不是你所希望的生产力天堂。如果你想从你桌上的普通笔记本电脑升级到更令人印象深刻的东西，这里有 10 个 [便宜的](http://lifehacker.com/where-to-get-cheap-materials-for-all-your-diy-projects-514486682) DIY 升级，让它成为一个值得你花时间的战斗站。
 
-Watch
+
 
 请注意，您不需要严格遵循所有这些项目。和所有的 DIY 项目一样，把它们当成灵感——它们可能不会像其他人那样在你的空间里工作，或者你可能会找到更便宜的方法来做同样的事情(比如 [在家得宝而不是宜家](https://lifehacker.com/when-ikea-is-great-for-diy-and-when-it-isnt-499158925) 购买用品)。
 

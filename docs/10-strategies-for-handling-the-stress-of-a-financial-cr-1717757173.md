@@ -4,7 +4,7 @@
 
 当你意识到你需要在生活中做出重大改变的那一刻到来时，压力是难以置信的。通常，它是许多小压力累积到一个大临界点的高潮，然后突然一切都冲过来了，产生了一股担忧、恐惧和压力的浪潮。
 
-Watch
+
 
 ***这个帖子最初出现在*** [***这个简单的美元***](http://www.thesimpledollar.com/ten-strategies-for-handling-the-stress-of-a-financial-crisis/) ***。***
 

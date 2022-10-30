@@ -4,7 +4,7 @@
 
 Flickr 用户以下是如何让你的电脑看起来像这样。
 
-Watch
+
 
 Skarjoko 使用的是 [elementaryOS](http://elementaryos.org/) ，这是我们最喜欢的 Linux 发行版之一，尤其是在易用性和定制方面。许多设计线索来自于此，但也有一些其他的调整。以下是设置一切所需的内容:
 

@@ -4,7 +4,7 @@
 
 上周，苹果发布了约塞米蒂的 [更新，包括一个新的照片应用](http://lifehacker.com/os-x-10-10-3-arrives-with-new-photos-app-1696493039) 。这个应用程序是 iPhoto 的有效替代品，在整理照片方面做得更好，而且不会占用系统资源。以下是使用方法。
 
-Watch
+
 
 ### 与 iPhoto 有什么不同
 

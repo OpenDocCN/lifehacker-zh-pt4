@@ -4,7 +4,7 @@
 
 本周我们 [发现了 Chrome 地址栏](https://lifehacker.com/the-secret-powers-of-chromes-address-bar-1651920066) ， [学会了发现隐藏的手枪](http://lifehacker.com/know-how-to-spot-the-signs-of-a-hidden-handgun-1650351312) ， [利用了一些监狱里的生活窍门](http://lifehacker.com/7-macgyver-tricks-people-have-learned-in-prison-1649809460) ， [更有选择地从 Costco](http://lifehacker.com/four-more-things-you-shouldnt-buy-at-costco-1651514668) 购买。这里回顾一下。
 
-Watch
+
 
 ## [Chrome 地址栏的秘密力量](http://lifehacker.com/the-secret-powers-of-chromes-address-bar-1651920066)
 

@@ -4,7 +4,7 @@
 
 当你写人们谋生的方式时，它会影响你的工作方式。写了数百篇关于生产力的帖子后，它开始渗透到我的生活中:当 [我需要集中注意力](http://www.fastcompany.com/3013039/unplug/want-to-get-work-done-go-handwritten) 时，我去模拟；我遵循 [咖啡会议协议](http://www.fastcompany.com/3020835/leadership-now/the-key-to-productive-coffee-meetings) ，当我写这些话时，我简直是 [蹲在我的办公桌前](http://www.fastcompany.com/3026067/leadership-now/should-you-be-squatting-at-your-desk) 。
 
-Watch
+
 
 ***本帖原载于*** [***快公司***](http://www.fastcompany.com/3026200/work-smart/i-followed-my-own-productivity-advice-for-a-week) ***。**T15】*
 

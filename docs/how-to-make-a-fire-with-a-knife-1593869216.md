@@ -8,7 +8,7 @@
 
 **工具:**定刃 [求生刀](http://indefinitelywild.gizmodo.com/what-big-survival-knives-are-for-and-how-to-use-one-1572811597) 或者很强的 [折叠刀](http://indefinitelywild.gizmodo.com/how-to-find-the-perfect-pocket-knife-1590084875) 。一种 [铁棒](http://www.amazon.com/ESEE-ADVFIREKIT-Advanced-Reflective-Signaling/dp/B0096Z7UEO/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://gizmodo.com/how-to-make-a-fire-with-a-knife-1593869216&asc_source=&ie=UTF8&keywords=esee fire kit&qid=1403286503&sr=8-1&tag=kinjagizmodolink-20) 或类似的牢不可破、取之不尽、不受天气影响的点火材料。预制的火绒。生火用的木头。
 
-Watch
+
 
 第一步:找到可用的木材。即使在最恶劣的天气下，你也能在直立的枯枝和树木中找到干燥的木头。把它们拉下来或砍下来，剁碎或打碎成可用的长度。如果你需要用刀“砍”木头，把它放在你想要砍的木头上，用一块前臂大小的木头敲打刀背。如果你有一把斧子，就像做“V”形一样做这个动作，你很快就能完成。
 

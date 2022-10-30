@@ -6,7 +6,7 @@
 
 好看不止于得到 [好的合身的衣服](http://lifehacker.com/how-to-shop-for-clothes-online-and-get-a-perfect-fit-1501813895) 。你还是要自己穿衣服。在你需要把衬衫塞进去的时候，男子气概的艺术展示了四种不同的技巧。
 
-Watch
+
 
 这里列出的四个小窍门非常简单:
 

@@ -4,7 +4,7 @@
 
 iOS 8 [有大量新东西](https://lifehacker.com/everything-you-need-to-know-about-ios-8-1635327873) ，但其中一个更令人困惑的新功能是 Healthkit。在不稳定的推出之后，应用程序现在可以与苹果自己的健康应用程序集成。让我们来看看一些最好的应用程序，看看 Healthkit 到底能做什么。
 
-Watch
+
 
 ### 什么是 Healthkit？
 

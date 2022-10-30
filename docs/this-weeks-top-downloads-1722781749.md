@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [AutoRemote 让你在 Windows 10](http://lifehacker.com/autoremote-lets-you-control-your-android-from-cortana-i-1721954052) 中从 Cortana 控制你的 Android
 

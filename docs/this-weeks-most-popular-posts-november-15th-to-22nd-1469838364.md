@@ -4,7 +4,7 @@
 
 这一周我们 [对付了条子](https://lifehacker.com/decrease-your-chances-of-being-arrested-with-these-tips-1467462559)[排名电脑厂商](http://lifehacker.com/computer-manufacturers-ranked-how-to-pick-a-laptop-tha-1467145338)[定制了我们的 PC](http://lifehacker.com/top-10-ways-to-customize-your-desktop-1465184659)， [学会了如何操作一个房间](http://lifehacker.com/how-i-became-the-kind-of-person-who-can-work-a-room-1467569726) 。这里回顾一下。
 
-Watch
+
 
 ## 根据前警察 的建议，降低你被逮捕的几率
 

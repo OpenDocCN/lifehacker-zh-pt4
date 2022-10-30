@@ -4,7 +4,7 @@
 
 伙计们，先说坏消息。LastPass，我们 [最喜欢的密码管理器](https://lifehacker.com/the-intermediate-guide-to-mastering-passwords-with-last-5645162) ( [和你的](https://lifehacker.com/most-popular-password-manager-lastpass-1679554433) )被黑了。是时候更改您的主密码了。好消息是，你为其他网站保存的密码应该是安全的。
 
-Watch
+
 
 LastPass 在其公司博客上宣布，他们检测到有人入侵他们的服务器。虽然加密的用户数据(读取:您存储的其他网站的密码)没有被盗，但入侵者确实窃取了 LastPass 帐户的电子邮件地址、密码提醒、每个用户的服务器 salts 和认证散列。后者用来告诉 LastPass 你有权限访问你的账户。
 

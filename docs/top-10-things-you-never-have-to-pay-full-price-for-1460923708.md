@@ -4,7 +4,7 @@
 
 谁不喜欢便宜货呢？买到划算的东西总是让人感觉很棒，而且有些东西你几乎总是可以打折买到。这里有 10 样你可以避免支付全价的东西。
 
-Watch
+
 
 当然，有了正确的 [时机](https://lifehacker.com/the-best-time-to-buy-anything-during-the-year-5973864)[优惠券](http://lifehacker.com/how-to-automate-your-discounts-and-always-get-the-best-5978851) 和 [砍价技巧](http://lifehacker.com/why-i-love-to-haggle-and-how-you-can-get-started-1460391867) ，你几乎可以一辈子不为任何东西付全价——这太棒了。但是有些东西太容易便宜得到了，以至于支付全价是愚蠢的。这是这些东西的清单。
 

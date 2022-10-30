@@ -4,7 +4,7 @@
 
 谷歌本周早些时候宣布了 Android L，预计将于秋季发布。有很多 [很酷的新功能](https://lifehacker.com/updating-all-the-new-stuff-in-androids-l-release-prev-1595928268) ，但是在玩了 [开发者预览版](http://lifehacker.com/how-to-install-the-android-l-developer-preview-on-your-1596531372) 之后，我们发现了一堆 Google 没有提到的甜东西。以下是谷歌*在声明中没有强调的最酷的功能。*
 
-Watch
+
 
 *免责声明:*这是 Android L 的 [开发者预览版](http://lifehacker.com/how-to-install-the-android-l-developer-preview-on-your-1596531372) ，因此，在它发布之前，任何事情都可能发生变化。可能会有更多我们没有发现的功能，一些我们已经看到的东西可能会在消费者面前被删除、禁用或更改。
 

@@ -4,7 +4,7 @@
 
 亚马逊 Fire 电视棒是亚马逊超快速语音搜索功能 Fire 电视的廉价版本。HDMI 版本当然牺牲了许多让 Fire TV 变得伟大的东西，但这种讨价还价值得吗？绝对的。
 
-Watch
+
 
 首先，什么是火电视，火电视棒有什么不同？ [四月份发布的](https://gizmodo.com/amazon-fire-tv-review-a-fast-ride-thatll-cost-you-1557714336) ，Fire TV 是亚马逊的时尚流媒体盒子。它有 2GB 的内存和一个四核处理器，可以闪电般地在亚马逊 *mundo* 或其他视频应用程序如网飞或 Showtime 中搜索你想看的东西。它包括语音搜索——喘气！—实际上工作可靠。唯一的缺点是？它值 100 美元。
 

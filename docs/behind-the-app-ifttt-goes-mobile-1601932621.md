@@ -4,7 +4,7 @@
 
 if TTT——意思是“如果这个那么那个”——正迅速成为许多数字工具箱中的必备工具。该服务类似于跨平台编程:您可以创建触发器和动作来将信息从一个地方传输到另一个地方。听起来像是专为 Lifehacker 打造的。
 
-Watch
+
 
 在作为网络服务存在了几年之后，IFTTT 分别于 2013 年 7 月和 2014 年 4 月推出了他们的 [iOS](http://lifehacker.com/all-the-new-stuff-in-ifttt-for-ios-and-what-you-can-do-1032710106) 和 [Android](https://lifehacker.com/all-the-new-stuff-in-ifttt-for-android-and-what-you-can-1566974091) 应用，为移动设备提供独特的功能。我们采访了 IFTTT 的 Alexander Tibbets 和产品工程团队，了解他们对移动开发的尝试以及他们如何扩展服务。
 

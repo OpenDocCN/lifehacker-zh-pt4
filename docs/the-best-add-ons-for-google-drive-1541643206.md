@@ -4,7 +4,7 @@
 
 昨天， [谷歌推出了谷歌文档和工作表](https://lifehacker.com/google-launches-add-ons-to-supercharge-google-docs-and-1541460292) 插件。这些附加组件允许您向文档添加各种功能，包括签署传真、创建书目等等。虽然它仍处于起步阶段，但这里有几个在发布时可用的最好的附加组件。
 
-Watch
+
 
 ### HelloFax
 

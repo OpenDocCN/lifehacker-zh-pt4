@@ -4,7 +4,7 @@
 
 这些年来，Android 平板电脑变得越来越好，但开箱即用仍然很难有很高的生产力(尽管它们有 [某些优势](https://lifehacker.com/how-tablets-are-actually-great-productivity-tools-5779982) )。然而，通过几个配件和几个应用程序，你可以让他们感觉更像一台笔记本电脑。
 
-Watch
+
 
 如果你正在寻找一款 Android 平板电脑来使用本指南，我们大约一年前收集的最好的 Android 平板电脑仍然非常适用。十英寸平板电脑通常更适合完成工作，因为它们为窗口应用程序提供了更多空间，但这在很大程度上取决于个人偏好。另外，一定要看看我们的 [安卓平板应用](http://lifehacker.com/lifehacker-pack-for-android-tablets-2013-our-list-of-t-875602288) 的基本包。
 

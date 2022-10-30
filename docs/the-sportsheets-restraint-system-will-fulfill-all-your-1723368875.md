@@ -4,7 +4,7 @@
 
 多亏了 *50 Shades，*有很多情侣被困在束缚绳中，戴着金属手铐摩擦手腕。你需要合适的束缚设备来防止自己尴尬的急诊室之旅。 [床约束系统下的运动床单](https://www.filthydirty.com/under-the-bed-restraint-system.html#oid=1005_1) (最便宜 57 美元)是这项工作的完美工具。
 
-Watch
+
 
 ### **规格**
 

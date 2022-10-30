@@ -4,7 +4,7 @@
 
 本周我们 [定制了我们的安卓手机](http://lifehacker.com/five-best-android-home-screen-replacements-1554069893)[让我们的老板爱不释手](http://lifehacker.com/top-10-ways-to-make-your-boss-love-you-1552997316)[探索了命令行](http://lifehacker.com/the-best-tools-hidden-in-windows-command-line-1553193077)[了解了一些即将到来的 Windows 更新](http://lifehacker.com/microsoft-is-bringing-the-start-menu-back-to-windows-8-1557023798) 。这里回顾一下。
 
-Watch
+
 
 ## [五款最佳安卓主屏幕替代品](http://lifehacker.com/five-best-android-home-screen-replacements-1554069893)
 

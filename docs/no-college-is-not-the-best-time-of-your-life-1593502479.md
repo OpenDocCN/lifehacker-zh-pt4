@@ -4,7 +4,7 @@
 
 现在是毕业季，毕业生(包括高中和大学毕业生)可能会听到常见的怀旧宣言:“好好享受吧……你的大学时光是你一生中最美好的时光。”不管你是谁，有人肯定会说这个学生正在经历他们人生的巅峰。最好不是。
 
-Watch
+
 
 ***本帖原载于***[***dapped***](http://dappered.com/2014/05/why-believing-college-is-the-best-time-of-your-life-is-wrong/)***。**T15】*
 

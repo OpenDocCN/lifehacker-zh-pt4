@@ -4,7 +4,7 @@
 
 升级到最新的 iPhone 硬件意味着要支付 200-400 美元的合同费用。如果你想升级，但没有现金，下面是如何卖掉你的旧 iPhone 来支付新 iPhone 的费用。
 
-Watch
+
 
 [](http://lifehacker.com/tag/blast-from-the-past)**是 Lifehacker 的一个每周专题，我们在其中恢复旧的，但仍然相关的帖子，供你阅读和黑客乐趣。本周，在苹果发布 iPhone 6 之后，我们将向您展示如何在不花费大量现金的情况下进行升级。**
 

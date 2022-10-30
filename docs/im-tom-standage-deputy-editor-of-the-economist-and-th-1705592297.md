@@ -4,7 +4,7 @@
 
 《经济学人》是当今领先的国际报纸之一，为其周刊和网站带来精心制作的新闻和评论。担任该报副主编并领导其数字战略的是汤姆·斯坦德吉
 
-Watch
+
 
 汤姆是各种历史书 的作者，其中包括 [写在墙上](http://www.amazon.com/Writing-Wall-Social-Media-First/dp/1620402858/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-tom-standage-deputy-editor-of-the-economist-and-th-1705592297&asc_source=&tag=kinjalifehackerlink-20) ，该书认为历史上的信息交流，无论是写在古罗马的纸莎草上还是在宗教改革期间手工印刷，都与现代社交媒体没有任何区别。他之前担任过[【Economist.com】](http://www.economist.com/)的主编，甚至在时间允许的情况下在乐队演奏。我们采访了汤姆，以了解他的工作方式。
 

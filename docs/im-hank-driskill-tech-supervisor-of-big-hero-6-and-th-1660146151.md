@@ -4,7 +4,7 @@
 
 拍一部电影需要一支军队——尤其是一部动画电影，它的每一个方面都是从零开始的。当代动画往往与它背后的技术紧密相连。华特·迪士尼动画公司的最新电影《大英雄 6》[是故事和技术之间共生关系的最好例子。](http://movies.disney.com/big-hero-6/)
 
-Watch
+
 
 汉克·德里斯基尔负责监督支撑《英雄 6》独特外观的大部分研发工作。借助像 [Hyperion](http://electronicdesign.com/blog/disney-supercomputer-renders-big-hero-6) 这样的新渲染过程，创作团队可以以一种处理器密集型的方式照亮“ [【旧金山】](https://gizmodo.com/a-tour-of-san-fransokyo-the-hybrid-city-disney-built-f-1642066794) ”这座引人注目的新城市，并根据旧金山的实际房地产数据，推动其研发团队创建他们需要跨越的桥梁。
 

@@ -4,7 +4,7 @@
 
 本周我们 [发现了平板电脑的一些有价值的用途](https://lifehacker.com/top-10-worthwhile-uses-for-tablets-1480435110)[学到了没人教你的基本厨房技能](http://lifehacker.com/the-essential-kitchen-skills-no-one-taught-but-everyon-1485609388)[发现了最常见的语法错误](http://lifehacker.com/the-top-10-grammar-mistakes-to-avoid-making-1485787315)[探索了 Photoshop](http://lifehacker.com/five-best-photoshop-alternatives-1483312519) 的最佳替代品。这里回顾一下。
 
-Watch
+
 
 ## [平板电脑十大值得使用的地方](http://lifehacker.com/top-10-worthwhile-uses-for-tablets-1480435110)
 

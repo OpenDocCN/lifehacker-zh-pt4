@@ -4,7 +4,7 @@
 
 上个月，苹果的 [和的](https://lifehacker.com/everything-apple-announced-at-wwdc-2015-that-actually-m-1709861705)[谷歌](https://lifehacker.com/all-the-important-stuff-google-announced-at-i-o-2015-1707454800) 都举行了发布会，展示他们的新操作系统。两者都得到了响亮的“咩”声，随后是大声疾呼 [苹果如今只是一个模仿者](https://gizmodo.com/heres-proof-of-apples-downward-fall-from-innovator-to-i-1710185505) 。这里有一个不受欢迎的观点:我不在乎。
 
-Watch
+
 
 苹果和谷歌已经训练我们期待惊人的事情。随着每年新的操作系统和手机的出现，我们认为每一次迭代都值得一场革命，因为这是我们在这些产品是新的时候看到的——但这很正常。多年来以同样的速度创新是不可能的。不仅如此，还没什么用。你还记得亚马逊 Fire 手机吗？这是新的和不同的。也很烂。即使是苹果和谷歌最近的创新——如 Apple Pay、Passbook、谷歌钱包和 Hangouts 中的短信——也遭到了大多数用户的强烈反对。在使用这些设备近十年后，我们已经到达了收益递减的临界点。我们不再需要革命性的东西，我们只需要我们的设备去做它们已经在做的事情...好多了。
 

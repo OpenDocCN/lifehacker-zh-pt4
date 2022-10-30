@@ -4,7 +4,7 @@
 
 对于摄影来说，这是一个伟大的一年，在你拍摄和编辑的时候，有很多帖子可以帮助你在相机后面，在相机前面。让我们回顾一下 2013 年最受欢迎的摄影技巧、窍门和窍门。
 
-Watch
+
 
 今年我们 [了解了所有关于 HDR 成像](https://lifehacker.com/what-is-hdr-and-when-should-i-use-it-in-my-photos-5991508)[电脑延时摄影](http://lifehacker.com/ten-more-awesome-projects-for-your-raspberry-pi-5978871)[免费土坯替代品](http://lifehacker.com/lightzone-is-a-free-awesome-photo-editor-and-alternati-1445640040)[非传统影像组织](http://lifehacker.com/why-i-ditched-photo-management-apps-and-use-dropbox-ins-1063233673) 等等。
 

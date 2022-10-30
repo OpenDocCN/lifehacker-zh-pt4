@@ -4,7 +4,7 @@
 
 我们喜欢 Lifehacker 的好的 DIY 项目，但是如果你现在没有计划一个项目，它们很容易被错过。从电脑到家庭，这些都是我们今年最受欢迎的 DIY 项目。
 
-Watch
+
 
 今年我们 [升级了我们的办公室](https://lifehacker.com/top-10-diy-office-upgrades-1518199762)[清除了堵塞的下水道](http://lifehacker.com/these-diy-toilet-tablets-bust-through-clogged-drains-1490607953)[修复了我们汽车上的凹痕](http://lifehacker.com/fix-dents-in-car-bumpers-with-boiling-water-1562508423) 等等。
 

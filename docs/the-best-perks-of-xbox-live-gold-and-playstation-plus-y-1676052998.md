@@ -4,7 +4,7 @@
 
 无论你有 Xbox One 还是 PlayStation 4，如果你想和朋友一起玩在线游戏，你需要支付 Xbox Live Gold 或 PlayStation Plus 的费用。你甚至可以每月拿起它玩免费游戏。不过，该会员资格还有一些你可能不知道的额外福利。让我们看看他们。
 
-Watch
+
 
 我们大多数人都知道，一年一度的[Xbox Live Gold](http://www.xbox.com/en-US/live)(60 美元/年)或[PlayStation Plus](http://www.playstation.com/en-us/explore/playstation-plus/)(50 美元/年)会员资格附带免费游戏和与朋友在线玩多人游戏的能力(假设 [这些网络保持](https://kotaku.com/xbox-live-and-playstation-network-are-having-problems-t-1675130891) )，也就是说。)如果你真的把钱花在了这两者中的任何一个上，你可能想让你的钱花得值。让我们来看看这两种会员资格的其他一些经常被忽视的额外待遇，这样你就可以在续费前从订阅中榨出每一分钱。
 

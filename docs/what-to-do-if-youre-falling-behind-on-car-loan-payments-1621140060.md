@@ -4,7 +4,7 @@
 
 对许多人来说，拥有汽车是一种必要的负担，如果你在财务上捉襟见肘，很难跟上你的汽车付款。当你难以支付时，以下是你的选择。
 
-Watch
+
 
 ***本帖原载于***[***ReadyForZero***](http://blog.readyforzero.com/what-to-do-if-you-fall-behind-on-car-loan-payments/)***。**T15】*
 

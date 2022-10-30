@@ -4,7 +4,7 @@
 
 这是个大新闻:HBO [刚刚宣布](http://recode.net/2014/10/15/hbo-says-its-going-to-start-selling-on-the-web-next-year/) 将在明年某个时候推出网络服务。也就是说，你可以在没有有线电视订阅的情况下收看 HBO。耶！
 
-Watch
+
 
 HBO 首席执行官 Richard Pleper 在今天的投资者演示会上宣布了这一消息。他说:
 

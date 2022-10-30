@@ -4,7 +4,7 @@
 
 一年中最美好的时光过后，就是大家最不喜欢的季节:纳税季。如果你通常试图在 1 月 1 日之前避免考虑税收，你可能会错过节省一点钱的机会。根据一些税务专家的说法，如果你想在 4 月份减少你的税单，现在是采取最后行动的时候了。
 
-Watch
+
 
 ***本帖原载于***[](http://www.getrichslowly.org/blog/2013/12/13/7-year-end-tax-tips-to-keep-uncle-sam-out-of-your-wallet/?WT.qs_osrc=HAC)*****。**T15】***
 

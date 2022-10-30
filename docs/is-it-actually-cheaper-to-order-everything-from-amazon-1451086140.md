@@ -4,7 +4,7 @@
 
 亚马逊几乎是廉价小工具、书籍、音乐、食物和几乎所有其他东西的首选之地。但是我们想看看它和其他商店相比到底便宜多少。所以，我们统计了一些购物清单并进行比较。
 
-Watch
+
 
 亚马逊是一种非常容易的购物方式，有了每年 79 美元的亚马逊 Prime 这样的 [服务，你可以获得免费的两天送货服务...这使得购买非常方便。因此，](http://www.amazon.com/Amazon-Services-LLC-Prime/dp/B00DBYBNEE?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/is-it-actually-cheaper-to-order-everything-from-amazon-1451086140&asc_source=&tag=kinjalifehackerlink-20)[life hacker 的大多数人使用亚马逊](https://lifehacker.com/is-amazon-prime-worth-it-1038496234) 购买我们几乎所有的商品，从书籍和小工具到洗手液和其他家居用品。从亚马逊订购肯定比去实体店更容易，但这并不意味着它更便宜。
 

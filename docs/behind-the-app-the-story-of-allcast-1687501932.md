@@ -4,7 +4,7 @@
 
 你上一次刻录 DVD 以便在电视上看视频是什么时候？或者在客厅的地毯上放一台笔记本电脑，电缆散落一地，这样你就可以在大屏幕上看视频了？多亏了像 [AllCast](http://www.allcast.io/) 这样的应用，这一切都变得过时了。
 
-Watch
+
 
 近年来，随着 Chromecast 或 Roku 等低成本设备成为媒体柜中的常见产品，我们可以轻松地将媒体从一个设备传输到另一个设备。由 Android 开发者 Koushik Dutta 创建的 AllCast 是一个简单的解决方案，用于将媒体从 Android 设备“播放”到 Chromecasts，并为更广泛的实施而发展。
 

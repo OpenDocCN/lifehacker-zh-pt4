@@ -4,7 +4,7 @@
 
 *这些内容是由* [*商业团队*](http://bit.ly/19x6duf) *为您带来的，同样是一群作家和产品爱好者，他们将您的日常生活汇总在一起:*[*Gizmodo Deals*](http://dealzmodo.kinja.com)*，*[*Kotaku Deals*](http://moneysaver.kinja.com)*和*[*life 我们独立于 Gizmodo 的编辑人员，为您带来最优惠的价格，并告诉您我们最喜欢的产品。——谢恩·罗伯茨，高级商务编辑*](http://dealhacker.kinja.com)
 
-Watch
+
 
 这个假期对大多数人来说最好的智能手机是 [iPhone 5s](http://store.apple.com/us/buy-iphone/iphone5s) 。从远处看， [糖衣 5c](http://store.apple.com/us/buy-iphone/iphone5c) 很诱人，但对于一台你两年内每天都会使用几十次的设备来说，5s 的价值要高出 100 美元。这个小小的溢价让你得到一个更好的相机，具有连拍模式和慢动作视频，一个 TouchID 传感器 [实际上工作非常可靠](http://goo.gl/Nv7Opw) ，以及一个更快、更经得起未来考验的处理器。5c 是为那些不知道的人准备的，但现在你知道了。
 

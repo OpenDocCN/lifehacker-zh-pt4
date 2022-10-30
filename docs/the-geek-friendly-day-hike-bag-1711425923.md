@@ -4,7 +4,7 @@
 
 为一日游做准备需要在你需要的和你想要的之间取得平衡。《生活黑客》读者 Random Michelle 用她的包达到了平衡。
 
-Watch
+
 
 包里是一个 [高的塞拉外交官腰](http://www.amazon.com/High-Sierra-Diplomat-Lumber-Royal/dp/B00IA4BYVM/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-geek-friendly-day-hike-bag-1711425923&asc_source=&ie=UTF8&keywords=high sierra diplomat&pebp=1434388629752&perid=1AE93A9694B1473C8F30&qid=1434388611&sr=8-1&tag=kinjalifehackerlink-20) 。这是里面的内容:
 

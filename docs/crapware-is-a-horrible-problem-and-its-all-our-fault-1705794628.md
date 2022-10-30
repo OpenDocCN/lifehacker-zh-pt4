@@ -4,7 +4,7 @@
 
 我喜欢免费的应用程序。谁不爱不劳而获呢？只有一个问题:在下载链接的另一边，每个开发者都必须选择是对他们的应用程序收费，还是免费提供，并找到其他赚钱的方法。当我们拒绝付款时，我们为他们做了决定。我们创造了对捆绑垃圾软件的需求。
 
-Watch
+
 
 本周，我们为最佳 Bittorrent 客户端 更新了我们的 [Hive Five。你选择的冠军](http://lifehacker.com/five-best-bittorrent-clients-5813348#_ga=1.96375385.431406394.1415821409) [与我们认为最好的](https://lifehacker.com/most-popular-bittorrent-client-torrent-1705622513#_ga=1.96375385.431406394.1415821409)是同一个[:uTorrent。不幸的是，](https://lifehacker.com/the-best-bittorrent-client-for-windows-5855268) [其 crapware 和广告](http://lifehacker.com/popular-bittorrent-client-utorrent-is-causing-a-stir-by-1689871066) 也颇有争议。当你安装 uTorrent 时，你会得到一个奇妙的 BitTorrent 客户端，以及你不想要的捆绑软件的报价。虽然在一些罕见的情况下，这些捆绑包可能是用户真正喜欢的应用程序——例如，Avast 包括 [对 Dropbox](http://blog.emsisoft.com/2015/01/17/has-the-antivirus-industry-gone-mad/) 的选择退出服务——但大多数时候它们只是工具栏或蹩脚的“系统清理器”,只会清理用户的系统。更糟糕的是，这些提议是选择退出的，这意味着如果你不小心明确地说不，你可能会在你的系统上留下大量的垃圾。
 

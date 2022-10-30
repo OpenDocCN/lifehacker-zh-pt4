@@ -4,7 +4,7 @@
 
 好吧，看看你:经过几个月悄悄探索新的、更好的职业机会，你得到了一份让你一想到就头晕的工作。你甚至鼓起勇气告诉了你现在的雇主。就在你应该得意忘形的时候，负罪感滚滚而来。
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](https://www.themuse.com/advice/4-reasons-you-should-stop-feeling-guilty-about-leaving-your-job) ***。**T15】*
 

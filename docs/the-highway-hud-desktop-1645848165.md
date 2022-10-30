@@ -4,7 +4,7 @@
 
 读者 [阿米塔布](http://amiba17.kinja.com/) 喜欢他的高速公路桌面，即使他最近与我们分享了 [救赎之路桌面](http://lifehacker.com/the-road-to-redemption-desktop-1626707594) ，我们也喜欢这个 Linux 桌面 stats 的位置看起来像一个真正的 HUD，一个在工作时容易被忽略的桌面。
 
-Watch
+
 
 这里是阿米塔布用来设置这一切。请注意，他使用的是 Ubuntu，但是您可以在任何 Linux 发行版上这样做:
 

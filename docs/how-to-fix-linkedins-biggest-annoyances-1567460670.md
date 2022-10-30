@@ -4,7 +4,7 @@
 
 无论你是喜欢它还是(很可能)讨厌它， [LinkedIn](http://linkedin.com) 是你职业生涯的领先社交网络，无论你是在 [找工作](http://lifehacker.com/how-can-i-make-linkedin-more-useful-in-landing-a-job-1066870899) 还是只想在职业层面上与他人保持联系。这也让我们中的许多人非常沮丧。以下是你如何让 LinkedIn 不那么烦人，更有用。
 
-Watch
+
 
 所有社交网络都有各自的烦恼和批评，但 LinkedIn 似乎是最多的(或至少是最大声的)，对服务 的 [抱怨从“无用”到“垃圾邮件”和“令人毛骨悚然”不过，就像克服我们对脸书、Twitter 和 Google+](http://amplicate.com/hate/linkedin) 最大的不满一样，LinkedIn 也有解决方案或变通办法。
 

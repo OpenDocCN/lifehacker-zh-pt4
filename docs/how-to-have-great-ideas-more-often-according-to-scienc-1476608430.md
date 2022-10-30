@@ -4,7 +4,7 @@
 
 啊，想法。谁不想要更多的 [伟大的创意](http://blog.bufferapp.com/why-we-have-our-best-ideas-in-the-shower-the-science-of-creativity) ？我知道我有。我通常认为想法很神奇，很难产生。我期望他们在我没有培养他们的情况下出现，当我需要他们的时候，他们没有出现，我经常感到沮丧。好消息是，培养想法*是一个过程，我们可以通过练习产生更多(希望更好)的想法。*
 
-Watch
+
 
 ***本帖最初出现在*** [***缓冲区***](http://blog.bufferapp.com/how-to-produce-more-great-ideas-according-to-science) ***上。**T15】*
 

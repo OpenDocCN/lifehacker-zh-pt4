@@ -4,7 +4,7 @@
 
 你可能认为自拍在魔多的火坑中有着特殊的地位，但不要小看它们。它们实际上是一个非常有用的减肥工具，可以用来衡量进步，让你保持动力。
 
-Watch
+
 
 人们停止锻炼 的原因有很多，这是可以理解的。健身就是*努力*，简单明了。我从在 Bodybuilding.com 工作和与许多健身教练的交谈中注意到，人们很容易因为缺乏明显的进步而气馁。他们可能会想，“ [*有什么意义呢？*，](https://lifehacker.com/why-dont-i-look-like-my-goal-physique-yet-1705174947)，气呼呼地放弃。如果他们只是定期(每 2-4 周左右)照几张浴室镜子自拍或进步照片，他们就会完全意识到自己真正取得了多大的进步。(这个 even [适用于非健身相关的努力！](http://lifehacker.com/use-a-before-picture-to-avoid-getting-overwhelmed-by-1628090705) )
 

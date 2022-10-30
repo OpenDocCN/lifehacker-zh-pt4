@@ -4,7 +4,7 @@
 
 “时刻准备着”，童子军的座右铭，是一个不错的生活准则。大多数时候你可能不需要备用电池或多个 USB 闪存驱动器，但它们不会占用太多空间，而且在需要时，它们是必不可少的。读者布莱恩·格拉格提用格子组装了一个 go bag 里面塞满了准备工作。
 
-Watch
+
 
 包里是一个 [英国皮带公司的古董克鲁兹皮公文包](http://www.jackthreads.com/the-british-belt-company/bags/briefcases/antique-cruz-leather-briefcase/products/100115) 。让我们来看看里面有什么:
 

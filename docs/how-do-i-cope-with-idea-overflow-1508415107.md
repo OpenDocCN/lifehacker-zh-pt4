@@ -4,7 +4,7 @@
 
 写下你的想法，忘掉它们，然后埋头苦干。扼杀过度活跃的头脑是可能的。个人生产力专家在[*Stack Exchange*](http://productivity.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=productivity-102)*提供完成工作的建议。*
 
-Watch
+
 
 我如何应对“想法溢出”？我源源不断的新想法阻碍了我实现旧想法。具体来说，我最近开始了两个大项目。我从零开始，必须学习很多东西才能实现它们。问题是，我学得越多，我得到的新想法越多，就越难集中注意力。
 

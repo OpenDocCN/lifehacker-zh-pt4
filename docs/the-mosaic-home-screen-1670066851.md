@@ -4,7 +4,7 @@
 
 问任何一个 Windows Phone 用户，他们都会告诉你方形磁贴是启动应用程序的好方法。但是你有没有想过 45 度角会更好？是的，今天的主屏幕就是这么古怪。
 
-Watch
+
 
 这个设计来自于我的彩屏用户 [维罗克@XDA](http://mycolorscreen.com/Veroake@XDA/) 。要在 Themer 上获得它，请下载。zip 文件 [此处](https://www.dropbox.com/sh/94231qd5cs8hmiv/AACtRG8aIoO0AC85PfzTBpqda?dl=0) ，然后按照以下说明操作:
 

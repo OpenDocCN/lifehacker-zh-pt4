@@ -4,7 +4,7 @@
 
 [【Adblock Plus】](https://adblockplus.org/)是最强大的浏览器扩展之一，虽然与其同名是其最常用的功能，但它不仅仅是阻止广告。事实上，你可以用它做各种事情，包括清理脸书的界面，确保网站不会跟踪你。
 
-Watch
+
 
 屏蔽广告不支持像我们这样创建免费内容的网站，所以在 Adblock Plus 中将你真正喜欢的网站列入白名单总是一个好主意。这是一个 [的简单过程](https://adblockplus.org/en/acceptable-ads) ，只需要几秒钟。
 

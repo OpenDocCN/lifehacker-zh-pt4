@@ -4,7 +4,7 @@
 
 本周我们 [为我们最喜欢的应用](https://lifehacker.com/top-10-apps-and-services-that-are-more-than-meets-the-e-1491631328)[找到了一些巧妙的用法，学会了最适合初学者的编程语言](http://lifehacker.com/five-best-programming-languages-for-first-time-learners-1494256243)[发现了一个巧妙的谷歌求职搜索](http://lifehacker.com/find-unadvertised-job-openings-with-a-clever-google-sea-1495871716) ， [计划了一个免费的在线课程](http://lifehacker.com/plan-your-free-online-education-at-lifehacker-u-spring-1493571968) 。这里回顾一下。
 
-Watch
+
 
 ## 超过预期的十大应用和服务
 

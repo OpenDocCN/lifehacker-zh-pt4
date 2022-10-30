@@ -4,7 +4,7 @@
 
 各位，欢迎来到黑色星期一。今晨道指下跌超过 5%[标普下跌 3.4%](http://www.bloomberg.com/news/articles/2015-08-24/u-s-stocks-fall-as-exchanges-open-s-p-500-index-loses-3-4-)为我们所见最大跌幅。自然，每个人都吓坏了。这是可以理解的，但不要做任何激烈的事情。
 
-Watch
+
 
 我们都听说过这样的陈词滥调，“低买高卖”，这是那些在纸面上听起来完全合乎逻辑的事情之一。因此，当股市暴跌时，我们登录我们的薄荷账户，看着自己的投资像醉酒司机一样崩溃，然后进入 [让恐惧掌控方向盘](http://twocents.lifehacker.com/my-finances-sucked-until-i-conquered-my-fear-of-being-p-1724941320) 。简而言之:我们恐慌，然后做出错误的决定。
 

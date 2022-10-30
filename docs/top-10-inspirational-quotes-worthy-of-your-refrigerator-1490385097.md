@@ -4,7 +4,7 @@
 
 有时候，你需要的只是一句合适的励志名言，在你情绪低落的时候给你一点鼓励。这里有几个我们多年来分享的最爱。
 
-Watch
+
 
 ### [10。"运气是当准备遇到机遇时发生的事情."](http://lifehacker.com/luck-is-what-happens-when-preparation-meets-opportunit-821189862)T3】
 

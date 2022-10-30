@@ -4,7 +4,7 @@
 
 你大概知道可以在虚拟机 中 [运行桌面操作系统进行测试。你可以对 Android 做同样的事情，这是在你买手机之前测试手机的好方法。下面是如何设置它。](https://lifehacker.com/the-power-users-guide-to-better-virtual-machines-in-vir-1569943402)
 
-Watch
+
 
 ### **为什么要虚拟化 Android？**
 

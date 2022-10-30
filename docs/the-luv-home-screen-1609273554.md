@@ -4,7 +4,7 @@
 
 简单和主屏幕就像马车一样走在一起。这个设计来自我的彩屏用户 [alicarbovader](http://mycolorscreen.com/alicarbovader@XDA/) 在一个主屏幕上展示了你需要的一切，包括天气、日历、通信徽章等等。
 
-Watch
+
 
 该设计是主题的自定义皮肤。您可以从源代码链接下载它，并按照以下说明进行安装:
 

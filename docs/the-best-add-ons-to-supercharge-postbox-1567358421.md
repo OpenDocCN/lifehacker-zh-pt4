@@ -4,7 +4,7 @@
 
 邮箱是我们最喜欢的电子邮件客户端之一，因为它建立在雷鸟奠定的基础上，它还支持大量优秀的附加组件和扩展，可以使它变得更好。让我们来看看一些最好的，以及它们如何使您的电子邮件更容易管理，并帮助您更有效率。
 
-Watch
+
 
 我们已经讨论了 [为什么你可能想要使用桌面电子邮件客户端](http://lifehacker.com/should-i-be-using-a-desktop-email-client-5925096) ，甚至 [这些应用程序比网络邮件](http://lifehacker.com/what-desktop-email-clients-still-do-better-than-webmail-1552450068) 做得更好，而邮箱是我们最喜欢的电子邮件客户端之一，它可以将所有这些功能带到桌面上。Postbox 是跨平台的，尽管它开箱即用，但你可以用插件和扩展添加更多的特性。这里有一些最好的尝试。
 

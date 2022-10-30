@@ -4,7 +4,7 @@
 
 关于 XBMC， [可定制的媒体中心软件](https://lifehacker.com/create-a-kickass-seamless-play-everything-media-cente-5900626) 最好的部分之一是它类似浏览器的扩展。如果你曾经想把看电视、听播客或玩视频游戏融入到你的 XBMC 盒子中，这就是它的工作方式。
 
-Watch
+
 
 *我们最初在 2011 年发布了这个列表，但是随着*[XBMC 13.0《哥谭》、](https://lifehacker.com/xbmc-13-0-gotham-improves-sharing-settings-and-spee-1572058729) *的发布，我们决定更新它。有很多新的插件，也有很多不再兼容的旧插件，所以去看看吧——你可能会发现一些你以前从未见过的东西！*
 

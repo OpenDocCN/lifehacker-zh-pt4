@@ -4,7 +4,7 @@
 
 神经科学家和心理学家不断发现正念冥想对健康有更多益处。幸运的是，这是一个简单的练习，几乎每个人都可以做。但是你如何开始，如何从实践中获得最大的回报？这是我们快速简单的冥想指南。
 
-Watch
+
 
 正念冥想，或专注的注意力，会带来惊人数量的健康益处 ，包括减轻压力，更好的注意力和记忆力，甚至增加创造力和同情心。它还能 [缓解睡眠不安](http://www.forbes.com/sites/toddessig/2015/02/27/disturbed-sleep-shown-to-benefit-from-mindfulness-training/)[重组我们的大脑让它变得更好](http://dx.doi.org/10.1016/j.pscychresns.2010.08.006) (包括开发更多的灰质)，并帮助你 [减肥](http://link.springer.com/article/10.1007/s12529-014-9448-9) 。这也是令人难以置信的放松和恢复活力。
 

@@ -4,7 +4,7 @@
 
 当你在线分享图片时，模糊或像素化账号等敏感信息是一种常见的做法，但你的信息可能没有你想象的那么安全。这需要一些工作，但有一些方法来揭示这一敏感文本。
 
-Watch
+
 
 *这篇文章是我们 Lifehacker 的* [*邪恶周*](https://lifehacker.com/welcome-to-lifehackers-fifth-annual-evil-week-1647621043) *系列的一部分，在这里我们看到了做事的阴暗面。知道邪恶意味着知道如何打败它，所以你可以用你的邪恶力量做好事。想要更多吗？查看我们的* [*恶周标签页*](http://lifehacker.com/tag/evilweek) *。*
 

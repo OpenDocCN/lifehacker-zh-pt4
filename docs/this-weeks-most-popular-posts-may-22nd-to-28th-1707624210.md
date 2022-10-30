@@ -4,7 +4,7 @@
 
 这一周我们 [磨练了我们的工作面试技巧](https://lifehacker.com/the-most-common-illegal-job-interview-questions-you-sho-1706238105)[学会了与 IT 部门打交道](http://lifehacker.com/seven-things-your-it-department-wishes-you-knew-about-t-1706111028)[就像一个乐队指挥](http://workshop.lifehacker.com/coil-your-extension-cords-like-a-roadie-with-the-over-u-1706890537)[升级了我们的车库](http://lifehacker.com/top-10-smart-ways-to-organize-and-upgrade-your-garage-1706343727) 。这里回顾一下。
 
-Watch
+
 
 ## [你应该警惕的最常见的非法求职面试问题](http://lifehacker.com/the-most-common-illegal-job-interview-questions-you-sho-1706238105)
 

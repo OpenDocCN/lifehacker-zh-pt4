@@ -4,7 +4,7 @@
 
 沃尔特·伊萨克森已经成为杰出人物的传记作家，比如史蒂夫·乔布斯、阿尔伯特·爱因斯坦和本杰明·富兰克林。当然，沃尔特自己也很特别，因为写书甚至不是他的日常工作。
 
-Watch
+
 
 白天，他是位于华盛顿的非营利政策研究机构阿斯彭研究所(Aspen Institute)的首席执行官，晚上，他写道。他的新书 [《创新者:一群黑客、天才和极客如何创造了数字革命](http://www.amazon.com/The-Innovators-Hackers-Geniuses-Revolution/dp/147670869X/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-walter-isaacson-and-this-is-how-i-work-1654948434&asc_source=&tag=kinjalifehackerlink-20) 》考察了企业家和发明家，他们的工作创造了现代计算和互联网。
 

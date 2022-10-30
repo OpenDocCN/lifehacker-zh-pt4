@@ -4,7 +4,7 @@
 
 本周我们 [为我们的亚马逊购物](https://lifehacker.com/top-10-tricks-for-shopping-at-amazon-1639616751)[在照片中更好看](http://lifehacker.com/how-to-look-better-in-photos-based-on-your-body-type-1640221096)[推出了我们自己的原创网飞扩展](http://lifehacker.com/flix-plus-customizes-netflix-to-your-hearts-desire-1640968001) ， [解决了当你的整个生活糟透了的时候该怎么办](http://lifehacker.com/where-to-start-when-it-feels-like-nothing-is-going-righ-1640250197) 。这里回顾一下。
 
-Watch
+
 
 ## [在亚马逊](http://lifehacker.com/top-10-tricks-for-shopping-at-amazon-1639616751) 购物的十大诀窍
 

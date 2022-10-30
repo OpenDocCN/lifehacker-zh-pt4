@@ -4,7 +4,7 @@
 
 本周我们 [完成了我们一年一度的生活黑客包](https://lifehacker.com/lifehacker-pack-for-chrome-our-list-of-essential-chrom-880863393) ， [采访了伊拉·格拉斯关于他是如何工作的](http://lifehacker.com/im-ira-glass-host-of-this-american-life-and-this-is-h-1609562031) ， [搜出了最好的杀毒程序](http://lifehacker.com/five-best-desktop-antivirus-applications-1607557993) ， [黑了我们的烤架](http://lifehacker.com/top-10-ways-to-hack-your-grill-1607315381) 。这里回顾一下。
 
-Watch
+
 
 ## Lifehacker 为 [安卓平板](http://lifehacker.com/lifehacker-pack-for-android-tablets-our-list-of-the-be-875602288)[ipad](http://lifehacker.com/lifehacker-pack-for-ipad-our-list-of-the-essential-ipa-839840273)[Chrome](http://lifehacker.com/lifehacker-pack-for-chrome-our-list-of-essential-chrom-880863393)[Firefox](http://lifehacker.com/lifehacker-pack-for-firefox-our-list-of-the-essential-896766794)
 打包

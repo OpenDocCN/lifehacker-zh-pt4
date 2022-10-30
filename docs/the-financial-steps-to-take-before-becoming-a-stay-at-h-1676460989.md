@@ -4,7 +4,7 @@
 
 做全职妈妈有很多好处，但如果你不小心的话，它会让你的财务状况付出很大代价。你对自己的储蓄、支出和债务越了解，就越容易实现转变。如果你正在考虑成为全职妈妈，这里有一些你需要做的事情，在经济上。
 
-Watch
+
 
 ***本帖原载于***[***mybank tracker***](http://www.mybanktracker.com/news/stay-at-home-parent-finances)***。**T15】*
 

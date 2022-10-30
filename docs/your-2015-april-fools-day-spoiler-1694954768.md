@@ -4,7 +4,7 @@
 
 再来一回， [诶 chaps](https://www.youtube.com/watch?v=kCpjgl2baLs) ？没错——o，又到愚人节了。但是你有事情要做。你没有时间做 [任何有趣的事情](https://www.clickhole.com/death-attends-the-matinee-1825124308) 。因此，我们在这里收集了所有最好的(或最差的)笑话，这样你就可以把它从你的系统中取出来，继续你的生活。
 
-Watch
+
 
 我们将全天更新这个帖子，更新我们发现的任何新的恶作剧。同时，你可以在下面的讨论中提交你自己的意见。并且一如既往的玩好这一天 [不要当鸡巴](https://www.youtube.com/watch?v=kXYXuXX48m8) 。
 

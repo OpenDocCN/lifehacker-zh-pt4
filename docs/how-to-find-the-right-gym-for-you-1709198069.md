@@ -4,7 +4,7 @@
 
 良好的 [锻炼计划和饮食](http://vitals.lifehacker.com/exercise-vs-diet-which-is-more-important-for-weight-l-1677532039) 无疑是你健身成功的重要部分。但它们不是唯一的因素——你选择的健身房也会对你的成功产生很大的影响。
 
-Watch
+
 
 最终，你需要选择一个你喜欢的健身房。你可能永远不会喜欢它(老实说，很难喜欢一个专门为一群汗流浃背的人在大块金属下扭动身体而设计的房间)，但你至少应该享受足够的环境 [继续回去](http://vitals.lifehacker.com/why-eat-less-move-more-is-the-least-helpful-diet-adv-1686146359) 。为了确保做出正确的决定，请考虑以下因素:
 

@@ -4,7 +4,7 @@
 
 这一周我们 [攻克了减肥的实用性](https://lifehacker.com/exercise-vs-diet-which-is-more-important-for-weight-l-1677532039)[得到了一些免费的东西](http://twocents.lifehacker.com/what-do-people-buy-that-they-can-get-for-free-1677866139)[从宋飞](http://lifehacker.com/seinfeld-s-trick-for-small-talk-ask-questions-with-num-1661708641)[那里学到了一些闲聊的小技巧，还修理了自己的家](http://lifehacker.com/nine-of-the-easiest-diy-repairs-you-dont-need-a-profess-1677077555) 。这里回顾一下。
 
-Watch
+
 
 ## [运动与饮食:减肥哪个更重要？](http://vitals.lifehacker.com/exercise-vs-diet-which-is-more-important-for-weight-l-1677532039)T3】
 

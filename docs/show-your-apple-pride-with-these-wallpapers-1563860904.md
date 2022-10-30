@@ -4,7 +4,7 @@
 
 好了 [窗户伙计](http://lifehacker.com/show-your-windows-pride-with-these-wallpapers-1561363807) ，让开。是时候让苹果阵营得到一些爱了。用这些苹果壁纸，在你 Macbook 上 Macbook 的同时，在你的 Macbook 上展示你对 Macbook 的喜爱。
 
-Watch
+
 
 请记住，我们现在邀请您参与壁纸星期三系列！你会在这里找到一个选择，但是在下面的讨论中张贴你最喜欢的本周主题。尽可能坚持我们的格式，包括标题、图片、分辨率和链接。壁纸快乐！
 

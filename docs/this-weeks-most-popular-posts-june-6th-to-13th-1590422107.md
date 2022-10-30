@@ -4,7 +4,7 @@
 
 本周我们 [了解了隐性工作面试测试](https://lifehacker.com/look-out-for-a-hidden-test-at-your-next-job-interview-1587095685)[在好市多省钱](http://lifehacker.com/top-10-ways-to-save-more-money-at-costco-and-other-ware-1586789318)[揭穿了一些酒精神话](http://lifehacker.com/eight-stubborn-alcohol-myths-debunked-by-science-1589574974)[流播了第一场世界杯比赛](http://lifehacker.com/how-to-stream-the-2014-world-cup-1587280464) 。这里回顾一下。
 
-Watch
+
 
 ## 在你的下一次工作面试中注意一个隐藏的测试
 

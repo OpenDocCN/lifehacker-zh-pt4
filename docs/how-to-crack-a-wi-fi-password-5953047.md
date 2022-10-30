@@ -4,7 +4,7 @@
 
 破解 Wi-Fi 密码并不是一个简单的过程，但学习起来并不需要太长时间——无论你是在谈论 [简单的 WEP 密码](https://lifehacker.com/how-to-crack-a-wi-fi-networks-wep-password-with-backtra-5305094) 还是 [更复杂的 WPA](https://lifehacker.com/how-to-crack-a-wi-fi-networks-wpa-password-with-reaver-5873407) 。了解它是如何工作的，这样你就能学会如何保护自己。T15】
 
-Watch
+
 
 ## [如何用回溯破解 Wi-Fi 网络的 WEP 密码](https://lifehacker.com/how-to-crack-a-wi-fi-networks-wep-password-with-backtra-5305094)
 

@@ -6,7 +6,7 @@
 
 不管你喜欢它还是讨厌它，三星的 Galaxy Note 是最初的超大智能手机，这种风格甚至连苹果也最终采用了。这也是三星的终极生产力工具，配有电容笔和特定软件，以利用巨大的屏幕。现在，笔记的第五次迭代已经到了。
 
-Watch
+
 
 但这不是我们去年九月看到的 的同一个音符 [。有更多的玻璃，更少的假皮革，没有可拆卸的背部。虽然有些人可能会认为最后一项](http://gizmodo.com/samsung-galaxy-note-4-better-in-all-the-right-places-1629731241) [是一个交易破坏者](http://gizmodo.com/your-new-galaxy-s6-will-have-a-built-in-expiration-date-1688853343) ，但 Note 5 试图通过改进的设计和你实际想要使用的新软件来弥补它。
 

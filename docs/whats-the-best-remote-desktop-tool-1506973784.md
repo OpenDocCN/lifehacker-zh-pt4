@@ -4,7 +4,7 @@
 
 当你需要在不在家的时候访问你的计算机，或者在不去别人家的情况下对他们的计算机进行故障诊断时，一个好的远程桌面工具是救命稻草。我们之前最喜欢的 [之一](https://lifehacker.com/five-best-remote-desktop-tools-31055777)【LogMeIn】[即将溢价](http://lifehacker.com/remote-desktop-tool-logmein-is-no-longer-free-1505850872) ，所以是时候谈谈替代品了。本周我们想听听你会选择哪种工具。
 
-Watch
+
 
 当然，仅仅因为 LogMeIn 从免费转向付费并不意味着它不是一个很好的工具——但是说实话，市场上有很多其他的替代产品，它们不需要任何成本，也一样有效。对于本周的 Hive Five，让我们在下面的讨论中听听你的一些最佳选择吧！
 

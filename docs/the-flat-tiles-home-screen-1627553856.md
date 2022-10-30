@@ -4,7 +4,7 @@
 
 单一屏幕的主屏幕可以很好地让你找到你需要的东西，而不需要太多的点击。我的彩屏用户 [Pitoko/David](http://mycolorscreen.com/pitoko/) 的这个设计很有天赋，使用了一些引人注目的瓷砖。
 
-Watch
+
 
 这个设计是用 Nova 发射器做的。要在您的设备上获得它，您需要以下内容(加上附加文件和说明 [此处](https://plus.google.com/107779483290352266389/posts/2LWStBkgvAG) ):
 

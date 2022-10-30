@@ -4,7 +4,7 @@
 
 [阿福](http://www.alfredapp.com/) ，顾名思义其性情相投、听话，就像是你 Mac 的管家。它是一个应用程序启动器，一个搜索工具，和一个通用的 [生产力工具](https://lifehacker.com/a-beginners-guide-to-mouseless-computing-with-alfred-1596198655) ，让你 [自动化你工作流程的](http://lifehacker.com/how-to-automate-anything-with-alfred-workflows-then-sh-5993430) 方面，而不必从键盘上抬起你的手指。
 
-Watch
+
 
 这款应用程序是由 Andrew 和 Vero Pepperrell 在 2010 年 2 月开发的，他们在一个热情的社区的支持和反馈下继续开发。它是如何发生的，为什么会发生？我们采访了 Vero，了解这款应用背后的故事。
 

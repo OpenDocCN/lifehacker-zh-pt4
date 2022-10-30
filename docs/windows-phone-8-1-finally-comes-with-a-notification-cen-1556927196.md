@@ -4,7 +4,7 @@
 
 今天在 Build 开发者大会上，微软展示了其最新版本的手机操作系统 Windows Phone 8.1。而现在，Windows Phone 现在有了自己的私人助理:Cortana。
 
-Watch
+
 
 我们一直听到很多关于 Windows Phone 8.1 即将推出“Cortana”功能的传言；一个类似于谷歌 Siri 的数字助理，以《光环》中的人工智能命名。现在，微软终于证实它正在路上，它看起来真棒。
 

@@ -4,7 +4,7 @@
 
 凯瑟琳·菲茨杰拉德一生都负债累累——多达 10 万美元。在这里，她解释了她最初是如何到达那里的，以及她是如何在 40 岁时还清最后一张信用卡的。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/2013/11/how-i-finally-paid-off-a-lifetime-of-credit-card-debt/)***。*T15】**
 

@@ -4,7 +4,7 @@
 
 像许多创造性的工作一样，电影制作人是一份全职工作，无论你在哪里，你都需要捕捉想法。虽然这显然不是为了实际的电影拍摄，但 Lifehacker 的读者 Moreá分享了他们用来做笔记、编辑和拍摄外景的包。
 
-Watch
+
 
 这个包是一个 [Newfeel 斜挎包](http://www.newfeel.com/en/products/backenger-bag) ，下面是里面的东西:
 

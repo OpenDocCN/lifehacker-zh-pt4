@@ -4,7 +4,7 @@
 
 在 Ubuntu 中，鼠标点击只能让你到此为止。对于认真使用“另一个操作系统”的人来说，学习终端命令是重要的一步专家们在 [*询问 Ubuntu*](http://ubuntu.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=ubuntu-99) *提供学习“shell”的最佳方法*
 
-Watch
+
 
 在我看来，学习如何使用终端是学习如何使用 Ubuntu 的先决条件。所以我在努力找出最好的学习方法。有 Quizlet 在线闪存卡吗？更好的方法？
 

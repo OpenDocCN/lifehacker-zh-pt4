@@ -4,7 +4,7 @@
 
 Craigslist 是一个在线买卖东西的好地方，无论你是在寻找公寓、寻找特价商品，还是有东西要卖，我们认为 Mokriya 是你在 Android 设备上使用 Craiglist 的最佳选择。它速度快、灵活、外观漂亮，并且拥有您需要的所有功能。
 
-Watch
+
 
 ### [穆克里亚](https://play.google.com/store/apps/details?id=com.mokriya.craigslist&hl=en)T3】
 

@@ -4,7 +4,7 @@
 
 仅仅提到康卡斯特和时代华纳 [联手](https://gizmodo.com/comcast-is-buying-time-warner-cable-to-make-big-cable-e-1521883329) 组成一个破旧的超级集团就足以让你 [奔向干草叉](http://gizmodo.com/the-40-best-tweets-about-the-comcast-time-warner-cable-1522034013) 。但是这个邪恶的联盟——如果它通过监管的话——比垄断更深入。
 
-Watch
+
 
 要理解这种结合有多成问题，重要的是要了解为什么会这样，更重要的是，这对你意味着什么。
 

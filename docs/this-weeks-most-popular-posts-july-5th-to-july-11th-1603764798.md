@@ -4,7 +4,7 @@
 
 本周我们盘点了一些你可以在一个小时内完成的 DIY 项目[揭穿了一些计算机安全神话](http://lifehacker.com/five-computer-security-myths-debunked-by-experts-1602290081)[学会了掌握我们的烤架](http://lifehacker.com/know-how-to-cook-anything-on-the-grill-with-this-infogr-1599262922) ，从微软 得到了一些 [免费书籍，从](http://lifehacker.com/download-a-treasure-trove-of-130-free-ebooks-from-micro-1601394722) [学会了剥美味的芒果](http://lifehacker.com/how-to-peel-a-mango-in-under-10-seconds-1603398060) 。这里回顾一下。
 
-Watch
+
 
 ## 一小时内你能做的十大户外 DIY 项目
 

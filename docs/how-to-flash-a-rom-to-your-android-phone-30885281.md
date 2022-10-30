@@ -4,7 +4,7 @@
 
 Android 很棒，但有时，你的手机版本——无论是普通的 Android 还是三星的 touch wiz——都有一些不足之处。以下是如何在你的设备上安装新版本的 Android(或 ROM)以获得更好的 Android 体验。
 
-Watch
+
 
 ### ROM 是什么？
 

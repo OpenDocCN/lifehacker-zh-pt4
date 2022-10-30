@@ -4,7 +4,7 @@
 
 本周我们 [停止支付全价](https://lifehacker.com/top-10-things-you-never-have-to-pay-full-price-for-1460923708)[了解了分手的科学](http://lifehacker.com/the-science-behind-why-breakups-suck-and-what-you-can-1460495310)[得到了酒保的关注](http://lifehacker.com/the-most-effective-way-to-get-a-bartenders-attention-i-1463785984)[为筹钱做了最后的努力](http://lifehacker.com/what-should-i-do-when-ive-almost-run-out-of-money-1464397841) 。这里回顾一下。
 
-Watch
+
 
 ## 你永远不用付全价的 10 大东西
 

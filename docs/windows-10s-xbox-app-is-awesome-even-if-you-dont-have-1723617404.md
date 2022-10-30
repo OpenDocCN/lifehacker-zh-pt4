@@ -4,7 +4,7 @@
 
 Windows 10 带来了一个 [吨的新](http://lifehacker.com/the-best-new-features-of-windows-10-1680904614) 和 [牛逼的功能](http://lifehacker.com/the-best-windows-10-features-you-probably-haven-t-heard-1721054092) 。最好的功能之一是新的 Xbox 应用程序。即使你没有 Xbox，这个应用对每个人都有用。你可以用它来录制游戏，从任何应用程序创建剪辑，甚至流式传输主机游戏。
 
-Watch
+
 
 ### **用游戏条**录制几乎任何应用程序或游戏
 

@@ -4,7 +4,7 @@
 
 如果每次你打开主屏幕时，你的巨型手机用强光照射你的脸令人不快，你可能会喜欢这个设计。采用柔和的棕褐色设计，即使使用 AMOLED 显示屏，这种设计也很悦目。
 
-Watch
+
 
 这种造型是为男士打造的。不过图标也兼容 [缩放器](https://play.google.com/store/apps/details?id=org.zooper.zwpro) 。要将它放入主题中，请遵循以下步骤:
 

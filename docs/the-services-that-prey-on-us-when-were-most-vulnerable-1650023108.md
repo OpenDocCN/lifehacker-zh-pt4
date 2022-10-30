@@ -4,7 +4,7 @@
 
 不是所有的公司都想得到我们，但也不是所有的公司都把我们的最佳利益放在心上。有些行业特别乐于利用我们的不幸来获利。下面是反击的方法。
 
-Watch
+
 
 *这篇文章是我们 Lifehacker 的* [*邪恶周*](https://lifehacker.com/welcome-to-lifehackers-fifth-annual-evil-week-1647621043) *系列的一部分，在这里我们看到了做事的阴暗面。知道邪恶意味着知道如何打败它，所以你可以用你的邪恶力量做好事。想要更多吗？查看我们的* [*恶周标签页*](http://lifehacker.com/tag/evilweek) *。*
 

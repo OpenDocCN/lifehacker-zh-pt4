@@ -4,7 +4,7 @@
 
 对于 Android 来说，这是重要的一年。我们看到谷歌开始让 Android 变得更加模块化以对抗碎片化，果冻豆脱颖而出，KitKat 登上舞台，我们向你展示了比以往任何时候都更容易为你的手机扎根，定制它，用语音命令与它交谈，并使用它来自动化你的生活。这里回顾一下。
 
-Watch
+
 
 我们今年最大的一些 Android 相关故事与[Android 4.4 kit kat](https://lifehacker.com/all-the-new-stuff-in-android-4-4-kitkat-1456286732)[语音命令迅速恢复正常](http://lifehacker.com/everything-you-didnt-know-you-could-do-with-google-voi-512727229)[我们的杀手级年度最佳 Android 应用综述](http://lifehacker.com/lifehacker-pack-for-android-2013-our-list-of-the-best-819094535) 和 [我们全新的 Android 手机指南](https://lifehacker.com/everything-you-need-to-know-about-rooting-your-android-5789397) 有关。
 

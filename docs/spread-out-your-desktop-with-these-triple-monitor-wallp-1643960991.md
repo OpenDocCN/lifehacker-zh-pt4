@@ -4,7 +4,7 @@
 
 [更多的显示器不一定等于更高的生产力](http://lifehacker.com/seven-productivity-myths-debunked-by-science-and-comm-5965826) ，但肯定等于 [更牛逼](https://lifehacker.com/make-the-most-of-your-multiple-monitors-in-windows-5526025) 。这里有一些壁纸，你可以伸展到两个甚至三个屏幕。
 
-Watch
+
 
 请记住，我们现在邀请您参与壁纸星期三系列！你会在这里找到一个选择，但是在下面的讨论中张贴你最喜欢的本周主题。尽可能坚持我们的格式，包括标题、图片、分辨率和链接。壁纸快乐！
 

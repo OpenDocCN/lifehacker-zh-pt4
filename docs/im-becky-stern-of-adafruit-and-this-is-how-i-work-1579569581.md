@@ -4,7 +4,7 @@
 
 贝基·斯特恩是艺术家、工程师还是设计师？在 Adafruit Industries，以上都是。作为可穿戴电子产品的主管，Becky 将自己的 DIY 技能与工艺天赋相结合，打造出利用各种电子元件的酷炫小发明。
 
-Watch
+
 
 你可能会从她在 [制作](http://makezine.com/search/?q=becky%20stern&sa=Search) 的作品、她的 [Youtube 视频](http://www.youtube.com/bekathwia) 或她的 [Adafruit 教程](https://learn.adafruit.com/users/6) 中认出 Becky，在那里她展示了如何制作从 [RFID 环](https://learn.adafruit.com/unlock-android-with-wearable-nfc) 到 [像素心](https://learn.adafruit.com/light-activated-pixel-heart) 的一切。贝基是如何做到这一切的？我们采访了她，了解了贝基最喜欢的装备和工作习惯。
 

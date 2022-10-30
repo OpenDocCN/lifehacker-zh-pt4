@@ -9,4 +9,3 @@
 *   我发现消灭 bug 比实际编程更有趣。我能以此为职业吗？T3】
 *   [如何把一个树莓派变成我家的温湿度数据库？](http://hackerspace.lifehacker.com/i-m-looking-to-log-temperature-humidity-readings-in-my-1704766086)T3】
 
-Watch

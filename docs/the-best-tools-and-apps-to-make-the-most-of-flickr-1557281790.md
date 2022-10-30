@@ -4,7 +4,7 @@
 
 Flickr 是一个很棒的工具，可以整理你的照片并与世界分享。此外，自从 [Flickr 进行了一次大修并获得了大量免费空间](http://lifehacker.com/flickr-offers-1tb-of-free-space-for-your-photos-50-ye-508972406/all) ，它也是备份照片的好地方。尽管如此，如果有一些来自用户社区的有用工具，它甚至会更好。这里有一些最好的。
 
-Watch
+
 
 即使你有一段时间没去过，Flickr 仍然很受专业和业余摄影师的欢迎。你可以 [用它来寻找你的下一台相机](https://lifehacker.com/use-flickr-to-help-you-find-your-next-camera-1506594459) ，或者 [用所有的精彩空间来存放文件，如果你愿意，不仅仅是照片](http://lifehacker.com/upload-anything-to-flickrs-new-1tb-of-space-with-a-sim-510138485/all) 。如果你确实想用它来拍照，有大量的第三方应用程序和实用程序可以让上传更快，管理照片更容易，并帮助你发现新的有趣的人。这里有几个。
 

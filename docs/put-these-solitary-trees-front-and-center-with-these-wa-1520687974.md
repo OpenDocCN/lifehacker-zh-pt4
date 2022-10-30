@@ -4,7 +4,7 @@
 
 有没有意识到有多少壁纸符合“田野中间的一棵树”这一奇怪的特定类别有很多。而且都很牛逼。所以今天我们分享一些我们最喜欢的。
 
-Watch
+
 
 注意:如果你更喜欢多棵树， [我们也为你准备了](https://lifehacker.com/take-your-desktop-for-a-walk-through-the-forest-with-th-5927077) 。
 

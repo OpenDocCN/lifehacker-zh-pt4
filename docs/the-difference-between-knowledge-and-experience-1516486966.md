@@ -4,7 +4,7 @@
 
 知识和经验有什么区别，你的大脑是如何处理这两者的？创造性思维哪个更重要？缓冲区的贝尔贝丝库珀调查。
 
-Watch
+
 
 ***本帖原载于*** [***缓冲博客***](http://blog.bufferapp.com/connections-in-the-brain-understanding-creativity-and-intelligenceconnections) ***。*T15】**
 

@@ -4,7 +4,7 @@
 
 Android ( [根源](https://lifehacker.com/everything-you-need-to-know-about-rooting-your-android-5789397) ): [闪烁 rom](http://lifehacker.com/five-best-android-roms-5915093)是定制你的 Android 体验的一个很好的方式，但是如果你不想 [处理 ROMming 过程](http://lifehacker.com/this-database-of-android-roms-helps-you-choose-the-best-1449794780) ，GravityBox 对普通 Android 进行了大量的调整。
 
-Watch
+
 
 GravityBox 实际上是[exposed](http://forum.xda-developers.com/showthread.php?t=1574401)的一个模块，这个令人敬畏的框架 [让你基本上创建你自己的定制 ROM](https://lifehacker.com/how-to-create-your-own-customized-version-of-android-wi-1440101209) ，只包含你想要的特性——并且不需要 ROM 刷新。因此，您需要根化并安装 Xposed 框架才能工作，但是它非常容易设置。更多信息，请查看我们关于 x exposed 的指南。
 

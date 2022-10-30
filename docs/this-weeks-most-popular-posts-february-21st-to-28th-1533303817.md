@@ -4,7 +4,7 @@
 
 本周我们学习了如何停止给别人一个 f*ck 别人怎么想的[10 件你永远不该为之买单的东西](http://lifehacker.com/ten-things-you-should-never-pay-for-1529615183)[哪些立式办公桌是最好的](http://lifehacker.com/five-best-standing-desks-1528244287)[哪些是你不该用微波炉加热的](http://lifehacker.com/what-should-and-shouldnt-i-microwave-1532532172) 。这里回顾一下。
 
-Watch
+
 
 ## [如何停止给一个 F*ck 人什么想法](http://lifehacker.com/how-to-stop-giving-a-f-ck-what-people-think-1530784365)
 

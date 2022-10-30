@@ -4,7 +4,7 @@
 
 一个没有合适工具的生活黑客有点像米开朗基罗带着一盒蜡笔:你或许可以做出一些好东西，但你不会创造出西斯廷教堂的生活黑客。这里有一些最有用的生活黑客用品，你可以花一美元或更少。
 
-Watch
+
 
 几乎这个列表中的所有东西你都可以在当地的一元店买到。就像你的 [汽车](https://lifehacker.com/30-essential-things-you-should-keep-in-your-car-1263514115) 或 [灾难应急包](https://lifehacker.com/make-sure-youre-prepared-for-disaster-with-a-72-hour-ki-5780934) 一样，提前准备好你可能需要的材料总是个好主意。生活黑客用品可能不是拯救生命的必需品，但如果你在这里，你可能想更快更容易地完成事情。
 

@@ -4,7 +4,7 @@
 
 当苹果刚刚发布其第一款巨型手机 时，三星的巨型 Note 已经是第四次迭代了。在很多方面，是大手机开始了这场失控的屏幕尺寸竞赛。但是，尽管它面临着一个 [越来越庞大的竞争对手大军](http://gizmodo.com/the-iphone-6-is-somehow-the-only-decent-non-giant-phone-1644450489) ，Note 4 是唯一一款正确的巨型手机。
 
-Watch
+
 
 ### 这是什么？
 

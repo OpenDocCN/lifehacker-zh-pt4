@@ -4,7 +4,7 @@
 
 承认吧:在九个小时的工作日结束时，你更有可能扑通一声倒在沙发上看电视，而不是去健身房。人们如何在忙碌的生活中找到时间保持健康？这里帮忙回答的是 [Fitocracy](https://www.fitocracy.com/) 的迪克·塔伦斯。
 
-Watch
+
 
 迪克是一名健身和营养教练，专门帮助像你这样的人——过着忙碌生活但仍想保持健康的普通人。而且值得 [重复](http://lifehacker.com/ask-an-expert-all-about-your-summer-fitness-goals-508873716) 迪克的独特背景故事:
 

@@ -6,7 +6,7 @@
 
 ***本帖最初出现在*** [***三个节俭的家伙***](http://www.threethriftyguys.com/2014/01/organized-stockpiling-how-to-make-the-most-of-those-great-sales/) ***上。****
 
-Watch
+
 
 当我们住在郊区 3600 平方英尺的房子里时，房子有巨大的储存空间，储存不成问题。我们刚刚清理出一面墙的内置货架空间，并指定它为我们伟大的食物发现。现在我们的房子只有原来的一半大，储存空间也很小，我们必须学会发挥创造力。
 

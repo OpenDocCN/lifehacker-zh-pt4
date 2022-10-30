@@ -4,7 +4,7 @@
 
 今天的 [Android M 公告](https://lifehacker.com/all-the-new-features-of-android-m-1707454646) 在 [Google I/O 2015](http://lifehacker.com/all-the-important-stuff-google-announced-at-i-o-2015-1707454800?rev=1432842495224) 已经让我们相当兴奋了。如果你渴望尝试新的热点(并且你有 Nexus 5、6、9 或播放器)，下面是如何立即在你的设备上安装它的方法。
 
-Watch
+
 
 若要开始，您需要解锁您的设备。你不需要 root，但你可以在 [阅读更多关于如何解锁你的设备的内容，我们的 root 指南在这里](https://lifehacker.com/everything-you-need-to-know-about-rooting-your-android-5789397) 。你还需要在你的电脑上安装 [ADB 和 fastboot](http://lifehacker.com/the-easiest-way-to-install-androids-adb-and-fastboot-to-1586992378) ，并且至少具备 [和](http://lifehacker.com/the-most-useful-things-you-can-do-with-adb-and-fastboot-1590337225) 的模糊工作知识。然后，按照以下步骤操作:
 

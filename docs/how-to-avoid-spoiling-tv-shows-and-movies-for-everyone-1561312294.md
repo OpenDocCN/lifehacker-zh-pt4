@@ -4,7 +4,7 @@
 
 剧透的性质在过去几年已经发生了变化。在 [整季](http://en.wikipedia.org/wiki/House_of_Cards_(season_2)) 同时上映，电影 [与电视剧](https://www.youtube.com/watch?v=3fF67J5qgnE) 交叉，书籍和电视剧 [竞相奔向同一个结局](http://www.tor.com/blogs/2013/05/hbo-may-reveal-game-of-thrones-ending) 之间，很难知道剧透线到底在哪里，以及如何避免成为那个毁了所有人的混蛋。幸运的是，我们有一些提示。
 
-Watch
+
 
 ### 扰流板的定义
 

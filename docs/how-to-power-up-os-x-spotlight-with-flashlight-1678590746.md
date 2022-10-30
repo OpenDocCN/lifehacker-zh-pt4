@@ -4,7 +4,7 @@
 
 当我们第一次谈到 [手电筒的时候，它还在测试版](https://lifehacker.com/flashlight-adds-more-search-results-to-spotlight-1657873283) 。即便如此，在 OS X Yosemite 中用更多的搜索结果来增强 Spotlight 还是很有希望的。现在，这款应用更加成熟，有了一堆插件，功能强大得令人难以置信。让我们来看看如何设置它，并找到一些最有用的插件。
 
-Watch
+
 
 ### 手电筒是什么？
 

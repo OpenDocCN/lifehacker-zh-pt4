@@ -4,7 +4,7 @@
 
 关于谁能在 7 月 29 日 免费升级到 [Windows 10，有很多困惑，但是这个流程图应该可以很简单地确定你是否能做到。](http://lifehacker.com/windows-10-will-be-released-july-29th-reserve-your-cop-1708136305#_ga=1.6584182.515970378.1434646157)
 
-Watch
+
 
 <small>*点击图形上的展开按钮，仔细查看。*T3】</small>
 

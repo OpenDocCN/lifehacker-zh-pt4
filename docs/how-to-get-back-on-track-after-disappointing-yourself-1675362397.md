@@ -4,7 +4,7 @@
 
 你可能至少有一次知道自己可以做得更好。无论你是想坚持一个决心，达到一个目标，还是在一个项目上做得更好，回到正轨是很重要的，所以你 [为你生活的所有领域](https://lifehacker.com/the-way-a-person-does-one-thing-is-the-way-they-do-eve-1672939489) 定下基调。
 
-Watch
+
 
 ### **弄清楚你为什么*真的*失望**
 

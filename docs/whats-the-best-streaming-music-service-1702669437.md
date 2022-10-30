@@ -4,7 +4,7 @@
 
 流媒体音乐服务来来去去，虽然一些大牌总是很受欢迎，但这并不意味着他们是最好的。本周，我们想谈谈你最喜欢的一些东西——当你需要打开你最喜欢的果酱时，你就会求助于它们。
 
-Watch
+
 
 随着 Grooveshark[、我们的](https://lifehacker.com/music-service-grooveshark-one-of-our-favorite-streamin-1701394611) [前两届](http://lifehacker.com/best-music-streaming-service-grooveshark-5483355) [民意调查冠军](http://lifehacker.com/most-popular-streaming-music-service-grooveshark-5824850) 的逝去，我们认为是时候重新审视流媒体音乐服务的世界了。你发现自己最近花了更多的时间和哪些人在一起，或者更好的是，为哪些人付费？也许是像 Tidal 或 Beats Music 这样的新竞争者让你感兴趣，或者也许你在坚持 Spotify 或 Google Music 这样的旧标准 [。](http://lifehacker.com/five-best-streaming-music-services-5824193) [也许 YouTube 音乐键是你的拿手好戏](http://lifehacker.com/whats-the-point-of-youtube-music-key-1662612843) 。不管是什么，请在下面的讨论中畅所欲言！
 

@@ -4,7 +4,7 @@
 
 [不要相信你读到的一切。](http://www.inc.com/erik-sherman/3-studies-prove-dont-believe-everything-you-read.html) 还是一次又一次地听到，甚至来自真正聪明的人。对于一些我们都听过很多次的商业“真理”来说，这也同样适用。如果你正在考虑自己创业，后退一步，考虑一下你应该忽略哪些建议。
 
-Watch
+
 
 ***本帖原载于***[](http://www.inc.com/minda-zetlin/3-classic-business-truths-that-are-dead-wrong.html)
 

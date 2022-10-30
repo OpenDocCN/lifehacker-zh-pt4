@@ -4,7 +4,7 @@
 
 谷歌桌面上的语音命令几乎和安卓 上的 [一样令人敬畏。虽然它不能做手机能做的一切，但](https://lifehacker.com/everything-you-didnt-know-you-could-do-with-google-voi-512727229) [对话式搜索](http://lifehacker.com/googles-new-conversational-search-makes-star-trek-styl-506833940) 使用 [大部分相同的命令](https://support.google.com/chrome/answer/1331723?hl=en) ，甚至可以在 Google Now 中设置定时器或提醒。只是有时候有点难以触及。
 
-Watch
+
 
 有点讽刺的是，在你自己家里的私人空间里对着你的桌面说话 [而不显得像个混蛋](https://lifehacker.com/how-can-i-talk-to-my-phone-in-public-without-looking-li-5883564) 更容易，但是实际上要做到这一点有点困难。首先你要打开 Chrome，然后导航到谷歌的网络搜索(谁不用 omnibar？)，然后点按麦克风按钮。大声说出你可以在地址栏中输入的内容有点麻烦。一定有更好的方法，对吗？
 

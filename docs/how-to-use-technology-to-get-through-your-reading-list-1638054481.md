@@ -4,7 +4,7 @@
 
 网上全是你没看过的精彩文章。所以你以后再看的应用程序也是如此，无论是[可读性](https://www.readability.com/)[Instapaper](https://www.instapaper.com/)还是其他。以下是如何在科技的帮助下最终完成阅读清单的方法。
 
-Watch
+
 
 为了举例，我将坚持使用 Pocket，因为它是我最喜欢的——但是 [它们都有自己的长处](https://lifehacker.com/read-later-apps-compared-pocket-vs-instapaper-vs-r-5894995) 。所有这些技巧也适用于可读性和 Instapaper。
 

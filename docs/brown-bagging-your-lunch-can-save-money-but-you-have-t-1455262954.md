@@ -4,7 +4,7 @@
 
 Lifehacker 最近的一个大讨论是自带午餐是否真的省钱。双方都提出了足够多的好观点，这让我质疑自带午餐是否真的省钱。在仔细思考了这个问题并计算了几种不同情况下的数据后，我得出结论，是的，如果你做得对的话，棕色袋子可以持续地为你省钱*。*
 
-Watch
+
 
 ***这个帖子最初出现在*** [***这个简单的美元***](http://www.thesimpledollar.com/does-brown-bagging-your-lunch-really-save-you-money/) ***。**T15】*
 

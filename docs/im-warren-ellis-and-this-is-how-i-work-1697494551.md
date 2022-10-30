@@ -4,7 +4,7 @@
 
 [沃伦·埃利斯](http://www.warrenellis.com/) 是作家。你可能从他广受好评的关于一名 gonzo 记者的 cyberpunk 系列漫画[Transmetropolitan](https://www.amazon.com/dp/1401220843?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-warren-ellis-and-this-is-how-i-work-1697494551&asc_source=&linkCode=ogi&psc=1&smid=A14Q1XN9JX0580&tag=kinjalifehackerlink-20&th=1)中，或者从他的小说 [Gun Machine](http://www.amazon.com/Gun-Machine-Warren-Ellis/dp/0316187410?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-warren-ellis-and-this-is-how-i-work-1697494551&asc_source=&tag=kinjalifehackerlink-20) 中知道他。然后是电视节目、电影项目和杂志专栏，其中许多评论了我们与技术和未来的关系。
 
-Watch
+
 
 对埃利斯先生来说，发挥他的想象力似乎不是一个挑战，但他是如何把文字写在纸上的呢？我们采访了 Warren，以了解他使用的工具、他的写作习惯以及他的工作方式。
 

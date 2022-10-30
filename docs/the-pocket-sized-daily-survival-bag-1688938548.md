@@ -4,7 +4,7 @@
 
 包包不一定要大到坐在肩膀上。《每日携带》的读者 Sergey 分享了他的口袋大小的包，里面装着他日常所需的一切。
 
-Watch
+
 
 包里的一个[maxpeditotion 微型](http://www.maxpedition.com/store/pc/Micro-Pocket-Organizer-p1685.htm) 。这是里面的内容:
 

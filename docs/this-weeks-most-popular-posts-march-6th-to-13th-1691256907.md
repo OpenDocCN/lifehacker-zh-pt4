@@ -4,7 +4,7 @@
 
 这一周我们 [围捕了一些一体机](https://lifehacker.com/five-best-all-in-one-computers-1689980057)[对我们的大脑进行了重新编程](http://lifehacker.com/how-to-program-your-mind-to-stop-buying-crap-you-don-t-1690268064)[了解了苹果的新硬件](http://lifehacker.com/everything-apple-announced-today-that-actually-matters-1690313457)[喝了酒没有打乱我们的减肥](http://vitals.lifehacker.com/how-to-drink-without-messing-up-your-weight-loss-1689799515) 。这里回顾一下。
 
-Watch
+
 
 ## [五台最好的一体机](http://lifehacker.com/five-best-all-in-one-computers-1689980057)
 

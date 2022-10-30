@@ -4,7 +4,7 @@
 
 每周我们都会采访一些名人，从他们的头脑中挖掘生产力的秘密和设置。本周我们回答自己的问题，现在轮到我来分享让我的生活充满活力并帮助我完成任务的工具和技巧了。
 
-Watch
+
 
 自从写了[年](http://lifehacker.com/how-we-work-melanie-pinolas-favorite-gear-and-producti-5983990) [我们如何工作](http://lifehacker.com/how-we-work-2014-melanie-pinolas-gear-and-productivi-1515776935) 的帖子以来，许多事情对我来说都保持不变，所以我将努力在那些部分保持简短，并添加一些新的问题和细节，以便新奇，或许更深入一些。
 

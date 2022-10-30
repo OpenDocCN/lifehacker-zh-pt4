@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [新的 Google 相册如何让你的图片库变得棒极了](http://lifehacker.com/how-the-new-google-photos-makes-your-picture-library-aw-1708189976)
 

@@ -4,7 +4,7 @@
 
 当你为面试做准备时，你可能会为你将被问到的问题、你将给出的答案以及如何给人留下最好的第一印象而苦恼。你大部分的准备工作可能会集中在你与面试官面对面的时间上。
 
-Watch
+
 
 ***本帖原载于*** [***每日缪斯***](http://www.themuse.com/advice/6-questions-that-will-ease-your-mind-before-the-interview) ***。**T15】*
 

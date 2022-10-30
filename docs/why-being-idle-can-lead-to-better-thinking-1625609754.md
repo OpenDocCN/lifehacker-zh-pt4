@@ -4,7 +4,7 @@
 
 研究表明，人们宁愿做一些事情——任何事情——也不愿独自思考。有所作为胜过无所作为的想法并不新鲜。但是，正是通过反思、白日梦和自省，我们才能理解信息和经验，并产生新的见解和想法。
 
-Watch
+
 
 ***本帖原载于***[***idonet 博客***](http://blog.idonethis.com/default-mode-network-thinking-alone-productivity-work/) ***。*T15】**
 

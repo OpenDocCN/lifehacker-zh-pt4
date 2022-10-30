@@ -4,7 +4,7 @@
 
 我们最近展示了一款由我们的朋友 [桑吉夫](https://www.flickr.com/photos/sanjeevneo/) 设计的台式机，但他的最新产品太棒了，不能不突出展示。他定制了他的 Mac，看起来非常像你在 Android Lollipop 或 Android M 中得到的那种设计。
 
-Watch
+
 
 在这种情况下，GeekTool 是你真正需要的，就像他的旧桌面一样，他在他的 Flickr 页面(链接如下)上提供了你需要的所有定制代码。)不过，你首先需要的是:
 

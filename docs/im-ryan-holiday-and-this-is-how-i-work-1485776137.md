@@ -4,7 +4,7 @@
 
 在过去的一周里，Ryan Holiday 读了七本书，从奥斯汀飞往亚特兰大，迈阿密，亚特兰大，洛杉矶，毛伊岛，并忙于两份高要求的工作:有争议的服装零售商 American Apparel 的营销总监和创意营销公司 StoryArk 的合伙人。(光是写那句话就让我累了。)瑞安也是畅销书作家和 Gawker chatter 的 [临时主题](http://gawker.com/5860826/tucker-max-and-dov-charney-together-in-a-single-book) 。我采访了这位 26 岁的媒体奇才，看看他是如何应付这一切的。
 
-Watch
+
 
 **地点**:德克萨斯州奥斯丁(我不在路上的时候)
 **当前 gig:** 美国服饰营销总监；作者 [*相信我我在说谎*](https://www.amazon.com/dp/1591846285?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-ryan-holiday-and-this-is-how-i-work-1485776137&asc_source=&linkCode=ogi&psc=1&smid=ATVPDKIKX0DER&tag=kinjalifehackerlink-20&th=1)*[*成长黑客营销*](http://www.amazon.com/Growth-Hacker-Marketing-Primer-Advertising/dp/B00F94Y396/ref=la_B007LUHFH8_1_3?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-ryan-holiday-and-this-is-how-i-work-1485776137&asc_source=&ie=UTF8&qid=1387388480&s=books&sr=1-3&tag=kinjalifehackerlink-20)*[*障碍是道路*](http://www.amazon.com/The-Obstacle-Way-Adversity-Advantage/dp/1591846358?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-ryan-holiday-and-this-is-how-i-work-1485776137&asc_source=&tag=kinjalifehackerlink-20)；伙伴在[story ark](http://storyarkcreative.com/)

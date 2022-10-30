@@ -4,7 +4,7 @@
 
 Chrome: Flix Plus 是我们在 Lifehacker 开发的新扩展，为 Netflix.com 增加了新的功能和调整，让你可以过滤它的推荐，删除剧透，使用键盘快捷键，等等。
 
-Watch
+
 
 *编者按:我们 Lifehacker 总是在业余时间将小应用程序和工具* *组装在一起* [*，但是今天我们宣布我们有了一个新的内部开发人员，他的工作是为社区创建很酷的应用程序、扩展和工具。所以欢迎前面提到的*](http://lifehacker.com/tag/lifehacker-code) [*的开发者 Jared Sohn*](http://lifehacker.com/mutetab-quickly-finds-and-silences-that-noisy-buried-b-5826592)*[*和 Mute.fm*](http://lifehacker.com/mute-fm-automatically-mutes-your-music-when-you-play-a-1459134546) *加入这个团队！**
 

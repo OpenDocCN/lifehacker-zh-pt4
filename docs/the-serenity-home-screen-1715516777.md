@@ -4,7 +4,7 @@
 
 不， [不是那个](http://www.imdb.com/title/tt0379786/) 。这个主屏幕设计旨在给你忙碌的主屏幕带来一些平静。它包括几个最小的部件和一个中性的灰色配色方案。
 
-Watch
+
 
 这个主屏幕是为 Themer 和 Nova launcher 设计的。对于 Nova，以下是您需要的:
 

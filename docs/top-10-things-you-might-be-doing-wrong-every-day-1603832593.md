@@ -4,7 +4,7 @@
 
 惊喜！许多我们认为做得对的事情实际上并不是最好的方法。这其中甚至包括基本的、日常的事情，比如 [做饭](https://lifehacker.com/the-stupid-things-you-do-in-the-kitchen-and-how-to-fix-5903931)[开车](http://lifehacker.com/top-10-ways-to-become-a-better-driver-1596820145) ，甚至 [握手](http://lifehacker.com/avoid-these-five-mistakes-and-never-give-a-bad-handshak-1178784076) (当然是分开的)。让我们来看看。
 
-Watch
+
 
 ### 10.呼吸
 

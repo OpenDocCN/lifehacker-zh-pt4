@@ -4,7 +4,7 @@
 
 本周，一个影响互联网很大一部分的巨大安全漏洞曝光。随着不同网站的恢复，你将需要更改你的密码，现在 LastPass 告诉你什么时候这样做。
 
-Watch
+
 
 由于 Heartbleed 漏洞的性质( [在此阅读更多信息](http://lifehacker.com/what-the-heartbleed-security-bug-means-for-you-1560801201) )，您需要等到受影响的网站更新其基础设施后才能更改密码。LastPass 非常有用的安全检查工具现在包括了 Heartbleed 的建议，让你知道哪些网站已经关闭了漏洞，什么时候，你是否应该更新。
 

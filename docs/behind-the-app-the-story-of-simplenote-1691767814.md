@@ -4,7 +4,7 @@
 
 当你只想写下一些东西时，应用程序中太多的花哨功能会妨碍你的工作，而不是帮助你。这就是为什么有了 [Simplenote](http://simplenote.com/) ，一个极简主义的笔记应用和网站，优先考虑唐突但优雅的功能而不是多余的功能。
 
-Watch
+
 
 Simplenote 最开始是作为创作者的学习体验，由 Simperium(后来被[automatic](http://automattic.com/)收购)的联合创始人 Fred Cheng 和 Michael Johnston 负责；他们需要学习如何构建 [iPhone 应用](https://lifehacker.com/the-best-syncing-note-taker-for-iphone-5816554) ，所以他们开始开发一款在日常生活中有用的应用。它并不是一夜成名，但 Simplenote 的知名度慢慢地滚雪球，现在它可以在各种平台上使用。我们采访了弗雷德和迈克，听听他们在这款应用背后的故事。
 

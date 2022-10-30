@@ -4,7 +4,7 @@
 
 iOS 8 今天宣布推出一大堆 [很酷的新功能](https://lifehacker.com/all-the-new-stuff-in-ios-8-1584893352) ，但要到秋天才能上市。如果你现在就渴望得到其中的一些特性，这里有一些方法。
 
-Watch
+
 
 iOS 8 有一系列系统级的变化，你现在无法模仿，但你仍然可以获得一些功能，包括在一个地方跟踪一切的健康应用程序，预测键盘等等。正如你所料，许多这样的游戏需要你有一部 [越狱手机](https://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-5771943) 。如果你想的话，你现在就可以下载 iOS 8 beta 版 ，但是它会有很多问题，很难使用。使用下面的应用程序或越狱应该是一个更流畅的体验。
 

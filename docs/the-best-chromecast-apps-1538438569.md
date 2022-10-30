@@ -4,7 +4,7 @@
 
 谷歌凭借 Chromecast 设备撼动了家庭影院市场。自从它允许开发者访问以来，应用程序市场就充斥着对 Google Cast 的支持。以下是最有用的 Chromecast 应用。
 
-Watch
+
 
 ### 从手机中播放视频、音乐和照片:Allcast ( [Android](https://play.google.com/store/apps/details?id=com.koushikdutta.cast) 、 [iOS](https://itunes.apple.com/us/app/allcast-send-photos-music/id943763227?mt=8) ，$4.99)
 

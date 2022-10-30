@@ -4,7 +4,7 @@
 
 你可能认为手机用什么样的充电器并不重要，但假冒充电器的质量可能会低得多——更不用说不安全了。以下是如何辨别的方法。
 
-Watch
+
 
 电子博主 Ken Shirriff 最近做了一个非常有趣的拆解，比较了正品和假冒的 iPad 充电器，讨论了技术差异以及为什么你应该远离假货。在 之前，我们已经 [讨论过这个问题，但是他关于如何识别假货的提示引起了我们的注意:](https://lifehacker.com/tests-show-why-you-should-stay-away-from-knockoff-usb-c-5957596)
 

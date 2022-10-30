@@ -4,7 +4,7 @@
 
 通常，你会想要一个能装下你的东西的最小的包。读者燃烧解决方案的袋子就是如此。它很小，正好符合他的需要，就是这样。
 
-Watch
+
 
 这里的包是一个 [Scout 2 为 iPad 准备的单肩包](http://www.stmbags.com/catalog/discontinued-bags/scout2-for-ipad-shoulder-bag/) 。因为它是为 iPad 设计的，这意味着没有太多的空间放其他东西，但这里是他在里面的东西:
 

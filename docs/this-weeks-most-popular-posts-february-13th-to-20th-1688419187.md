@@ -4,7 +4,7 @@
 
 本周我们 [用一种新的生产力方法](https://lifehacker.com/productivity-101-how-to-use-personal-kanban-to-visuali-1687948640) ， [为能够下载 Windows ISOs](http://lifehacker.com/microsoft-now-lets-you-download-windows-7-isos-with-a-v-1688039211) ， [发现了最好的家居改进](http://lifehacker.com/the-10-home-improvement-projects-with-the-highest-retur-1687978686) ， [学习了一些基本设计](http://lifehacker.com/how-to-use-basic-design-principles-to-decorate-your-hom-1687607782) 。这里回顾一下。
 
-Watch
+
 
 ## [生产力 101:如何利用个人看板将自己的工作可视化](http://lifehacker.com/productivity-101-how-to-use-personal-kanban-to-visuali-1687948640)
 

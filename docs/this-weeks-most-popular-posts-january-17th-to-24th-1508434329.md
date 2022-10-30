@@ -4,7 +4,7 @@
 
 本周我们 [发现了哪些硬盘品牌最可靠](https://lifehacker.com/the-most-and-least-reliable-hard-drive-brands-1505797966)[学会了如何更快入睡](http://lifehacker.com/how-can-i-fall-asleep-faster-1503720985)[欺骗我们的大脑做我们想做的事情](http://lifehacker.com/top-10-ways-to-trick-your-brain-into-doing-what-you-wan-1502990312)[用慢炖锅做了美味的饭菜](http://lifehacker.com/delicious-dishes-you-didnt-know-you-could-make-in-a-sl-1506535684) 。这里回顾一下。
 
-Watch
+
 
 ## [最(也是最不)可靠的硬盘品牌](http://lifehacker.com/the-most-and-least-reliable-hard-drive-brands-1505797966)
 

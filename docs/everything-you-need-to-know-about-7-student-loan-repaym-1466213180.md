@@ -4,7 +4,7 @@
 
 10 月，教育部开始联系那些努力偿还学生贷款的借款人，让他们了解他们可以选择的各种还款方式。虽然大多数借款人选择按照标准的 10 年计划偿还贷款，但其他选择，如基于收入的选择，可以使偿还学生贷款更容易，并降低违约风险。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/knowledge-center/demystifying-student-loan-repayment-options/)***。*T15】**
 

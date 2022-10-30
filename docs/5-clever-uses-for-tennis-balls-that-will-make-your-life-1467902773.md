@@ -6,7 +6,7 @@
 
 网球不仅仅是网球。如果你有一些剩余，你可以用各种方便的方法重新利用它们。
 
-Watch
+
 
 *   [**物品托**](http://lifehacker.com/use-tennis-balls-to-hold-just-about-any-small-item-arou-5915611) :你可以把一个空间剪成一个网球，钉在墙上，用来装物品，比如你的钥匙。
 *   [**开罐器**](http://lifehacker.com/open-your-unopenable-jars-with-a-dissected-tennis-ball-5836493) :可以把一个切成两半，打开一个无法打开的罐子。

@@ -4,7 +4,7 @@
 
 作为一名学生，意味着你需要把你的包包保持得尽可能小，同时仍然拥有你一天所需的一切。Lifehacker 的读者 Gavin Porter 分享了他用来做事情的袋子。
 
-Watch
+
 
 包里是一个 [锐步曲棍球背包](http://www.ebay.com/itm/Reebok-Hockey-Day-Pack-Backpack-/181672074494?pt=LH_DefaultDomain_0&hash=item2a4c7fdcfe) 。这是里面的内容:
 

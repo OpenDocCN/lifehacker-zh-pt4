@@ -4,7 +4,7 @@
 
 没有什么比你最喜欢的服务之一——你每天依赖的服务——宣布关闭更令人心碎的了。这是一种痛苦，但你不必只是接受它。这里告诉你如何找到一个不差的替代品。
 
-Watch
+
 
 [](http://lifehacker.com/tag/blast-from-the-past)**是 Lifehacker 的一个每周专题，我们在其中恢复旧的，但仍然相关的帖子，供你阅读和黑客乐趣。本周，为了纪念* [*Grooveshark 关闭*](https://lifehacker.com/music-service-grooveshark-one-of-our-favorite-streamin-1701394611) *，我们在寻找新的东西。(留意* [*本周蜂巢五*](http://lifehacker.com/whats-the-best-streaming-music-service-1702669437) *也是！)**
 

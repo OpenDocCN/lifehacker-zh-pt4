@@ -4,7 +4,7 @@
 
 随着每年数百万吨的电子产品被扔掉，购买翻新产品是一个更环保的选择，同时也对你的钱包有好处。除了在路边找到一台能用的 60 英寸高清电视，购买翻新的是我们知道的以绝对最低的价格买到完好如新的电子产品的最佳方式。
 
-Watch
+
 
 ***本帖原载于***[***DealNews***](http://dealnews.com/features/The-Top-Brands-for-Refurbished-Electronics-Offer-Discounts-of-Up-to-50-/908214.html)***。**T15】*
 

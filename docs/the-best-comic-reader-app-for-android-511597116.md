@@ -4,7 +4,7 @@
 
 阅读漫画，尤其是在平板电脑上，是对明亮、生动的触摸屏 的一种令人愉快的使用。如果你是一个重度读者，并想带自己的文件，惊人的漫画读者是一个相对较新的一吨光滑的功能。
 
-Watch
+
 
 ### [惊人漫画读者](https://play.google.com/store/apps/details?id=com.aerilys.acr.android)
 

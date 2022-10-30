@@ -4,7 +4,7 @@
 
 本周我们学习了 [为什么 Chrome 如此抢手](https://lifehacker.com/why-chrome-uses-so-much-freaking-ram-1702537477)[【dad BOD】真正来源于](http://vitals.lifehacker.com/what-causes-the-dadbod-and-how-to-reverse-it-1704598337)[游戏鼠标的生产力之美](http://lifehacker.com/why-i-started-using-gaming-peripherals-to-get-real-work-1705459320) ，以及 [如何正确锁定你的自行车](http://lifehacker.com/the-best-bike-lock-and-how-to-use-it-according-to-bi-1705302129) 。这里回顾一下。
 
-Watch
+
 
 ## [为什么 Chrome 用了这么多该死的 RAM](http://lifehacker.com/why-chrome-uses-so-much-freaking-ram-1702537477)
 

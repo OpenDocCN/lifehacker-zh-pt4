@@ -4,7 +4,7 @@
 
 公共 Wi-Fi 网络——如咖啡店或酒店中的网络——远没有你想象的那么安全。即使他们有密码，你也在和成千上万的其他人共享一个网络，这意味着你的数据面临风险。以下是如何在外出时保持安全的方法。
 
-Watch
+
 
 仅仅因为大多数无线路由器都有防火墙来保护您免受互联网的攻击，并不意味着您可以免受连接到同一网络的其他人的攻击。在同一个网络上， [窃取某人的用户名和密码](http://lifehacker.com/firesheep-sniffs-out-facebook-and-other-user-credential-5672313) ，或者 [查看他们在做什么](http://lifehacker.com/how-to-hack-your-own-network-and-beef-up-its-security-w-1649785071) 非常容易。不要冒这个险。我们将向您展示哪些设置是最重要的，以及如何在您每次连接到公共网络时自动将您的设置更改为适当的安全级别。
 

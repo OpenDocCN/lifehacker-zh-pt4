@@ -4,7 +4,7 @@
 
 如今，准备行李很少是为一项任务做准备。举个例子，软件开发者兼摄影师迪恩·普特尼需要一个能同时处理两项工作的包。
 
-Watch
+
 
 普特尼选定了 [Chrome Niko Pack](http://www.amazon.com/Chrome-Niko-Pack-Black-Size/dp/B00AZHCCHC/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-software-development-and-camera-combo-bag-1640320377&asc_source=&tag=kinjalifehackerlink-20) ，因为它分为两个主要空间，一个顶部和底部。这是里面的内容:
 

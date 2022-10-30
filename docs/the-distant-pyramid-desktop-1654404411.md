@@ -4,7 +4,7 @@
 
 我们的朋友 [Dobbie03](http://dobbie03.kinja.com/) 制作了一些非常好看的 Linux 桌面，这款也不例外。在与 Arch 幽会后，他最近搬回了 Manjaro，用一些易于下载的组件构建了这个桌面。以下是您也可以设置它的方法。
 
-Watch
+
 
 Dobbie03 将他的桌面提交到我们的 [桌面展示区](http://kinja.com/desktop-showcase) ，如果你想在这里看到你的桌面，这是你应该做的！这是他用来设置这一切的:
 

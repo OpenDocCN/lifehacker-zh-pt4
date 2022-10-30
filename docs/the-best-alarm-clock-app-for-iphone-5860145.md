@@ -4,7 +4,7 @@
 
 iTunes 商店的闹钟数量几乎和待办应用一样多，所以很难选择合适的。在我们的测试中，我们发现 Wake Alarm Clock 是最好的，这要归功于它良好的功能和可靠的可靠性。
 
-Watch
+
 
 ### [**叫醒闹钟**](https://itunes.apple.com/US/app/id616764635?mt=8)
 

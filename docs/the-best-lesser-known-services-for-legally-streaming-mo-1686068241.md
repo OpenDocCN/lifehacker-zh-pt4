@@ -4,7 +4,7 @@
 
 这很容易忘记，但除了网飞、Hulu 和亚马逊之外，还有很多其他方式来播放电影和电视。这里有一些最好的——有时是免费的——合法选择。
 
-Watch
+
 
 当你坐下来看东西时，你选择什么很大程度上取决于你的心情。因此，本指南是根据您可能希望观看的内容组织的。无论你是想捕捉一些轻松的东西， [像动画片](https://lifehacker.com/nick-reboot-streams-old-nickelodeon-shows-24-hours-a-da-1625101196) ，还是一些黑暗的东西， [像老恐怖电影](http://lifehacker.com/shout-factory-tv-streams-cult-classic-movies-and-tv-sh-1684769685) ，还是一些新鲜的东西， [像新鲜的电视节目](http://lifehacker.com/sling-tv-will-stream-espn-and-a-few-other-channels-fo-1677538346) ，都有大量的服务可供选择。
 

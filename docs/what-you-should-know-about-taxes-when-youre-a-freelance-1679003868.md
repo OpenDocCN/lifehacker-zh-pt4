@@ -4,7 +4,7 @@
 
 成为一名自由职业者不仅仅改变你的工作方式；它也改变了你管理金钱的方式。当你是自由职业者时，需要特别注意的一个方面是你的报税。
 
-Watch
+
 
 ***本帖最初出现在***[***mybank tracker***](http://www.mybanktracker.com/news/freelance-taxes)***。**T15】*
 

@@ -4,7 +4,7 @@
 
 本周我们 [对比了流媒体电视库](https://lifehacker.com/tv-streaming-head-to-head-netflix-vs-hulu-vs-amazon-pr-1536006625) ， [了解了为什么你应该点更大的披萨](http://lifehacker.com/an-engineer-explains-why-you-should-always-order-the-la-1532897984) ， [谈到了我们都会犯的五个沟通错误](http://lifehacker.com/five-communication-mistakes-almost-every-couple-makes-1535461741) ， [了解了关于便便](http://lifehacker.com/what-does-the-shape-and-color-of-my-poop-mean-1535648433) 。这里回顾一下。
 
-Watch
+
 
 ## 一位工程师解释了为什么你总是点较大的比萨饼
 

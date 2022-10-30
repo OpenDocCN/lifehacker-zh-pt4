@@ -4,7 +4,7 @@
 
 本周，我们学习了 Windows 10 如何管理内存，学习了如何帮助有太多内存的朋友，克服了财务恐惧，等等。这里回顾一下。
 
-Watch
+
 
 ## [为什么 Windows 10 的「系统」进程要用这么多 RAM？](http://lifehacker.com/why-is-windows-10s-system-process-using-so-much-ram-1725076206)T3】
 

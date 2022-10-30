@@ -4,7 +4,7 @@
 
 你已经 [回顾了你的简历](https://www.themuse.com/advice/the-only-piece-of-resume-advice-that-really-matters?ref=search)[练习了你的电梯推销](https://www.themuse.com/advice/a-simple-formula-for-answering-tell-me-about-yourself?ref=autocomplete) ，并为你的工作面试做好了准备。但是当面试官说，“告诉我一次你和你的主管意见不一致的时候”，你会茫然。在不知道问题会是什么的情况下，如何准备一段轶事？
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](https://www.themuse.com/advice/how-to-answer-tell-me-about-a-time-when-interview-questions) ***。**T15】*
 

@@ -4,7 +4,7 @@
 
 iPhone 今年见证了各种重大新闻，从 iOS 8 的发布，到越狱应用和调整。让我们来回顾一下今年的最佳帖子。
 
-Watch
+
 
 对于 iOS 来说，这是重要的一年，iOS 7 的 [，](https://lifehacker.com/the-best-jailbreak-apps-and-tweaks-for-ios-7-1497408095) ，然后是新 iPhone 6 ， [iOS 8](http://lifehacker.com/all-the-new-stuff-in-ios-8-1584893352) 的 [发布，当然，还有大量令人敬畏的应用](http://lifehacker.com/five-best-iphone-6-and-6-plus-cases-1645271521) 。
 

@@ -4,7 +4,7 @@
 
 谷歌刚刚宣布了一个名为 [Android Wear](http://officialandroid.blogspot.com/2014/03/sharing-whats-up-our-sleeve-android.html) 的新项目，顾名思义，这是专为可穿戴设备量身定制的谷歌操作系统的“一览式”变种。到目前为止，LG 和摩托罗拉已经发布了 Android Wear 智能手表，它们只是今年即将推出的一系列 Android 智能手表中的第一款。
 
-Watch
+
 
 根据公告，谷歌正在与华硕、 [、LG](https://gizmodo.com/lg-is-working-on-a-smartwatch-with-android-wear-1546420726) 、 [、摩托罗拉](http://gizmodo.com/moto-360-this-is-motorolas-android-wear-powered-smart-1546422737) 和三星合作。芯片制造商博通、Imagination、英特尔、联发科和高通也在这个项目中。目前还不清楚这对来自谷歌 本身的设备 [意味着什么。](http://gizmodo.com/why-googles-secret-smartwatch-is-the-first-one-youll-1441193504)
 

@@ -4,7 +4,7 @@
 
 读者 [普什卡](http://kinja.com/pushkardesai999) 向我们的 [桌面展柜](http://kinja.com/tag/desktop-showcase) 提交了这个好看的桌面，我们喜欢它的样子。作为第二个屏幕或工作时间时有用，以下是他如何设置它。
 
-Watch
+
 
 普什卡的 Windows 桌面很容易安装。您将需要我们之前提到的基础知识，但以下是所有组件:
 

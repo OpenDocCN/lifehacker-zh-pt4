@@ -4,7 +4,7 @@
 
 美联储经常占据财经头条，昨天的 [也不例外](http://www.forbes.com/sites/billconerly/2015/03/19/the-federal-reserves-new-monetary-policy-statement-interest-rate-hike-to-be-postponed/)——但他们的声明往往看起来像是在说一种不同的语言。美联储是什么，为什么这么多人这么关注它？更重要的是，它会影响你的财务生活吗？
 
-Watch
+
 
 简而言之:是的。倾听美联储的声音有助于你了解当前的经济状况，将会发生什么，以及它将如何影响你的业务、工作和/或投资。这听起来很复杂，但了解基本知识会大有帮助。
 

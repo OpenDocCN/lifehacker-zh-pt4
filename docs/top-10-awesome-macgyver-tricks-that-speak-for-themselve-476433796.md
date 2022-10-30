@@ -4,7 +4,7 @@
 
 一些改变生活的技巧需要完整的指南来理解。其他人在他们的简单中是如此的天才，以至于他们不言自明。这里有 10 个我们最喜欢的不言自明的 MacGyver 式技巧。
 
-Watch
+
 
 ### 10. [用挤压瓶做出完美煎饼](http://lifehacker.com/repurpose-a-squeeze-bottle-for-perfect-pancakes-5256023)
 

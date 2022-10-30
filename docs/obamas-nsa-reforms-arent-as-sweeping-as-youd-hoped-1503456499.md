@@ -4,7 +4,7 @@
 
 在周五上午的一次重要讲话中，奥巴马总统缩减了美国国家安全局的监控行动，并重新定义了我们在海外收集情报的方式。简而言之，他 [命令](http://www.reuters.com/article/2014/01/17/us-usa-security-obama-idUSBREA0G0JI20140117) 结束批量电话元数据计划(以其目前的 from)和对外国领导人的间谍活动。然而，除此之外，未来仍不明朗。
 
-Watch
+
 
 说实话，奥巴马确实宣布了几项改革，其中一些符合他为改革美国情报实践而成立的顾问委员会 提出的建议。最主要的一点是，情报机构 [必须获得法院批准](http://www.nytimes.com/2014/01/18/us/politics/obama-to-balance-privacy-and-security-concerns-in-speech-on-surveillance-aides-say.html?hp&_r=0) 才能接入其庞大的电话数据数据库。他还宣布:
 

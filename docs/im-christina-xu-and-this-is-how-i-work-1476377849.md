@@ -4,7 +4,7 @@
 
 "我浏览待办事项清单，就像它们是洗发水一样。"像克里斯蒂娜·徐 这样忙碌的人还没有为她疯狂的日程找到完美的经理也就不足为奇了。作为[Awesome Foundation](http://www.awesomefoundation.org/en)(每月向世界各地的项目提供资助)的全球协调员和 [Breadpig](http://breadpig.com/) (出售一堆很酷的东西并捐出利润)的核心团队成员，她能找到时间睡觉真是个奇迹。我们采访了克里斯蒂娜，看看她是如何做到这一切的。
 
-Watch
+
 
 **地点**:纽约州布鲁克林
 T3】当前演出:bread pig 产子众筹项目；成为 Awesome Foundation 的全球协调人

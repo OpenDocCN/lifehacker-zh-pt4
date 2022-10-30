@@ -4,7 +4,7 @@
 
 阿尔顿·布朗是一名厨师、电视主持人、讲故事的人和作家，也是烹饪基础知识的机智讲解者。他是 Lifehacker 烹饪抱负的化身，不出所料，我们会定期报道他的作品。
 
-Watch
+
 
 你可能从他在美食网上的长期节目中最了解他，在那里他探索了烹饪的科学和方法以及烹饪所需的设备。但他还做了更多，从他的 [畅销书](http://www.amazon.com/Alton-Brown/e/B001JRWOIO/ref=sr_ntt_srch_lnk_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-alton-brown-and-this-is-how-i-work-1718241519&asc_source=&qid=1437595509&sr=8-1&tag=kinjalifehackerlink-20) 到主持各种电视节目，他一贯的魅力 [播客](http://altonbrown.com/altonblog/the-alton-browncast-podcast/) ，以及带着他的 [现场秀](http://www.altonbrowntour.com/) 在美国巡回演出。你目前可以作为 [割喉厨房](http://www.foodnetwork.com/shows/cutthroat-kitchen.html) 的主持人观看他。奥尔顿甚至不时出现在 [YouTube](https://www.youtube.com/channel/UCfDNi1aEljAQ17mUrfUjkvg) (我们经常在这里分享)上，并在 [Twitter](https://twitter.com/altonbrown) 上保持活跃的对话。他怎么可能做到这些？我们采访了奥尔顿，以了解他的工作方式。
 

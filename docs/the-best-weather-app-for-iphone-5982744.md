@@ -4,7 +4,7 @@
 
 iPhone 有大量的天气应用程序选项，你会发现很多适合不同需求的应用程序，这取决于你想要什么。也就是说，一个比其他的更亮，黑暗天空是应用商店中最好的全功能天气应用之一。
 
-Watch
+
 
 ### [黑暗的天空](https://itunes.apple.com/us/app/dark-sky-weather-radar-hyperlocal/id517329357?mt=8&ign-mpt=uo%3D4)
 

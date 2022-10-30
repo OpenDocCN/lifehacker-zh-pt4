@@ -4,7 +4,7 @@
 
 单色配色方案既简单又悦目。这种极简主义的工作空间看起来整洁而时尚，这要归功于有限的颜色和不杂乱。
 
-Watch
+
 
 这个工作区属于 Alfredo Hinojosa Flores (Flickr 用户 urbatronic)，他身边方便地放着 Senseo 咖啡机和迷你冰箱。您可以在下面的 Flickr 链接中找到此工作区中其他附件的名称。
 

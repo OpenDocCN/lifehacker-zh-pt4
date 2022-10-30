@@ -4,7 +4,7 @@
 
 这一周我们 [又换了密码](https://lifehacker.com/5-million-gmail-passwords-leaked-check-yours-now-1632983265)[了解了苹果所有的新玩意儿](http://lifehacker.com/everything-apple-announced-today-that-actually-matters-1632525592)[升级到 iOS 8](http://lifehacker.com/how-to-upgrade-to-ios-8-right-now-1632595909)[把害虫防治掌握在自己手里](http://lifehacker.com/keep-your-home-bug-free-with-these-diy-pest-control-met-1631181023) 。这里回顾一下。
 
-Watch
+
 
 ## [500 万在线密码泄露，现在就查你的](http://lifehacker.com/5-million-gmail-passwords-leaked-check-yours-now-1632983265)
 

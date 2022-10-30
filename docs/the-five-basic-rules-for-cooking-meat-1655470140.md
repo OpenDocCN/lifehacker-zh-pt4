@@ -4,7 +4,7 @@
 
 你可以用很多不同的方法烹饪肉类，从烘烤到煎烤到烧烤。然而，有五个基本原则适用于肉类和家禽的绝大多数技术。以下是我们在试验厨房烹饪多年后的发现。
 
-Watch
+
 
 ***本帖最初出现在*** [***美国的试吃厨房***](http://www.americastestkitchenfeed.com/meat-blog/2014/10/the-five-basic-rules-for-cooking-meat/) ***上。**T15】*
 

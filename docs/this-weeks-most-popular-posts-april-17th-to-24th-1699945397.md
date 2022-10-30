@@ -4,7 +4,7 @@
 
 这周我们 [学了一些基本的摄影技巧](https://lifehacker.com/how-aperture-shutter-speed-and-iso-affect-pictures-sh-1699204484)[在健身房攒了些时间](http://vitals.lifehacker.com/you-dont-need-to-spend-hours-in-the-gym-to-lose-weight-1699058686)[做了些春季大扫除](http://lifehacker.com/top-10-lazy-yet-smart-ways-to-spring-clean-your-home-1698662777)[在厨房攒了钱](http://lifehacker.com/dont-buy-expensive-knife-sets-these-four-knives-are-al-1698973316) 。这里回顾一下。
 
-Watch
+
 
 ## [这张图表显示了光圈、快门速度和 ISO 如何影响你的照片](http://lifehacker.com/how-aperture-shutter-speed-and-iso-affect-pictures-sh-1699204484)
 

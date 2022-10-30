@@ -4,7 +4,7 @@
 
 你不会找到比角磨机更通用或更无情的工具。它们很吵，也很危险，但对于无法用其他方式完成的工作来说却是不可或缺的。
 
-Watch
+
 
 角磨机通过高速(从 8000 到 11000 转/分)旋转小圆盘或轮子来切割、研磨或抛光。它们有有绳的、无绳的或气动的(气动的)，可以买到价格低至 29 美元的受欢迎的 [波特索](http://www.amazon.com/PORTER-CABLE-PC60TAG-6-0-Amp-Cut-Off-Grinder/dp/B004X5NNGG/ref=sr_1_4?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/tool-school-cut-grind-and-polish-with-the-versatile-1704087196&asc_source=&ie=UTF8&keywords=angle grinder ryobi&qid=1431462345&sr=8-4&tag=kinjalifehackerlink-20) 到 345 美元的无绳 [密尔沃基](http://www.amazon.com/Milwaukee-2780-21-M18-FUEL-4-1/dp/B00G0GLPB6/ref=sr_1_7?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/tool-school-cut-grind-and-polish-with-the-versatile-1704087196&asc_source=&ie=UTF8&keywords=cordless&qid=1431462477&s=power-hand-tools&sr=1-7&tag=kinjalifehackerlink-20) 。
 

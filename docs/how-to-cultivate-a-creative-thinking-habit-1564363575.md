@@ -4,7 +4,7 @@
 
 想想你最常见的习惯，你脑海中会浮现出那些常见的罪魁祸首——咬指甲、深夜吃零食、掰指关节。做一件事足够多次，它就会成为你几乎不由自主的行为模式。但是创造力有什么不同吗？
 
-Watch
+
 
 ***本帖原载于*** [***快公司***](http://www.fastcompany.com/3026816/dialed/how-to-cultivate-a-creative-thinking-habit) ***。*T15】**
 

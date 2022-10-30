@@ -4,7 +4,7 @@
 
 一年中的这个时候，我们都开始制定“新年计划”，这是一种奇特的方式，表明我们将努力养成更好的习惯。这里有一些小贴士，可以确保他们在一月 后*保持*习惯 [。](https://lifehacker.com/top-10-strategies-for-making-your-new-years-resolution-5971803)
 
-Watch
+
 
 [](http://lifehacker.com/tag/blast-from-the-past)**是 Lifehacker 的一个每周专题，我们在其中恢复旧的，但仍然相关的帖子，供你阅读和黑客乐趣。本周，我们将重温如何坚持这些决心。**
 

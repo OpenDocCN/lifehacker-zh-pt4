@@ -4,7 +4,7 @@
 
 做一名学生已经够艰难了，当你拿到博士学位时，你需要一套完全不同的工具。一个恰当的例子是，博士生塞缪尔在日常携带中分享他的包。
 
-Watch
+
 
 塞缪尔的包是一个 [部队伦敦经典帆布跨体自行车包](http://www.trooplondon.com/troopbag-collections/classic/troopbag-canvas-cycling-bag-trp0233.html) 。如果你好奇他用每样东西做什么，去 Carry 看看完整的解释。这是里面的内容:
 

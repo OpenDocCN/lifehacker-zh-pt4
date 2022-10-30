@@ -4,7 +4,7 @@
 
 我们喜欢在 Lifehacker 邀请客座作者，这是充满独特声音和观点的一年。让我们回顾一下 2013 年一些最好的转载帖子。
 
-Watch
+
 
 今年我们的客座作者解释了 [如何更快乐](https://lifehacker.com/want-to-be-happier-stop-doing-these-10-things-right-no-5991218) ，给了我们关于 [学习如何编码](http://lifehacker.com/how-i-taught-myself-to-code-in-eight-weeks-511615189) 的提示，分解了 [冥想](http://lifehacker.com/what-happens-to-the-brain-when-you-meditate-and-how-it-1202533314) 的好处，并教我们 [如何更好地与孩子](http://lifehacker.com/10-things-to-stop-saying-to-your-kids-and-what-to-say-474962146) 交流。
 

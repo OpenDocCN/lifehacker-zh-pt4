@@ -5,7 +5,7 @@
 亲爱的 Lifehacker，
 我无法在 iPhone 6 和 iPhone 6 Plus 之间做出选择。Plus 上的大屏幕有什么实际好处？它看起来太大了，用一只手几乎用不上。
 
-Watch
+
 
 真诚的，
 小手 Malloy

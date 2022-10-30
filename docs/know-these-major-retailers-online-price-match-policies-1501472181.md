@@ -4,7 +4,7 @@
 
 下面是我今天读到的最令人惊讶的事情:根据零售分析师 的说法，只有 5%的消费者愿意通过让零售商遵守他们的价格匹配政策来降低商品的价格。
 
-Watch
+
 
 ***本帖最初出现在*** [***宁肯购物***](http://www.rather-be-shopping.com/blog/2014/01/07/which-retailers-will-price-match-online-pricing/) ***。**T15】*
 

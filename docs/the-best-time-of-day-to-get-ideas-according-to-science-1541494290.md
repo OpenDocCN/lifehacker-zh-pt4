@@ -4,7 +4,7 @@
 
 你理想中的一天是什么样子的？你会相信有一个科学上正确的答案吗？对人体问题的研究——它的激素分配，它的 [节律](http://blog.bufferapp.com/optimal-work-time-how-long-should-we-work-every-day-the-science-of-mental-strength) ，它的 [倾向](http://blog.bufferapp.com/5-ways-to-get-more-done-by-working-smarter-not-harder)——发现在一天中的某些时候，身体更擅长进行某些活动。
 
-Watch
+
 
 [吃早餐](http://www.webmd.com/women/features/the-best-time-of-the-day?page=2) 不要晚于早上 8:00。 [下午 3 点到 6 点之间锻炼](http://online.wsj.com/news/articles/SB10000872396390444180004578018294057070544) 。从早上 8:00 到 9:00 阅读 Twitter(你的同事在早上更乐观)。事实证明，我们执行大量任务的最佳时间最好留给科学来决定。如果早餐可以是黑白的，那是不是意味着写作和创造力也可以是黑白的？
 

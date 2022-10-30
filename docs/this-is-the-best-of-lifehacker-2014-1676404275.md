@@ -4,7 +4,7 @@
 
 每年年底，我们都会回顾一下我们最受欢迎的帖子，以供回忆(并帮助你抓住任何你可能错过的东西)。让我们最后看一下 2014 年的最佳帖子。
 
-Watch
+
 
 今年我们有 [一些很棒的操作指南](https://lifehacker.com/most-popular-how-to-guides-of-2014-1665176139)[巧妙使用](http://lifehacker.com/most-popular-clever-uses-and-macgyver-tips-of-2014-1671871559)[DIY 项目](http://lifehacker.com/most-popular-diy-projects-of-2014-1666226900)[适用于所有平台的下载](http://lifehacker.com/most-popular-windows-downloads-and-posts-of-2014-1668234882) ，还有更多。
 

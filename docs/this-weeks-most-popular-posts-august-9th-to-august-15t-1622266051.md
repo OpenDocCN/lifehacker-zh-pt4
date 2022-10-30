@@ -4,7 +4,7 @@
 
 这一周我们 [不再购买价格过高的威士忌](https://lifehacker.com/the-artisanal-products-youre-paying-too-much-for-1620919807) ，在麦当劳吃了一顿 [秘密早午餐](http://lifehacker.com/head-to-mcdonalds-at-10-35-am-for-a-special-burger-and-1620161304) ，看了看 [如何最好地使用 Facebook Messenger](http://lifehacker.com/the-best-features-of-facebook-messenger-youre-probably-1620750584) ，并从 [学到了一些军事](http://lifehacker.com/top-10-tips-and-tricks-we-learned-from-the-military-1617766729) 的教训。这里回顾一下。
 
-Watch
+
 
 ## [我们从军队学来的 10 大招数](http://lifehacker.com/top-10-tips-and-tricks-we-learned-from-the-military-1617766729)
 

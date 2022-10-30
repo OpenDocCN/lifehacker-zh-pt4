@@ -4,7 +4,7 @@
 
 罗技的 MX Revolution 和 Performance MX 鼠标是过去十年中最受欢迎、最受喜爱的两种鼠标，包括生活黑客 的大多数人所称的 [。](http://lifehacker.com/five-best-desktop-mice-5931795) [罗技 MX Master](http://www.logitech.com/en-us/product/mx-master) 无线鼠标符合人体工程学，具有多种功能来帮助您完成工作，它是令人敬畏的 MX 系列的最新继任者。事实上，这是迄今为止最好的一个。
 
-Watch
+
 
 几个月前刚刚发布的 MX Master 很舒适，按钮和功能数量恰到好处，在 Windows 和 OS X 中运行良好。虽然你仍然可以轻松地购买原始性能和革命 ，但它们在技术上已经退役了——这很好，因为 MX Master 是迄今为止最好的 MX 鼠标。
 

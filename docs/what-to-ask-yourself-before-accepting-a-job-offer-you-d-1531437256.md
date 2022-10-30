@@ -4,7 +4,7 @@
 
 假设你刚刚面试完几个雇主。在所有的 [面试](http://www.glassdoor.com/Interview/index.htm) 中，你收到了一份工作邀请。这不是你想要的。你接受吗？
 
-Watch
+
 
 ***本帖最初出现在***[***glass door***](http://www.glassdoor.com/blog/5-questions-accepting-job-offer-dont-love/)***上。**T15】*
 

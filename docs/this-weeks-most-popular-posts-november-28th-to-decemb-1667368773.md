@@ -4,7 +4,7 @@
 
 本周我们 [发现了令人困惑的熟悉术语的含义](https://lifehacker.com/second-cousins-once-removed-and-more-explained-in-1661572056)[了解了关于耳垢的一切](http://lifehacker.com/how-to-properly-maintain-your-ears-and-earwax-1665866980)[玩了一点金融赶超](http://lifehacker.com/how-much-you-should-have-saved-in-your-retirement-accou-1663712527)[从人民搜索引擎](http://lifehacker.com/remove-your-data-from-tons-of-people-search-engines-w-1663910296) 中删除了个人信息。这里回顾一下。
 
-Watch
+
 
 ## [【表亲】【曾离】，更多以图表形式解释](http://lifehacker.com/second-cousins-once-removed-and-more-explained-in-1661572056)
 

@@ -4,7 +4,7 @@
 
 谷歌的算法总是扫描 Gmail 邮件来显示个性化广告，但最近对其服务条款 的一次 [更新让所有人再次谈论它。你不能完全停止扫描，但如果你想限制你看到的广告种类，甚至删除一些，你可以做一些调整。](http://www.google.com/intl/en/policies/terms/)
 
-Watch
+
 
 ***本帖原载于***[***wonder how to***](http://internet.wonderhowto.com/how-to/gmail-scans-your-emails-for-more-targeted-ads-heres-limit-what-you-see-0154412/)***。*T15】**
 

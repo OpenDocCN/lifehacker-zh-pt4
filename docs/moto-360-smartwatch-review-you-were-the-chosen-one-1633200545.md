@@ -4,7 +4,7 @@
 
 今年年初，当谷歌首次发布 Android Wear 时，它用 Moto 360 戏弄了我们。这是迄今为止我们见过的最好看的智能手表。许多个月后 [终于来了](http://gizmodo.com/moto-360-hands-on-the-one-weve-been-waiting-for-proba-1630875506) 。这是迄今为止最好的 Android Wear 设备，但随着苹果手表 的出现，这是否足够好已经不再明朗。
 
-Watch
+
 
 ### 这是什么？
 

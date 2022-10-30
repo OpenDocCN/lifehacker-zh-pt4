@@ -4,7 +4,7 @@
 
 当你为陆军工程队工作时，你需要做好一切准备。在酷工具上，Pat Ripton 分享了他的包，里面装满了各种有用的东西。
 
-Watch
+
 
 这个袋子本身就是一个 [的安斯特种部队](http://killspencer.com/special-ops-backpack-2-0.html) 。这是里面的内容:
 

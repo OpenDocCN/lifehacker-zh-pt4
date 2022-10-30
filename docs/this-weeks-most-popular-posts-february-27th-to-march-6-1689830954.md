@@ -4,7 +4,7 @@
 
 这周我们 [学了一些基本的卫生知识](https://lifehacker.com/an-adults-guide-to-hygiene-for-those-who-werent-taught-1689160558)[挑了一些纹身](http://lifehacker.com/carefully-decide-where-to-get-a-tattoo-with-this-pain-c-1689492474)[为退休储蓄](http://lifehacker.com/how-much-of-your-income-to-save-based-on-when-you-want-1689402509)[讲了一些好笑话](http://lifehacker.com/five-common-mistakes-people-make-when-telling-jokes-1688286046) 。这里回顾一下。
 
-Watch
+
 
 ## 成人卫生指南(给那些从小没被教过的人)
 

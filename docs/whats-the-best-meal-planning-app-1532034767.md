@@ -4,7 +4,7 @@
 
 [提前计划你的膳食](https://lifehacker.com/how-to-plan-your-weekly-meals-stress-free-30791921) 是 [在不超支的情况下做出美味佳肴的好方法](http://lifehacker.com/how-to-save-money-on-groceries-and-keep-making-awesome-1442877348) 享受你在厨房的时光。有成千上万的应用程序可以帮助你整理食谱，建立购物清单，并推荐新的菜肴，但本周我们想知道哪些是你认为最好的。
 
-Watch
+
 
 无论你的膳食计划应用程序是一体化的(也就是说，它组织食谱，建立杂货清单，帮助你找到折扣，并让你保持烹饪警觉)，还是只是你用来草草列出一周的菜单或保存几个你想尝试的食谱的东西，我们都想知道。在下面的讨论中分享你的建议吧！
 

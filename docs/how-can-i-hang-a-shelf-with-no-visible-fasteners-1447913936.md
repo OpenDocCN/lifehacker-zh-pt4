@@ -4,7 +4,7 @@
 
 所以你已经做了一个架子！现在，你如何以一种美观的方式(没有外露的螺丝、胶带或胶水)来悬挂它？ [*栈交换*](http://diy.stackexchange.com?utm_source=lifehacker&utm_medium=syndication&utm_content=89&utm_campaign=crowdhacker) *的专家们都来帮忙了。*
 
-Watch
+
 
 我刚刚根据在 [**找到的说明为卧室做了一个架子**](http://robin-happyathome.blogspot.com/2010/06/headboard-shelf-tutorial.html) **(如下图)。问题是:博客没有说明怎么挂！有人能帮我想出一个干净的方法来悬挂这个架子，而不需要在架子外部安装螺钉吗？** *见* [*原问题*](http://diy.stackexchange.com/q/27873/13026?utm_source=lifehacker&utm_medium=syndication&utm_content=89&utm_campaign=crowdhacker) *。*
 

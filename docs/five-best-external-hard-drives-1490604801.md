@@ -4,7 +4,7 @@
 
 如今，外置硬盘几乎是一种商品。它们很便宜，有多种尺寸，而且很容易找到。尽管如此，有些还是比其他的好:它们更可靠，更便携，有更多的连接选项，等等。本周我们将根据你们的提名选出五位最佳选手。
 
-Watch
+
 
 本周早些时候，我们请你告诉我们 [哪些外置硬盘是你认为最好的](https://lifehacker.com/whats-the-best-external-hard-drive-1489807671) 。即现成的、面向消费者的驱动器。我们之前已经介绍过 [最佳外部驱动器机箱](http://lifehacker.com/five-best-drive-enclosures-5955402) ，我们也讨论过 [最佳 NAS 机箱](http://lifehacker.com/five-best-nas-enclosures-5968677) 。这一次，我们想要介绍最好的简单的、开箱即用的外部驱动器。你提出了你的提名，现在我们回来突出前五名。
 

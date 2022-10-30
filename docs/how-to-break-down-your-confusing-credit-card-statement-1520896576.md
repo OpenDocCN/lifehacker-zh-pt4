@@ -4,7 +4,7 @@
 
 信用卡债务不仅仅是数字。个人理财由你过去的经历、你的个人选择以及有时你不愿面对的情况组成。综合起来，这些复杂的因素会导致你对债务的情绪反应，甚至使信用卡账单成为焦虑的来源。
 
-Watch
+
 
 ***本帖原载于***[***ReadyForZero***](http://blog.readyforzero.com/how-to-read-a-credit-card-statement/)***。**T15】*
 

@@ -4,7 +4,7 @@
 
 iOS 8 于本周发布，随之而来的是一系列改进和新功能。在你开始自己摆弄它之前，这里有一些指南，介绍一下 [基本新功能](https://lifehacker.com/all-the-new-stuff-in-ios-8-1584893352) ，新的 [消息功能](http://lifehacker.com/how-to-use-all-of-messages-new-features-in-ios-8-1635030388) ， [隐藏功能](http://lifehacker.com/top-10-secret-features-of-ios-8-1635558327) ， [键盘](http://lifehacker.com/preview/the-best-third-party-keyboards-for-ios-8-1636566071) ，以及其他所有功能。
 
-Watch
+
 
 ## [iOS 8](http://lifehacker.com/all-the-new-stuff-in-ios-8-1584893352)里的所有新玩意儿
 

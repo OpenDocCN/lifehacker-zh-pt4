@@ -4,7 +4,7 @@
 
 一旦你最终跨过那个门槛 [，锻炼变成了例行公事](http://lifehacker.com/how-to-motivate-yourself-into-an-exercise-routine-youll-5950484) ，就会有一个大问题“下一步是什么？”你脑海中闪现的问题。对我们中的许多人来说，仅仅做工作还不够令人兴奋。作为一名自行车手，我需要把自己推出舒适区，让事情变得有趣。
 
-Watch
+
 
 我们之前谈到过 [让锻炼变得不那么无聊](https://lifehacker.com/how-can-i-make-my-workout-less-boring-1463764118) ，这些建议大部分也适用于此。如果你发现自己越来越无聊，那就值得把你的例行公事[游戏化](http://lifehacker.com/the-psychology-of-gamification-can-apps-keep-you-motiv-1521754385)[阅读](http://lifehacker.com/how-i-tricked-myself-into-loving-my-workout-509289090) ，或者 [找朋友和](http://lifehacker.com/how-can-i-fit-a-workout-into-my-daily-routine-5854874) 一起健身。不过，我需要一些不同的东西。我骑自行车主要是因为我喜欢它，但是享受锻炼只是战斗的一部分。你还是要保持它的趣味性。
 

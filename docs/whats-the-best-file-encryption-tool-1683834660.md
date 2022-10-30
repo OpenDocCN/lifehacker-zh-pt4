@@ -4,7 +4,7 @@
 
 时代已经变了，很多工具来来去去都是为了加密你的数据，使其免受窥探或数据窃贼的攻击。是时候焕然一新了。您使用哪些应用程序来保护您的敏感数据安全，并以只有您拥有密钥的方式进行锁定？
 
-Watch
+
 
 上一次我们看到你最喜欢的文件加密工具 [是在不久前](https://lifehacker.com/five-best-file-encryption-tools-5677725) 的时候，那时 TrueCrypt 还在最热门的位置。在很长一段时间里， [仍然是我们最喜欢选择的](http://lifehacker.com/a-beginners-guide-to-encryption-what-it-is-and-how-to-1508196946) 安全和 [易用](http://lifehacker.com/how-to-make-your-entire-internet-life-more-secure-in-on-1348598911) 。一些人仍然认为它是安全的，其他人——包括该项目的创始人——认为它受到了损害。我们 [讨论剧情发生的时候](http://lifehacker.com/truecrypts-web-site-updates-with-ominous-warning-detai-1582879439) 。不管怎样，现在是时候寻找新的选择了。在下面的讨论中说出你的选择吧！
 

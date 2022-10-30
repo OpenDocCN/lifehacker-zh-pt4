@@ -4,7 +4,7 @@
 
 Lifehacker 上每周都会发生很多事情，在世界其他地方也是如此。我们创建了播客来轻松分享我们的热门故事、最受欢迎的技巧和下载，并回答您的问题。2013 年是我们的第二年，由于你们的持续倾听和反馈，我们成长了不少。以下是全年最受欢迎的剧集。
 
-Watch
+
 
 今年我们解决了很多问题。我们发现 [免于色情](https://lifehacker.com/youtube-search-secrets-facebook-s-offline-ad-tracking-5994398)[戳穿了一些健康神话](http://lifehacker.com/windows-and-ubuntu-updates-android-security-and-healt-1447375369)[升级智能手机](http://lifehacker.com/smartphone-upgrades-office-productivity-and-the-lapto-1405300681)[对新闻组](http://lifehacker.com/special-episode-usenet-indexers-close-up-shop-5967412) 遇袭进行了专题报道。
 

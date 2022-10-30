@@ -4,7 +4,7 @@
 
 本周，我们 [更新了我们的年度生活黑客包](https://lifehacker.com/lifehacker-pack-for-android-our-list-of-the-essential-819094535) ，收集了 [你每天都在做的错事](http://lifehacker.com/top-10-things-you-might-be-doing-wrong-every-day-1603832593)[在每个州找到了理想的薪水](http://lifehacker.com/the-perfect-salary-for-happiness-by-state-1605278164)[在 10 秒内剥了一个芒果](http://lifehacker.com/how-to-peel-a-mango-in-under-10-seconds-1603398060) 。这里回顾一下。
 
-Watch
+
 
 ## Lifehacker 包适用于[Windows](http://lifehacker.com/lifehacker-pack-for-windows-our-list-of-the-best-windo-787533613)[Linux](http://lifehacker.com/lifehacker-pack-for-linux-our-list-of-the-essential-li-815376368)[Android](http://lifehacker.com/lifehacker-pack-for-android-our-list-of-the-essential-819094535)[iOS](http://lifehacker.com/lifehacker-pack-for-iphone-our-list-of-the-essential-i-804543677)
 

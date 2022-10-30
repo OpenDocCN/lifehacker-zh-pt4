@@ -4,7 +4,7 @@
 
 你的电脑有固态硬盘吗？所有新的苹果笔记本电脑都配有固态硬盘，如果你想擦除它，你最好小心点。“已清除”的内存实际上并未被清除；敏感信息可能会被窃取。苹果专家在 [*栈交换*](http://apple.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=apple-119) *提供安全提示。*
 
-Watch
+
 
 我是 SSD 技术的新手，所以我不知道在安全擦除硬盘数据方面，它与硬盘相比如何。运行“磁盘工具”并使用“用零覆盖”选项抹掉驱动器就足够了吗，还是这只适用于硬盘驱动器？还有其他应该采取的行动吗？
 

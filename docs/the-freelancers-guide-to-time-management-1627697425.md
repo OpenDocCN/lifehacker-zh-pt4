@@ -4,7 +4,7 @@
 
 时间管理对我们所有人来说都是一个挑战，但是在充分利用时间方面，我们自由职业者 面临着 [一系列独特的问题](http://lifehacker.com/things-you-should-expect-if-you-start-freelancing-and-h-5889901) 。我们不仅要应付项目，还要应付几个客户，同时还要努力寻找新的工作。这里有一些自由职业者和小企业主应该有的时间管理策略。
 
-Watch
+
 
 像使用 [番茄计时器](https://lifehacker.com/productivity-101-a-primer-to-the-pomodoro-technique-1598992730) 和 [倪星分心](http://lifehacker.com/top-10-ways-to-defeat-distractions-and-get-your-work-do-1580198318) 这样的经典时间管理技巧对于自由职业者来说是必不可少的——就像他们对于办公室职员和远程工作的人一样。然而，自由职业(或经营自己的企业)就像有多份工作——有几个不同的老板、不同的优先事项和不同的程序。这使得时间管理变得有点棘手，因为每天——甚至一天中的每个小时——都可能与前一天不一样。尽管进入一个稳定的工作状态可能会更难，但是，这不是不可能的。
 

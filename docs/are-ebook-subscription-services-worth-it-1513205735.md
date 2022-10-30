@@ -5,7 +5,7 @@
 亲爱的 Lifehacker，
 我已经看到一些不同的网飞风格的电子书阅读服务，如[Scribd](http://www.scribd.com/)和 [Entitle](https://www.entitlebooks.com/) 最近出现，但我不确定它们是否真的值得花费。你怎么想呢?
 
-Watch
+
 
 真诚的，
 JD 储蓄

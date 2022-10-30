@@ -4,7 +4,7 @@
 
 我是待办事项清单的超级粉丝。它们帮助我保持有条理，优先安排我的一天，并给原本混乱的日程表添加结构。我最近发现了保存待办事项清单的最好也是最简单的方法:一个 [GitHub](https://lifehacker.com/how-the-heck-do-i-use-github-5983680) 要点。
 
-Watch
+
 
 ***本帖最初出现在*** [***卡尔·塞德诺伊的博客***](http://carlsednaoui.com/post/70299468325/the-best-to-do-list-a-private-gist) ***。**T15】*
 

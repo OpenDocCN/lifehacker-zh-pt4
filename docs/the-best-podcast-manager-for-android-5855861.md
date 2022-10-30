@@ -4,7 +4,7 @@
 
 Android 不缺播客管理器，很多都很不错。我们有很多最爱，但今天我们认为 Pocket Casts 是您在 Android 手机和其他设备上查找、下载和组织播客的选择。
 
-Watch
+
 
 ### [口袋蒙](http://www.shiftyjelly.com/android/pocketcasts)
 

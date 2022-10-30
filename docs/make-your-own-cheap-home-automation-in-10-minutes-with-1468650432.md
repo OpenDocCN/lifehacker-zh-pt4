@@ -6,7 +6,7 @@
 
 家庭安全和自动化很少与廉价这个词在同一个句子中被提及，但如果你愿意自己做一些事情，这是完全可能的。我们检查了一个名为 [忍者积木](http://ninjablocks.com/collections/ninja-blocks/products/ninja-blocks-kit) 的 200 美元的 DIY 套件，并且能够在大约 10 分钟内安装并运行一个家庭自动化和安全系统。
 
-Watch
+
 
 ### 你会得到什么
 

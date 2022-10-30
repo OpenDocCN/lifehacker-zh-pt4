@@ -4,7 +4,7 @@
 
 每年年底，我们都会回顾一下我们最受欢迎的帖子，以供回忆(并补上你可能错过的任何东西)。这里是对 2013 年 Lifehacker 的最后一次回顾。新年快乐
 
-Watch
+
 
 今年我们精选了大量令人敬畏的[DIY 项目](http://lifehacker.com/most-popular-diy-projects-of-2013-1476740177)[巧妙运用](http://lifehacker.com/most-popular-clever-uses-and-macgyver-tips-of-2013-1484868813)[下载](http://lifehacker.com/most-popular-chrome-extensions-and-posts-of-2013-1487488356) 。这里是最好的。
 

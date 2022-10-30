@@ -4,7 +4,7 @@
 
 做好一切准备对每个人来说都是不同的想法。对读者 Daniel Gerjets 来说，准备意味着能够用适配器将任何东西连接到任何东西。
 
-Watch
+
 
 Gerjets 的包是一个 [贝尔金 Dash](http://www.amazon.com/Belkin-F8N344CW-Carrying-Backpack-Notebook/dp/B0049U6QMS/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-cable-adapter-packed-go-bag-1594821004&asc_source=&ie=UTF8&keywords=Belkin Dash Backpack&qid=1403542888&s=pc&sr=1-1&tag=kinjalifehackerlink-20) 。这是里面的内容:
 

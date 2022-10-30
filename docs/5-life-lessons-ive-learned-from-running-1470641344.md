@@ -4,7 +4,7 @@
 
 在过去的几年里，我成了一名跑步爱好者。跑步是我的逃避，也是我应对和缓解压力的方式。随着时间的推移，我发现了几条成为跑步者的不成文的规则，这些规则不仅适用于跑步，也适用于日常生活。
 
-Watch
+
 
 ***本帖原载于***[](http://justinseeley.com/editorial/5-lessons-ive-learned-from-running-apply-life/)*****。**T15】***
 

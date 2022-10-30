@@ -4,7 +4,7 @@
 
 YouTube 是一个非常棒的视频流媒体服务。无疑是最大的。这并不意味着没有改进的余地。这里有一些让 YouTube 变得更好的最好方法。
 
-Watch
+
 
 我们已经介绍了如何解决所有你在 YouTube 上最讨厌的，以及一些你可以在 YouTube 上使用的最好的 [基于 URL 的技巧和服务](http://lifehacker.com/the-six-best-youtube-url-tricks-1422544868) 。今天，我们将更进一步，根据你的观看习惯来定制 YouTube，让它更容易使用。
 

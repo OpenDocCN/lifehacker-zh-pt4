@@ -4,7 +4,7 @@
 
 在瑞典 警方突袭之后，海盗湾上周陷入黑暗。紧随其后，大量模仿原版的网站涌现出来，试图填补空白。不要相信他们。
 
-Watch
+
 
 毫不奇怪，糟糕的演员突然出现，填补了这个传奇网站留下的高度宣传的漏洞。到了周末，另一个著名的洪流追踪器 Isohunt [的人在 oldpiratebay.org 推出了](http://gizmodo.com/another-torrent-site-has-resurrected-the-pirate-bay-1670450805) 一个有漏洞的克隆，据说里面有海盗湾原始档案的完整副本。然而， [作为当时最受尊敬的盗版相关问题观察家，](http://torrentfreak.com/pirate-bay-copycats-flourish-after-raid-141212/) 指出，“OldPirateBay.org 与 TPB 并没有太多关系。它看起来只不过是一个带有海盗湾主题的 Isohunt.to 副本，缺少了许多原始的海盗湾种子。
 

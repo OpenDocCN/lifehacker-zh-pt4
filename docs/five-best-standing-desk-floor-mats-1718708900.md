@@ -4,7 +4,7 @@
 
 获得 [一张巨大的立式办公桌](https://lifehacker.com/five-best-standing-desks-1528244287) 只是战斗的一部分。当然，你必须不停地移动，工作时站着会让你的脚很难受。这就是为什么大多数站着办公的爱好者( [我们自己也包括](https://lifehacker.com/the-complete-guide-to-choosing-or-building-the-perfec-1682274258) )建议在办公桌上使用抗疲劳垫。根据你的建议，本周我们来看五个最好的。
 
-Watch
+
 
 本周早些时候，我们问你 [哪种抗疲劳垫最好](https://lifehacker.com/whats-the-best-standing-desk-floor-mat-1718100332) ，你出现了一些令人惊讶的提名。但是我们只能容纳你的前五名，所以他们在这里，没有特别的顺序。
 

@@ -4,7 +4,7 @@
 
 [apagajewski](https://www.flickr.com/photos/124439106@N04/) 的 linux 桌面提醒我们即将到来的寒冷的冬天早晨。清脆爽口，即使还在我们所在的暖侧。他是这样设置的。
 
-Watch
+
 
 自从我们推出 linux 桌面已经有一段时间了，但是这个看起来很不错。他运行的是 Arch Linux 的发行版 [Apricity OS](https://apricityos.com/) 。这也很容易设置。如果你想复制这种造型，你需要做的是:
 

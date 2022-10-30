@@ -4,7 +4,7 @@
 
 对于一个失意的单身人士来说，生活常常是这样的:
 
-Watch
+
 
 而在第一眼[研究](http://www.telegraph.co.uk/news/politics/10090130/Marriage-makes-people-happier-than-six-figure-salaries-and-religion.html) 似乎支持了这一点，表明已婚人士平均比单身人士更幸福，也比离婚人士幸福得多。但是更仔细的分析 [发现](http://www.deakin.edu.au/buslaw/aef/workingpapers/papers/2010_03.pdf) 如果你根据婚姻质量*将“已婚人士”分成两组*，“自我评估婚姻不好的人相当痛苦，远不如未婚人士幸福，而自我评估婚姻好的人甚至比文献报道的更幸福。”换句话说，现实是这样的:
 

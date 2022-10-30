@@ -4,7 +4,7 @@
 
 婴儿和精神病患者有一个共同点:他们非常擅长得到他们想要的东西。我们中的许多人可以从这些生物身上学到一两件事(尽管脾气暴躁和肮脏的策略)。
 
-Watch
+
 
 ***本帖原载于*** [***今日心理***](http://www.psychologytoday.com/collections/201310/the-art-persuasion/secrets-master-influencers) ***。**T15】*
 

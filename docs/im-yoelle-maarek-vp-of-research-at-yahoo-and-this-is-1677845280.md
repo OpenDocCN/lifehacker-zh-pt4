@@ -4,7 +4,7 @@
 
 在互联网初创公司的背景下，雅虎可能是一家老牌公司，但他们总是在研究新的技巧。 [雅虎实验室](http://labs.yahoo.com/) 是他们进行实验的孵化器，他们在那里从事的项目有 [雅虎天气](https://lifehacker.com/yahoo-weather-for-ios-may-be-the-most-beautiful-weather-476089302) 和他们的 [新闻摘要应用](https://mobile.yahoo.com/newsdigest/) 。而主管雅虎实验室的是 [Yoelle Maarek](http://labs.yahoo.com/author/yoelle/) 。
 
-Watch
+
 
 Yoelle 是研究、学术和工程领域的资深人士，曾在 IBM 和 Google 工作过，会说三种语言，是三个孩子的母亲。如果你想知道为什么一个天气应用程序需要复杂的实验，那是因为美丽的背景照片是从成千上万张公开的 Flickr 照片中智能筛选出来的，这个过程你可以 [在这里](http://yahoolabs.tumblr.com/post/103469857701/science-powering-product-yahoo-weather) 阅读。
 

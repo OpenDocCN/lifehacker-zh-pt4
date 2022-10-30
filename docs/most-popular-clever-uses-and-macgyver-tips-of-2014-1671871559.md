@@ -4,7 +4,7 @@
 
 今年是聪明的一年，你可以想出不同的方法来处理家里的东西。正确的工具应该用在正确的工作上，但是有时候创新比任何工具都好。
 
-Watch
+
 
 今年我们了解到 [乐高玩具是完美的电缆支架](https://lifehacker.com/lego-figures-make-perfect-cable-holders-1586830454)[Linux 对于很多你可能想不到的事情都很棒](http://lifehacker.com/top-10-uses-for-linux-even-if-your-main-pc-runs-window-1513172815)[你可以通过弹跳电池](http://lifehacker.com/test-if-your-batteries-are-dead-by-dropping-them-on-a-h-1630525062) 来检查电池，并且你可以用绳子 [从你的手指上取下卡住的戒指](http://lifehacker.com/remove-a-stuck-ring-from-your-finger-with-an-elastic-ba-1515026883) 。
 

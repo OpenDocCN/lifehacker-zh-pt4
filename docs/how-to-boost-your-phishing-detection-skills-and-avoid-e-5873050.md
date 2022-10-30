@@ -4,7 +4,7 @@
 
 [网络钓鱼](http://en.wikipedia.org/wiki/Phishing) 诈骗——那些通过伪装成合法公司试图让你进入 [提供私人信息](https://lifehacker.com/the-complete-guide-to-avoiding-online-scams-for-your-l-5420356) 的诈骗——可能很容易被怀疑的眼光发现，但当你放松警惕一秒钟时，有些诈骗就能轻易抓住你。以下是如何提高您的网络钓鱼检测技能，并在您注意力不集中时保护自己的方法。
 
-Watch
+
 
 想要测试您的网络钓鱼智商并找出您最有可能错过的诈骗类型吗？ [参加这个考试](http://www.sonicwall.com/furl/phishing/) 。
 

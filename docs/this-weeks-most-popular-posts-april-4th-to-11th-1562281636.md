@@ -4,7 +4,7 @@
 
 本周我们 [与令人心痛的安全漏洞](http://lifehacker.com/what-the-heartbleed-security-bug-means-for-you-1560801201)[战斗，学习了一个让照片看起来更好的技巧](http://lifehacker.com/if-it-bends-bend-it-to-look-better-in-photos-1558996391)[增强了我们最喜欢的应用和服务](http://lifehacker.com/top-10-apps-and-services-made-better-by-add-ons-1558382325)[回答了关于签署信用卡的古老问题](http://lifehacker.com/should-you-sign-the-back-of-your-credit-card-1558289863) 。这里回顾一下。
 
-Watch
+
 
 ## [“心脏出血”安全漏洞对你意味着什么](http://lifehacker.com/what-the-heartbleed-security-bug-means-for-you-1560801201)
 

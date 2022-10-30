@@ -4,7 +4,7 @@
 
 Windows 用户， [联合](http://lifehacker.com/show-your-windows-linux-and-android-pride-with-these-5822935) ！这个壁纸周三，让我们庆祝我们最喜欢的操作系统，无论你运行的是 8、7 还是 XP...虽然 [你可能应该停止运行 XP](http://lifehacker.com/how-to-move-on-after-windows-xp-without-giving-up-your-1556573928) 。
 
-Watch
+
 
 请记住，我们现在邀请您参与壁纸星期三系列！你会在这里找到一个选择，但是在下面的讨论中张贴你最喜欢的本周主题。尽可能坚持我们的格式，包括标题、图片、分辨率和链接。壁纸快乐！
 

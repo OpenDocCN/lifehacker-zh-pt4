@@ -4,7 +4,7 @@
 
 你可能意识不到你需要 [栅栏](http://www.stardock.com/products/fences/) ，直到你使用它。这是一个如此简单的应用程序，可以帮助你将桌面图标组织到不同的空间——是的，隔离不同的类别来组织你的杂物。
 
-Watch
+
 
 [Fences](https://lifehacker.com/fences-2-0-adds-better-folder-organization-multiple-pa-5950261) 由杰夫·巴格曼(Jeff Bargmann)开发，他是一名终身应用程序开发人员，在高中时就需要一种整理桌面的方法。这个想法坚持了下来，几年后成为由 [Stardock](http://www.stardock.com/) 发行的成熟的 Windows 应用程序。就这样我的 [凌乱的桌面被永远的改变了。我们采访了 Jeff，了解了它的开发、发行和应用背后的故事。](http://lifehacker.com/how-to-design-and-create-a-clean-organized-desktop-5864785)
 

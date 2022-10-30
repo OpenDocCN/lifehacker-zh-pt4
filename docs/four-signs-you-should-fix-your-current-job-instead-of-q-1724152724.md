@@ -4,7 +4,7 @@
 
 当你被困在一份你讨厌的工作中时，很容易阅读一些关于追求梦想的文章，并找到你在辞职信中寻求的认可。但是，感觉糟糕的工作可能并不永远糟糕——在某些情况下，尝试修复你的工作，而不是跳槽，可能是值得的。
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](https://www.themuse.com/advice/4-surprising-signs-you-should-fix-your-current-job-instead-of-quitting) ***。***
 

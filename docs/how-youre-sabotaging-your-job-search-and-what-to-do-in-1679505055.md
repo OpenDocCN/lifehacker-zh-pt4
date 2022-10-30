@@ -4,7 +4,7 @@
 
 归根结底，找工作的很大一部分是自信——申请最好职位的自信，与任何人和所有人交往的自信，传达你是最好的候选人的自信。但是自信和傲慢之间有一条细微的界限，你需要控制住。
 
-Watch
+
 
 ***本帖原载于*** [***缪斯***](https://www.themuse.com/advice/4-ways-youre-being-too-aggressive-in-your-job-search) ***。**T15】*
 

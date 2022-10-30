@@ -4,7 +4,7 @@
 
 如果你在寻找一些好听的东西，你有大量的服务可供选择，有免费的，也有付费的(两者都有)。随着 [Grooveshark 现在悲伤地离开](https://lifehacker.com/music-service-grooveshark-one-of-our-favorite-streamin-1701394611) ，是时候重新审视流媒体音乐的世界了，看看谁会胜出。本周，我们将根据你们的提名选出五位最佳选手。
 
-Watch
+
 
 本周早些时候，我们问你哪些流媒体音乐服务是最好的 ，它们是旧的还是新的，以及你认为哪些是最好的。随着 Grooveshark 的离去，我们需要有人来取代我们的 [之前的两届](http://lifehacker.com/best-music-streaming-service-grooveshark-5483355) [民意测验获胜者](http://lifehacker.com/most-popular-streaming-music-service-grooveshark-5824850) ，而你出现了大量的优秀提名。以下是他们，排名不分先后:
 

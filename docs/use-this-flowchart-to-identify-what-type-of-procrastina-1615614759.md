@@ -4,7 +4,7 @@
 
 拖延者浪费了太多时间，但是要克服这种不良倾向，你需要知道 [你为什么拖延](https://lifehacker.com/the-complete-guide-to-procrastinating-at-work-477166257) 。德保罗大学的 Joseph Ferrari 博士将一些基本类型的浪费时间的人进行了分类，并提出了解决方法。
 
-Watch
+
 
 法拉利博士是 [的作者还在拖？无悔完成工作指南](https://www.amazon.com/dp/0470611588?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/use-this-flowchart-to-identify-what-type-of-procrastina-1615614759&asc_source=&linkCode=ogi&psc=1&smid=ATVPDKIKX0DER&tag=kinjalifehackerlink-20&th=1) 。在书中，他总结了他和其他心理学家对拖延症所做的几项研究。《办公时间》利用他的发现，制作了这个流程图来帮助你识别你是哪种拖延者:
 

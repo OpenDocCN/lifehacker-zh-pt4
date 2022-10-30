@@ -4,7 +4,7 @@
 
 亲爱的 Lifehacker，[【Venmo】](https://venmo.com/)[Square Cash](https://square.com/cash)和 [其他即时转账服务](https://lifehacker.com/whats-the-best-way-to-send-money-online-1342156640) 让给朋友寄钱、开支票或付房租变得简单。然而 Venmo [刚刚因为安全](http://www.slate.com/articles/technology/safety_net/2015/02/venmo_security_it_s_not_as_strong_as_the_company_wants_you_to_think.html) 不严被叫出来，现在我被吓到了。这些应用中哪些是安全的？我能信任他们吗？
 
-Watch
+
 
 真诚的，
 手机摇钱树

@@ -4,7 +4,7 @@
 
 无论你是否是苹果的粉丝，你都必须承认，他们制造了一些最漂亮的显示器——见鬼，它甚至赢得了我们 hive five 的最佳电脑显示器[。它们也是最贵的，你真的不需要花那么多钱来获得高质量的屏幕。我们尝试了一些替代方案，可以在不掏空钱包的情况下为您提供所需的功能。](https://lifehacker.com/five-best-computer-monitors-5966781)
 
-Watch
+
 
 大面板带来高价格，对吗？嗯，不一定。如果你愿意在装饰而不是画质上妥协，Monoprice 一直卖 400 美元左右的惊人的 27 英寸面板(如果你赶上销售，有时会更低)，他们的 30 英寸 IPS 面板是 650 美元的便宜货。也有很容易从韩国进口的 27 英寸显示器，如 Yamakasi Catleap，Achieva Shimian 和 Auria EQ276W，所有这些都是我们在 之前提到过的 [，零售价约为 350 美元至 450 美元，](https://lifehacker.com/five-best-computer-monitors-5966781) [赢得了很好的评论](http://www.pcper.com/reviews/Displays/Achieva-Shimian-27-Monitor-Review-1440p-IPS-Display-Under-350) 。然而， [选择完美的显示器不仅仅是尺寸和价格](https://lifehacker.com/how-to-pick-the-perfect-computer-monitor-1489862871) 。我们必须更深入。
 

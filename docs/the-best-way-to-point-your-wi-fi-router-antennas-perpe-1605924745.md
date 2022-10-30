@@ -4,7 +4,7 @@
 
 如果你认为路由器的两个天线都朝上对无线网络接收更好，请举手。是啊，我们也是。然而，根据一位前苹果 Wi-Fi 工程师的说法，最佳位置是一根天线垂直，另一根水平。
 
-Watch
+
 
 在 Mac Observer 上一篇关于 Wi-Fi 的启发性文章中，同样创造了 Wi-Fi 实用程序 [iStumbler](http://istumbler.net/) 的 Alf Watt 解释了为什么垂直方向更好:
 

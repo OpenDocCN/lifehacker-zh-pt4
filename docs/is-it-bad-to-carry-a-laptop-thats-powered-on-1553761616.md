@@ -4,7 +4,7 @@
 
 在旅途中，你会让笔记本电脑运行吗？如果是这样，你可能会损坏你的驱动器或使你的 CPU 过热。 [*栈交换*](http://superuser.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=superuser-111) *处的移动齿轮头附和。*
 
-Watch
+
 
 当我带着笔记本电脑旅行时，让它运行耗时的任务有多安全？我通常骑着两轮摩托车旅行，把笔记本电脑放在背包里，垂直地绑在背上。
 

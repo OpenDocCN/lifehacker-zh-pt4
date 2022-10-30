@@ -4,7 +4,7 @@
 
 Manoush Zomorodi 是 WNYC 的 [新科技城](http://www.wnyc.org/shows/newtechcity/) 的主持人兼执行主编，这是一个公共广播播客，研究技术如何影响我们的生活方式，无论是跟踪我们数据的 [无处不在的监控](http://www.wnyc.org/story/things-you-should-think-about-when-you-use-tech-any-kind/) 还是 [太空旅游的新前沿](http://www.wnyc.org/story/space-dreams-what-its-really/) 。
 
-Watch
+
 
 今年早些时候，他们要求听众参与一项名为 [无聊而聪明的](http://www.wnyc.org/series/bored-and-brilliant/) 项目的实验——这是一个让他们停止痴迷地查看手机的激励，目的是看看与数字世界稍微分离一点是否会培养更强的意识和创造力。成功了吗？等一下——让我检查一下我的电子邮件，我们来看看 Manoush 最喜欢的工作流程管理工具，以及数字排毒是否留下了持久的印象。
 

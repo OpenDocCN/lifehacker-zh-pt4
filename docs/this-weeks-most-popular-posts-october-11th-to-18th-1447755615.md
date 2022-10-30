@@ -4,7 +4,7 @@
 
 本周我们 [打破了一些健康神话](https://lifehacker.com/10-health-myths-that-just-wont-die-debunked-by-scienc-1443659706)[用我们没有鼠标的 PC](http://lifehacker.com/10-things-you-can-do-on-a-pc-without-ever-touching-the-1443071119)[打破了一次又一次的循环](http://lifehacker.com/how-to-break-the-living-paycheck-to-paycheck-cycle-1445330680) ， [用我们的智能手机](http://lifehacker.com/ten-household-items-your-smartphone-can-replace-1444553589) 取代了 10 件家庭用品。这里回顾一下。
 
-Watch
+
 
 ## [10 个死不了的健康神话，被科学揭穿](http://lifehacker.com/10-health-myths-that-just-wont-die-debunked-by-scienc-1443659706)
 

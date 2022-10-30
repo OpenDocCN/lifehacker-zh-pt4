@@ -4,7 +4,7 @@
 
 最近有传言称，谷歌将为 YouTube 创建一个 [音乐订阅服务。为什么要等呢？如果你知道如何使用，YouTube 上已经有数百万首歌曲供你欣赏。](http://www.androidpolice.com/2014/08/18/exclusive-this-is-youtube-music-key-googles-upcoming-subscription-service-with-offline-support-background-audio-no-ads-free-play-music-key/)
 
-Watch
+
 
 在我们开始之前，先声明一点:个人内容创作者可以为他们的歌曲设置播放权限。这意味着，无论我们在这里谈论什么服务，你都有可能无法在手机上或通过特定的应用程序播放歌曲。总的来说，对此无能为力(这也是谷歌开始谈判合适的音乐服务的部分原因)。
 

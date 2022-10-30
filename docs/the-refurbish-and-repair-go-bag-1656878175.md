@@ -4,7 +4,7 @@
 
 通常情况下，少即是多，有时你只需要一些工具就能完成工作。Lifehacker reader facevalue83 翻新和维修捐赠的电脑，下面是他们包里的东西。
 
-Watch
+
 
 这个包是一个 [瑞士装备包](http://www.amazon.com/SwissGear-Lightweight-Feature-Backpack-SA3077-D/dp/B00CR8H574/ref=sr_1_23?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-refurbish-and-repair-go-bag-1656878175&asc_source=&ie=UTF8&keywords=swiss gear bag&qid=1415642792&s=electronics&sr=1-23&tag=kinjalifehackerlink-20) ，虽然里面没有多少东西，但它似乎涵盖了快速移动维修所需的一切。这是里面的东西。
 

@@ -4,7 +4,7 @@
 
 我们在 Lifehacker 涵盖了很多东西，但我们最喜欢的是一个好的循序渐进的指南。这里是我们今年最好的方法，从技术到生活技能，以及介于两者之间的一切。
 
-Watch
+
 
 今年我们 [淘汰了 Windows crab ware](https://lifehacker.com/the-complete-guide-to-avoiding-and-removing-windows-c-1630577558)[开机 XBMC](http://lifehacker.com/power-up-your-xbmc-installation-with-these-awesome-add-5768174)[把 Windows 放在便携硬盘上](http://lifehacker.com/how-to-run-a-portable-version-of-windows-from-a-usb-dri-1565509124)[打败了口臭](http://lifehacker.com/how-to-defeat-bad-breath-once-and-for-all-1578897788) 等等。
 

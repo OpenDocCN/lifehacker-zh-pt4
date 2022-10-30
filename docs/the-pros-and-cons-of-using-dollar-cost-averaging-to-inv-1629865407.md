@@ -4,7 +4,7 @@
 
 假设你存了一些钱，并准备为你的退休做投资。也许你打算买一些指数基金。你可能害怕一次性投资所有的东西——如果你的股票第二天暴跌怎么办？考虑用美元成本平均法投资。
 
-Watch
+
 
 使用平均成本法(DCA ),您可以随着时间的推移投资固定的金额。这个想法是在价格低的时候多买一些。 [Investopedia](http://www.investopedia.com/terms/d/dollarcostaveraging.asp) 提供了更正式的定义:
 

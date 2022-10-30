@@ -4,7 +4,7 @@
 
 无论你是在打造 [一台超高端游戏电脑](https://lifehacker.com/how-to-build-your-own-do-anything-4k-capable-desktop-1585882555) 还是只是享受 [一台 4K 显示器](https://lifehacker.com/what-is-4k-and-should-i-buy-a-4k-display-right-now-1540920905) 提供的额外屏幕空间，市场上都有大量或大或小、价格适中或顶级的选择。本周我们将根据你们的提名选出五位最佳选手。
 
-Watch
+
 
 本周早些时候，我们请你告诉我们你认为哪一款 4K 电脑显示器最好——性价比最高、工作空间最大、最容易获得且得到良好支持。您的回应是出色的阵列显示器、经济实惠的面板和高端机型等等。不过，我们只能为你的五个最爱留有一席之地，它们的排名不分先后:
 

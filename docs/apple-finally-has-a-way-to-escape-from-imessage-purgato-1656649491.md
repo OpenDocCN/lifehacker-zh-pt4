@@ -4,7 +4,7 @@
 
 [如果你曾经从一部 iPhone 换成任何一部手机](http://gizmodo.com/when-apple-damns-your-texts-to-imessage-purgatory-1575937398) ，你就会知道，从死寂的 iMessage 号码这个令人愤怒的黑洞中取出你的短信简直是地狱。最终，苹果听到了我们的祈祷(以及一小时又一小时的客户服务电话)，并且 [发布了一个在线工具，让整个过程变得简单](https://selfsolve.apple.com/deregister-imessage) 就像它一直以来应该的那样。
 
-Watch
+
 
 由 Reddit 首先发现的悄悄发布的工具 [应该有助于绕过过去几周甚至几个月的错过信息。现在，只需进入苹果网站上新的“](http://www.reddit.com/r/apple/comments/2lssd2/apple_just_released_a_tool_for_you_to_deregister/) [取消注册 iMessage](https://selfsolve.apple.com/deregister-imessage) ”页面，输入你的电话号码，输入你收到的确认码，嘭——再也没有令人恼火的未送达信息了。
 

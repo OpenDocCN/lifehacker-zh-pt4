@@ -4,7 +4,7 @@
 
 “放射性”一词可以让人联想到核反应堆和荷马·辛普森。这个主屏幕上布满了钚~~驱动的~~激发的发光绿色。它甚至有深色和浅色两种主题。
 
-Watch
+
 
 这个主屏幕被设计用于几种类型的定制发射器，包括[Apex](https://play.google.com/store/apps/details?id=com.anddoes.launcher)等等。你可以按照设计师在这里 做的 [教程来得到这个造型。这是你需要的:](https://www.youtube.com/watch?v=nvJdmEgOrs0)
 

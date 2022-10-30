@@ -4,7 +4,7 @@
 
 在过去的几年里，我一直在断断续续地追踪我的习惯，但是当我经历了一段短暂的*而不是*追踪习惯的时期后，我也没有很好地养成这些习惯。关于每天检查一个习惯的过程和 [记录我的进展](https://lifehacker.com/how-to-track-everything-in-your-life-without-going-craz-1466537828) 确实提高了我每天完成那个习惯的动力和能力。
 
-Watch
+
 
 ***本帖最初出现在*** [***存在博客***](https://exist.io/blog/habit-tracking/) ***。**T15】*
 

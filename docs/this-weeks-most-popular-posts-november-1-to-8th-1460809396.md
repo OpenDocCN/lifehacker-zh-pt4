@@ -4,7 +4,7 @@
 
 本周我们 [学习了科学上喝咖啡的最佳时间](https://lifehacker.com/the-scientifically-best-time-to-drink-your-coffee-1456767721)[用我们的 iPads 换了 200 美元](http://lifehacker.com/get-200-at-target-with-any-ipad-trade-in-even-a-first-1458268904)[得到了现在安卓 KitKat 的最佳功能](http://lifehacker.com/how-to-get-the-best-features-of-android-kitkat-now-1456739585)[挂上了终极厨房小抄](http://lifehacker.com/this-kitchen-cheat-sheet-has-weights-measures-cuts-of-1458393112) 。这里回顾一下。
 
-Watch
+
 
 ## [科学上喝咖啡的最佳时间](http://lifehacker.com/the-scientifically-best-time-to-drink-your-coffee-1456767721)
 

@@ -4,7 +4,7 @@
 
 啊，拥有一所房子的乐趣:摇摇晃晃的门，卡住的窗户，干墙上的裂缝。这些项目很烦人，但是太容易被忽略而忽略掉，但是你可以在一个周末自己处理它们。这里有九种常见的家庭修理方法以及如何修理，无需经验。
 
-Watch
+
 
 我们之前已经谈论过 [家庭电气项目](https://lifehacker.com/preview/home-electrical-projects-you-can-totally-handle-yoursel-1543476392)[家庭管道项目](http://lifehacker.com/home-plumbing-projects-you-can-totally-handle-yourself-1693471731) 和 [户外家庭维修](http://lifehacker.com/outdoor-home-repairs-you-can-totally-handle-yourself-1702709456) 你可以自己处理，现在是时候处理一般的家庭维修了。我们在这里讨论的项目涉及修复像刮坏的桌子、行为不当的门等等。这些大多是初级项目，相当容易做，如果你自己解决，可以为你节省很多钱。
 

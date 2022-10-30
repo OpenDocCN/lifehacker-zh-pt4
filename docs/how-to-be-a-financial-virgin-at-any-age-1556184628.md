@@ -4,7 +4,7 @@
 
 任何人都可能在财务方面搞得一团糟——无论是负债太多，把 401(k)当成存钱罐，还是买了一栋超出你实际支付能力的房子。但是你仍然有机会进行金融改革。有第二次机会这种东西。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/2014/03/how-to-be-a-financial-virgin-again-at-any-age/)***。**T15】*
 

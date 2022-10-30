@@ -4,7 +4,7 @@
 
 本周，我们回顾了在零售业工作的生活经验，分享了一些关于健身趋势的内部观点，列出了所有那些令人困惑的运营商手机购买计划，等等。这里回顾一下。
 
-Watch
+
 
 ## [零售工作教会了我需要了解的一切](http://lifehacker.com/working-retail-taught-me-everything-i-need-to-know-abou-1726626642)
 

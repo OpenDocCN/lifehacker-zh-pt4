@@ -4,7 +4,7 @@
 
 这个 [Karma](https://yourkarma.com/) 是一个非常有用的小工具——一个预付费移动热点，无论你在哪里都能让你上网。这是 [附近最受欢迎的 Wi-Fi 热点](https://lifehacker.com/five-best-mobile-hotspots-1523254435) 之一，已经让不少博客免于网络中断和酒店 Wi-Fi 连接不稳定的困扰。
 
-Watch
+
 
 该公司及其设备的背后是 Steven van Wel，Karma 的联合创始人兼首席执行官。事实证明，史蒂文对他的小设备有足够的信心，他甚至不使用智能手机，而是选择了一个不起眼的 iPod touch。我们问了史蒂文他的工作习惯和他喜欢的其他装备，当然，除了 Karma。
 

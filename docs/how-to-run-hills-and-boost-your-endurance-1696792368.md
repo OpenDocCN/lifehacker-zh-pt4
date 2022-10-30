@@ -4,7 +4,7 @@
 
 所以你想开始跑步，但是你住在山上。或者你可能已经在一个平坦的地方慢跑了，但还想跑一些 [小径](http://vitals.lifehacker.com/how-to-take-your-running-to-the-trails-for-a-more-sati-1692428030) 或一场丘陵赛。以下是如何训练你的头脑和双腿，让你在最陡峭的斜坡上也能跑起来。
 
-Watch
+
 
 ### 漫步山间
 

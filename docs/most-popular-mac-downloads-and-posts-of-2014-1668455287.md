@@ -4,7 +4,7 @@
 
 Mac 看到了新的(免费！)操作系统以及其他各种优秀的应用程序。让我们来回顾一下我们去年最大和最好的 Mac 帖子。
 
-Watch
+
 
 ## [【OS X 10.10】](http://lifehacker.com/the-always-up-to-date-guide-to-building-a-hackintosh-o-5841604)
 

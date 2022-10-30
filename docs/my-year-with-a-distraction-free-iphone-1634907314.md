@@ -4,7 +4,7 @@
 
 2012 年，我意识到自己有问题。我的 iPhone 让我焦躁不安。我能感觉到它在我的口袋里，呼唤着我，就像那枚叫做比尔博·巴金斯的戒指。它分散了我对孩子的注意力。它分散了我对妻子的注意力。它随时随地让我分心。我需要控制局面。
 
-Watch
+
 
 ***本帖原载于*** [***中***](https://medium.com/life-hacks/my-year-with-a-distraction-free-iphone-and-how-to-start-your-own-experiment-6ff74a0e7a50) ***。**T15】*
 

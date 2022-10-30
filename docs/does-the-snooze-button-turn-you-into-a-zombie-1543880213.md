@@ -4,7 +4,7 @@
 
 早上，多睡几分钟宝贵的睡眠会非常诱人，但贪睡键可能不是你的朋友。额外的几分钟睡眠会阻碍醒来的过程，让你变成昏昏沉沉的僵尸。清醒的用户在 [*栈交换*](http://productivity.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=productivity-109) *按下贪睡键时心情激荡。*
 
-Watch
+
 
 我读到过“打盹”按钮确实会干扰大脑的唤醒过程。从我在《纽约客》[](http://www.newyorker.com/online/blogs/elements/2013/12/science-of-sleep-trouble-with-snooze-buttons.html)****中读到的，按下贪睡键可以让你至少在一天的一部分时间里变成僵尸:****
 

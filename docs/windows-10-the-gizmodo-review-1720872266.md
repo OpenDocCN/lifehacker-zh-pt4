@@ -6,7 +6,7 @@ Windows 10 无法通过审查。
 
 不是成品。它永远不会是一个成品，如果你相信微软的话。就像苹果和 Mac OS X 一样，微软已经决定他们的第十版操作系统将会是最终版——它将会年复一年地更新。
 
-Watch
+
 
 只有在 Windows 10 中，甚至一些已经宣布的功能也没有出现。在 [Windows phones](http://gizmodo.com/this-is-what-windows-10-looks-like-on-a-phone-1680908491#_ga=1.109422341.1440593052.1417030347) 、 [Xbox One 游戏机](http://gizmodo.com/heres-how-windows-10-apps-will-run-across-pcs-tablets-1680830108) ，以及类似微软 HoloLens 的现实弯曲耳机 [上，Windows 10 拥有完全不同的界面，我们甚至还没有尝试过。迟早，Windows 10 也会进入所有这些平台。](http://gizmodo.com/windows-10-with-holograms-looks-freaking-awesome-1701003075)
 

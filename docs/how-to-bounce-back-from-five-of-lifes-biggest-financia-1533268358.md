@@ -4,7 +4,7 @@
 
 生活就是改变。一些你计划并张开双臂欢迎的改变。别人会找到你，不管你是否准备好了——重点是*而不是*。无论是被淹的地下室带来的麻烦，还是家人去世带来的破坏，对于生活中的一些意外事件，无论是情感上还是经济上，都很难做好 100%的准备。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/2014/02/financial-bounce-back-how-to-recover-from-5-life-emergencies/)***。*T15】**
 

@@ -4,7 +4,7 @@
 
 作为一个父亲，意味着你要在游乐场、博物馆或溜冰场度过周末。摄像师/摄影师兼 Lifehacker 读者 Mark Henderson 分享了他为确保尽可能捕捉所有特殊时刻而付出的努力。
 
-Watch
+
 
 包里的一条 [流苏](http://www.freitag.ch/Fundamentals/Backpacks/FRINGE/pa/F49) 。这是里面的内容:
 

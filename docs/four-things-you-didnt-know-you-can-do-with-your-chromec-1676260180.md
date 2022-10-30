@@ -4,7 +4,7 @@
 
 谷歌的 Chromecast 是在你的客厅里播放任何东西的一个很好的方式，但是 [掌握它的复杂性真的可以让它发光](http://gizmodo.com/10-tricks-to-make-yourself-a-chromecast-master-1606622927) 。有一些隐藏的 Chromecast 功能很多人不知道存在，这里有一些最好的。
 
-Watch
+
 
 ## 不用遥控器打开电视
 

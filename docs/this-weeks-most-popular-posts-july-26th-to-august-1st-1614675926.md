@@ -4,7 +4,7 @@
 
 本周我们学习了 [如何在与人见面时变得更有趣](https://lifehacker.com/how-to-be-more-interesting-when-meeting-new-people-1612086910)[学习了如何在预算内吃好](http://lifehacker.com/learn-how-to-eat-well-on-just-35-a-week-1613310541)[清理了我们的壁橱](http://lifehacker.com/this-flowchart-helps-cleans-your-closet-with-quick-deci-1613207640) ，并发现了我们打印机的新用途。这里回顾一下。
 
-Watch
+
 
 流媒体音乐应用和发现服务多如牛毛，但即使是最好的也很难与众所周知的名字竞争。即便如此，稍微走出你的舒适区，尝试一项新的服务只会给你带来大量的新音乐。这里有一些我们喜欢的服务，我们认为你也会喜欢。
 

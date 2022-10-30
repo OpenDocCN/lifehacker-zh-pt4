@@ -4,7 +4,7 @@
 
 Mac OS X 已经配备了一个坚固的系统显示器，但它不是很好，只看你的整体系统健康。为此，我们喜欢 Monity，它位于您的通知中心，可以方便地访问大量信息。
 
-Watch
+
 
 ### [一元性](https://itunes.apple.com/us/app/monity/id915542151?mt=12)
 

@@ -4,7 +4,7 @@
 
 本周我们看了很酷的新 Windows 10 Xbox 应用程序，谈论了搬到新城市和出国旅行，思考了一些我们最喜欢的软件的隐私妥协，等等。这里回顾一下。
 
-Watch
+
 
 ## [五款最佳便携式耳机放大器](http://lifehacker.com/five-best-portable-headphone-amplifiers-1722800379)
 

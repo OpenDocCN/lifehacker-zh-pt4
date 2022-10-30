@@ -4,7 +4,7 @@
 
 根据 *Edmunds* 的一项新的 [研究，新千年一代最近比老一代买家更多地租赁汽车。虽然租赁是获得新车并保持每月预算可控的好方法，但一些年轻买家似乎没有以正确的方式对待租赁。](http://www.edmunds.com/about/press/millennials-more-likely-to-lease-vehicles-than-older-americans-reports-edmundscom.html)
 
-Watch
+
 
 在我们开始讨论为什么租赁可能不是最好的主意之前，让我们从埃德蒙兹的故事中审视一下为什么千禧一代会选择租赁:
 

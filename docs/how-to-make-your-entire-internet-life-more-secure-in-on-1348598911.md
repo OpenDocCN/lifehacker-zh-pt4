@@ -4,7 +4,7 @@
 
 在 Lifehacker，我们谈论了很多关于 [隐私](http://lifehacker.com/tag/privacy) 和 [安全](http://lifehacker.com/tag/security) 的话题，虽然现在比你更安全相对容易，但感觉这需要做很多工作。因此，我们决定运行一些最流行的安全和隐私措施，从聊天加密到安全备份，并找到最简单的方法来确保您的在线生活安全，而不会造成太多不便。
 
-Watch
+
 
 [](http://lifehacker.com/tag/blast-from-the-past)**是 Lifehacker 的一个每周专题，我们在其中恢复旧的，但仍然相关的帖子，供你阅读和黑客乐趣。这个还不算太老，但是有消息称* [*一个俄罗斯团伙拥有超过 400，000 个网站的超过 10 亿个密码*](https://lifehacker.com/hackers-reportedly-collect-over-a-billion-passwords-1616562955) *】，我们认为这个周末是认真对待您的安全问题的最佳时机。** 
 

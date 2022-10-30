@@ -4,7 +4,7 @@
 
 在 Lifehacker，我们可能因我们的 [操作指南](http://bit.ly/1eRXMsG) 和 [讲解者](http://bit.ly/1ajq9fL) 而闻名，但每隔一段时间，我们就喜欢大声咆哮。或者分享一些有用的信息，但没有明确的目标。以下是我们今年推出的一些不属于任何其他类别的最佳长期功能。
 
-Watch
+
 
 今年，我们分享了关于各种话题的建议、信息和意见，从 [育儿](https://lifehacker.com/10-things-i-wish-i-had-known-before-becoming-a-parent-5989419) 到 [电子游戏](http://lifehacker.com/why-im-a-pc-gamer-1471860201) 到 [广告](http://lifehacker.com/how-facebook-uses-your-data-to-target-ads-even-offline-5994380) 甚至 [知道你想做什么](http://lifehacker.com/four-ways-to-figure-out-what-you-really-want-to-do-with-513095544) 。
 

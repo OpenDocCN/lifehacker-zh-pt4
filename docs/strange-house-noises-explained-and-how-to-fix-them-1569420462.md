@@ -4,7 +4,7 @@
 
 你的房子有晚上会撞的东西吗？也许在吱吱作响的门、墙上令人窒息的嘎嘎声和吱吱作响的楼梯之间，你确信这个地方闹鬼。幸运的是，你可以做一些事情来让那些吱吱声 和嘎嘎声 [消失。](http://lifehacker.com/how-can-i-stop-my-noisy-house-from-squeaking-creaking-1441916708)
 
-Watch
+
 
 ***本帖最初出现在*** [***改进中心***](http://www.improvementcenter.com/advice/5-strange-house-sounds-explained.html?WT.qs_osrc=HAC) ***。**T15】*
 

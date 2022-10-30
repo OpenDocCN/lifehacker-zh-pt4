@@ -4,7 +4,7 @@
 
 有时候，你需要随时准备好离开城镇，这就是为什么兼职司机兼办公室主管 Aaron G 的包里包含了他在短时间内旅行可能需要的一切。
 
-Watch
+
 
 包是一个 [赫谢尔小美洲背包](http://shop.herschelsupply.com/products/little-america-backpack-black) ，亚伦 G 设法把一吨重的东西塞进了那个漂亮的小包里:
 

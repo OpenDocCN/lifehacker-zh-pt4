@@ -4,7 +4,7 @@
 
 不久前，亚马逊 [推出了 Glacier](https://lifehacker.com/amazon-glacier-archives-your-important-data-for-a-penny-5936556) ，这是一种在线存储/存档解决方案，每月每 GB 的起价仅为 1 美分。根据您的存储需求，Amazon Glacier 可能是终身备份数据的最经济高效的方式。以下是您需要了解的内容以及设置方法。
 
-Watch
+
 
 ### 亚马逊冰川是如何工作的
 

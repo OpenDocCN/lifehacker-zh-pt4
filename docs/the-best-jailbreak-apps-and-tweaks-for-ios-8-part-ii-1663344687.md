@@ -4,7 +4,7 @@
 
 现在我们已经有一些时间与 iOS 8 越狱 、 [一起度过了](http://lifehacker.com/the-best-jailbreak-apps-and-tweaks-for-ios-8-1655227137) [新的应用程序和调整即将到来](https://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-5771943) 专门为新的操作系统制作。我们来看看最好的。
 
-Watch
+
 
 ### NoPhotosCollections 从照片应用程序中移除收藏
 

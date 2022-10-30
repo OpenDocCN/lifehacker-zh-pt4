@@ -4,7 +4,7 @@
 
 当你不在家时，你家用了多少电？可能比必要的多，这是浪费金钱。当你不在家时，有选择地拔掉设备插头，你每年可以节省数百美元。在[*Stack Exchange*](http://sustainability.stackexchange.com/?utm_source=lifehacker&utm_medium=syndication&utm_campaign=crowdhacker&utm_content=sustainability-110)*的接入用户提供了当你不在身边时发现耗油设备的提示。*
 
-Watch
+
 
 **我应该考虑拔掉哪些设备？我认为我的外部驱动器、电话和打印机会使用电力。显然，我的电脑、音响系统和调制解调器/路由器也是如此。我无法想象灯、烤面包机、电视或咖啡研磨机在不使用时会用电，但我想尽可能减少我的账单。那么哪些小玩意在吸电呢？**
 

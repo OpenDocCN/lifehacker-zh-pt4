@@ -4,7 +4,7 @@
 
 我现在 20 出头，终于买得起一辆像 WRX 或 Focus ST 这样性能超酷的车了，但每次我去经销商那里试驾时都被忽视了。我怎样才能让销售人员认真对待我，这样我才能试驾这些车，了解我真正想要的是什么？
 
-Watch
+
 
 这种情况经常发生。汽车制造商发布了针对年轻人群的高性能汽车，但当这些买家来到经销商处时，他们并不被视为认真的买家。 [最近，opponaut 分形步法被当地斯巴鲁经销商](https://oppositelock.kinja.com/ignored-at-a-dealership-today-not-buying-a-wrx-anymore-1600628885) 的众多销售人员忽视，当时他试图驾驶新款 WRX。
 

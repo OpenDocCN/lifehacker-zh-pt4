@@ -4,7 +4,7 @@
 
 最近，谷歌推出了一项新的音乐服务，名为 [YouTube 音乐键](https://www.youtube.com/musickey) 。但是等等，谷歌不是已经有 [一个音乐服务](https://lifehacker.com/google-music-all-access-should-it-be-your-new-streamin-506977460) 了吗？嗯，是的。而音乐键让它变得更好。
 
-Watch
+
 
 有些人对什么是音乐调或者它为什么存在感到有点困惑。如果您注册了 Music Key，您将获得一个包含所有访问权限的 Google Play 订阅。如果你已经是 All Access 的用户，你可以免费获得音乐密钥。这意味着(谷歌未能充分解释的是)，本质上，**这些是相同的服务**。
 

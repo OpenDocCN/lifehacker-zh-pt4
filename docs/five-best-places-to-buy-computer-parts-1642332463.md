@@ -2,11 +2,11 @@
 
 > 原文：<https://lifehacker.com/five-best-places-to-buy-computer-parts-1642332463>
 
-[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)) : title[![](../Images/044fbadc98edfd613c34b7c809fe4420.png)](https://pcbuild.kinja.com)[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)Building your own desktop PC is a great, geeky pleasure. We'll show you how to do it and everything you need to know to keep your system properly maintained.
+
 
 如果你正在 [建造一台新电脑](http://lifehacker.com/the-best-pcs-you-can-build-for-300-600-and-1200-5840963) 或者购买升级产品，你需要一个值得信赖的地方。并非所有的零售商都是一样的——一些零售商提供很大的折扣，良好的客户服务，甚至有用的工具，这样你就能买到物有所值的东西。本周，我们将根据您的提名选出五位最佳选手。
 
-Watch
+
 
 打造自己的电脑 [不一定要超级贵](https://lifehacker.com/is-building-a-pc-really-cheaper-than-buying-one-1443171781) ，还有 [很多方法可以让你在过程中省钱](http://lifehacker.com/how-to-save-money-when-you-build-your-own-pc-511195742) 。本周早些时候，我们要求您在 [整理好规格清单](http://lifehacker.com/how-to-craft-the-perfect-computer-spec-list-for-your-ne-5684015) 后，告诉我们您去哪里——在线还是离线——购买计算机组件 。你和许多优秀的被提名者一起权衡，但是我们只有你的前五名的位置。以下是他们，排名不分先后:
 

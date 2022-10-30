@@ -4,7 +4,7 @@
 
 一遍又一遍地按下贪睡按钮几乎是最糟糕、最不宁静的方式来开始你的早晨，所以把这当成一个公共服务公告:一个灯光闹钟完全改变了我的生活，我想它也能改变你的生活。
 
-Watch
+
 
 光警报概念本身并不新鲜。几千年来，人们一直在太阳下醒来，并从 18 世纪开始试验控制定时照明的策略。现在市场上有相当多的模型(不使用火石锁和蜡烛，尽管它们可能很棒)，但我持怀疑态度。我不相信这些插入式装置中的一个——特别是这个 [飞利浦 HF3500/60 唤醒灯](http://www.amazon.com/Philips-HF3500-60-Wake-Up-Light/dp/B00F0W1RIW/ref=pd_sbs_hpc_4?asc_campaign=InlineText&asc_refurl=https://gizmodo.com/a-light-up-alarm-completely-changed-my-life-1535668863&asc_source=&tag=kinjagizmodolink-20)——会比我的 iPhone 振动和 iTunes 的组合更有效。
 

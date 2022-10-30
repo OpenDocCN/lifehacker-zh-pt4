@@ -4,7 +4,7 @@
 
 约翰·斯卡尔齐是一位获得雨果奖的科幻小说作家。他还是一个偶尔的专栏作家、一个定期的(经常是令人捧腹的)博客作者、一个活跃的推特用户(T2)、电视顾问等等。而当人们提到斯卡齐的名字时，后面通常会跟着“他怎么写这么多？”
 
-Watch
+
 
 答案显然是，坐在角落的桌子旁，准备好一把尤克里里琴。他的最新小说是 [万物终结](http://www.amazon.com/The-End-All-Things-Mans/dp/0765376075?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-john-scalzi-and-this-is-how-i-work-1720935145&asc_source=&tag=kinjalifehackerlink-20) ，是他老人家战争系列的一部分，将于下周发售。这实际上只是偶然发现:人们不断向我提到约翰，问他们想让谁成为主角，所以我们伸出手去了解他是如何工作的——碰巧有一本新书，因为当谈到约翰·斯卡尔齐时，总是有一本新书。
 

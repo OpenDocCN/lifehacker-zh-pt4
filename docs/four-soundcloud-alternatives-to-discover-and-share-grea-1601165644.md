@@ -4,7 +4,7 @@
 
 我们 [爱着音云](https://lifehacker.com/soundcloud-helps-you-share-and-discover-new-free-music-5654702) ，但最近一直在火的[把王国的钥匙交给了音乐界](http://torrentfreak.com/record-labels-can-remove-soundcoud-tracks-without-oversight-140703/) 。因此，许多合法的音乐被删除，艺术家和乐队正在寻找其他地方。如果你想听新音乐，或者想分享你自己的音乐，看看这些选择。
 
-Watch
+
 
 Soundcloud 是一个发现新音乐和分享你自己的混音和混搭的好地方。我们仍然喜欢它，但上周这项服务给了音乐公司(首先是通用的)对用户音乐和账户的完全和不受监督的访问权。这意味着，如果唱片公司认定你的混音、翻唱或混搭侵犯了他们的版权，即使没有，唱片公司也可以删除它，一旦你发现你的音乐不见了，你就没有追索权了。
 

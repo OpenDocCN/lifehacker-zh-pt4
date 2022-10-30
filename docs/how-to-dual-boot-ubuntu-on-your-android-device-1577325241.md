@@ -4,7 +4,7 @@
 
 Canonical 为设备开发 Ubuntu 已经有一段时间了。不幸的是，用它来玩真的不容易。然而，如果你想尝试一下(并拥有一个最新的 Nexus 设备)，这从来没有比双重启动更容易。
 
-Watch
+
 
 最近，Canonical 宣布了对其 Ubuntu 双引导应用程序 的 [更新——允许你并行运行 Ubuntu 和 Android 这使得直接在你的设备上更新](http://developer.ubuntu.com/2014/05/announcing-ubuntu-dual-boot-with-enhanced-upgrades-and-more/)[Ubuntu for Devices](http://www.ubuntu.com/phone/features)(Ubuntu 的手机和平板电脑版本的名称)更加容易。这意味着你不仅可以在不损坏手机的情况下试用 Ubuntu，还可以看到所有甜蜜的新变化，而不必大惊小怪。听起来对修补者来说是双赢。
 

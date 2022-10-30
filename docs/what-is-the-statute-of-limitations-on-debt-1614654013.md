@@ -4,7 +4,7 @@
 
 债务有到期日吗？不完全是——但是有一个诉讼时效。诉讼时效规定了债权人何时可以起诉你偿还未付债务，这取决于多种因素。了解它是如何决定的，你可能会避免一些财务上的愚蠢行为。
 
-Watch
+
 
 ***本帖原载于***[***ReadyForZero***](http://blog.readyforzero.com/what-is-the-statute-of-limitations-on-debt/)***。*T15】**
 

@@ -4,7 +4,7 @@
 
 我并不是真的懒，但我喜欢保持事情简单，尽量不去想我带的是什么装备。这是我通常的日常设置。
 
-Watch
+
 
 我想我应该自我介绍一下:我是安迪，我在 Lifehacker 处理所有投稿文章和采访，以及其他事情。现在让我们开始吧。我每周只有几天会带着笔记本电脑，因为如果我在 Gawker 办公室，我通常会在 iMac 上工作。大多数时候，如果我带着一个包，那就是一个 [曼哈顿 Portage“DJ”包](http://www.amazon.com/Manhattan-Portage-Small-Bag-Khaki/dp/B001ALYR1G/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-lazy-brooklyn-blogger-bag-1650820876&asc_source=&tag=kinjalifehackerlink-20) 。目前的价格看起来相当高，但我已经带着这个极简主义的小包包走过了大学，环游了欧洲、旧金山和纽约近十年，它仍然像以前一样结实。
 

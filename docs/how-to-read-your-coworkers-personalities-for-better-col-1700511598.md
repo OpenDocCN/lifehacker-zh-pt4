@@ -4,7 +4,7 @@
 
 性格是工作场所的一个主要因素——不仅要了解你自己的性格如何影响你的行为和决策，还要了解与你交往的人的性格如何影响他们的行为以及你与他们的关系。但我们中的一些人比其他人更擅长阅读和对人格做出反应。
 
-Watch
+
 
 ***本帖原载于*** [***快公司***](http://www.fastcompany.com/3044030/how-to-get-better-at-reading-and-reacting-to-coworkers-personalities) ***。**T15】*
 

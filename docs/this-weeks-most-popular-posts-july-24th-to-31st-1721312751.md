@@ -4,7 +4,7 @@
 
 Windows 10 于本周发布，我们了解了所有的新功能以及如何升级，讨论了游戏时可以吃的健康零食等等。这里回顾一下。
 
-Watch
+
 
 ## [现在如何跳过线升级到 Windows 10](http://lifehacker.com/how-to-skip-the-line-and-upgrade-to-windows-10-now-1720854489)
 

@@ -4,7 +4,7 @@
 
 [发生在](https://lifehacker.com/grab-over-80-free-ebooks-from-microsoft-and-learn-somet-5930800) 之前，现在又发生了。微软的 MSDN 博客发布了一批全新的免费技术电子书，涵盖了从 Windows 8 到 Office 2013，再到 SQL Server 等等。
 
-Watch
+
 
 Eric Ligman，微软电子书的圣诞老人，发布了迄今为止最大的收藏，有 130 种不同的书籍。每本电子书都有数百页长，充满了知识，肯定能帮助任何 IT 专业人士或家庭用户。格式各不相同，但大多数都是 pdf 格式。
 

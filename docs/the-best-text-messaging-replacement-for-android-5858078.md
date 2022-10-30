@@ -4,7 +4,7 @@
 
 自从我们上次看到 Android 短信替代品已经有一段时间了。我们之前的选择是谷歌语音，但随着该应用程序被纳入 Hangouts，似乎是时候进行更新了。对于专门的短信用户来说，Handcent 短信似乎拿走了蛋糕。
 
-Watch
+
 
 ### [](http://www.handcent.com/dir/home)
 

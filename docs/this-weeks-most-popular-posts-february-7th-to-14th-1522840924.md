@@ -4,7 +4,7 @@
 
 本周我们 [发现了幸福夫妻的秘密](https://lifehacker.com/this-infographic-reveals-the-secrets-of-the-happiest-co-1518305669)[升级了我们的办公室](http://lifehacker.com/top-10-diy-office-upgrades-1518199762)[看了看别人的预算](http://lifehacker.com/three-people-three-salaries-how-they-spend-and-save-1509314956)[学会了如何在已经超重的时候开始锻炼](http://lifehacker.com/how-to-start-exercising-when-youre-already-overweight-1521317096) 。这里回顾一下。
 
-Watch
+
 
 ## [这张信息图揭示了最幸福夫妇的秘密](http://lifehacker.com/this-infographic-reveals-the-secrets-of-the-happiest-co-1518305669)
 

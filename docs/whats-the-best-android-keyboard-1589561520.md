@@ -4,7 +4,7 @@
 
 Android 的一大优点是你可以使用任何适合你需求的键盘。自定义词典，主题，布局，无论你需要什么，有一个键盘来匹配。本周，我们想知道你认为哪些是最好的。
 
-Watch
+
 
 当然，我们提出这个问题的部分原因是因为 SwiftKey， [的键盘在我们上次做](https://lifehacker.com/five-best-android-keyboards-5922522) 时赢得了我们的投票，只是 [降低了它的价格标签，对每个人都是免费的](http://lifehacker.com/swiftkey-our-favorite-android-keyboard-is-now-free-to-1588977169) 。这是一个很棒的键盘，但它的竞争也走过了漫长的道路——尤其是默认的谷歌键盘，它比过去好得多。尽管如此，还有很多其他人。让我们在下面的讨论中听听你最喜欢的。
 

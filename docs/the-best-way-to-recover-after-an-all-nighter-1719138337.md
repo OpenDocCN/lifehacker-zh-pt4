@@ -6,7 +6,7 @@
 
 所以你刚刚 [通宵有效地](https://lifehacker.com/how-to-pull-an-effective-all-nighter-1569813126) 完成了那个项目，但是你仍然需要在今天把事情做完。在这段视频中，你将了解到通宵工作后很有可能度过富有成效的一天，以及如何成功度过这一天。
 
-Watch
+
 
 这段视频来自纽约杂志 YouTube 频道 ，它给了你一些帮助你度过这一天的建议，并为你的一天制定了一个有科学依据的时间表。首先，如果你设法睡了一会儿， [当你的闹钟响起的时候，不要按贪睡键](https://lifehacker.com/science-explains-why-you-should-stop-hitting-the-snooze-5991618)；你不会再休息了。相反，起床后一小时内，利用这段时间吃一顿由全谷物和蛋白质组成的早餐。接下来，喝一杯咖啡，在阳光直射下晒晒太阳(不要戴太阳镜)。你可能还想 [做一些简单的练习](http://lifehacker.com/how-to-survive-the-workday-when-youre-completely-exhaus-5917644) 来提高你的心率。
 

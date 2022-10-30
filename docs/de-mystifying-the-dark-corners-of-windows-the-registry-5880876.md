@@ -4,7 +4,7 @@
 
 如果你的 Windows 印章扩展到任何能力以外的新手，你毫无疑问遇到了永远神秘的 Windows 注册表，DLL 文件，用户帐户控制，和其他工具看似黑暗和神秘的力量。在这里，我们将解释一些 Windows 最令人困惑的特性，这样当你去编辑它们时，你就能确切地知道发生了什么。
 
-Watch
+
 
 [](http://lifehacker.com/tag/blast-from-the-past)**是 Lifehacker 的一个每周专题，我们在其中恢复旧的，但仍然相关的帖子，供你阅读和黑客乐趣。为了庆祝 Windows 10 的发布，我们将重访我们最喜欢的 Windows 解释器之一。**
 

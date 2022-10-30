@@ -4,7 +4,7 @@
 
 你的手机可能是你拥有的最私人的设备。你随时都带着它，它可以访问你大部分最敏感的数据。以下是如何使用谷歌提供的基本工具来保证它的安全。
 
-Watch
+
 
 以下功能和服务几乎适用于所有没有第三方软件或服务的 Android 设备。正如我们在 [中提到的，我们的 Lifehacker Pack](https://lifehacker.com/lifehacker-pack-for-android-our-list-of-the-essential-819094535) ， [Lookout](https://play.google.com/store/apps/details?id=com.lookout&hl=en) 是一个基于已经内置的安全套件，但是即使你不想 [安装额外的软件](http://lifehacker.com/android-security-apps-that-keep-you-safe-without-killin-1203972514) ，以下是每个人可以(并且应该)在你拿到手机时设置的最基本的安全措施。记住， [用户是安全链中最薄弱的环节](http://lifehacker.com/how-secure-is-android-really-1446328680) 。即使加上这些基本的东西，也能让你比一般人更有安全感。
 

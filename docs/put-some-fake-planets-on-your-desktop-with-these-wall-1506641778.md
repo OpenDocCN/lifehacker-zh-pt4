@@ -4,7 +4,7 @@
 
 [太空图片牛逼](https://lifehacker.com/download-the-entire-archive-of-nasas-astronomy-picture-5774707) 。但是，如果我们的太阳系对你来说还不够刺激——缺少行星相互撞击并爆炸成巨大的火球——这些抽象的太空壁纸应该会让你开心。
 
-Watch
+
 
 ### 碎石
 

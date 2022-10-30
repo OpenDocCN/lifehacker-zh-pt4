@@ -4,7 +4,7 @@
 
 成为房东可以给你带来大量的被动收入，但这仍然需要付出很多努力——更不用说你需要预付的钱了。你从租户那里获得的收入真的值得你付出时间、金钱和努力吗？
 
-Watch
+
 
 ***本帖最初出现在*** [***慢慢变富***](http://www.getrichslowly.org/blog/2014/05/21/the-pursuit-of-passive-income-is-it-time-to-become-a-landlord/) ***。*T15】**
 

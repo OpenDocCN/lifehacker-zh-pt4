@@ -4,7 +4,7 @@
 
 你不需要一台高性能的个人电脑来充分利用高分辨率的 4K 显示器，但它肯定会有所帮助。如果你选择了一个 4K 展示，无论是为了 [一些非常漂亮的游戏](https://lifehacker.com/how-to-build-your-own-do-anything-4k-capable-desktop-1585882555) 还是 [仅仅是为了房地产](https://lifehacker.com/a-bigger-screen-for-less-money-use-a-4k-tv-instead-of-1526051072) ，我们想知道你选择了哪一个，以及为什么。
 
-Watch
+
 
 无论是为电脑制作的 4K 显示器，还是你进口或打折购买并插入电脑的 4K 电视，本周我们都想知道你选择了哪一款，你为什么喜欢它，以及为什么你会向他人推荐它。在下面的讨论中发表意见！
 

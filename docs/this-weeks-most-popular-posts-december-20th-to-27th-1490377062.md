@@ -4,7 +4,7 @@
 
 本周我们 [让会议更有成效](https://lifehacker.com/ask-these-three-questions-at-the-end-of-every-meeting-1489074784)[与我们重要的其他人](http://lifehacker.com/communicate-better-with-your-significant-other-with-the-1489145411)[无收据退回节日礼物](http://lifehacker.com/how-to-return-nearly-anything-without-a-receipt-5853626)[揭开 iOS 7 越狱](http://lifehacker.com/whats-happening-with-the-ios-7-jailbreak-should-i-use-1488760671) 背后的大戏。这里回顾一下。
 
-Watch
+
 
 ## [每次会议结束时问这三个问题](http://lifehacker.com/ask-these-three-questions-at-the-end-of-every-meeting-1489074784)
 

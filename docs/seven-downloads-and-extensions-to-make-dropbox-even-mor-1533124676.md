@@ -4,7 +4,7 @@
 
 Dropbox 无疑是互联网上最受欢迎的云存储提供商——至少它是我们最喜欢的。有很多 [聪明的事情你可以用它做](http://lifehacker.com/top-10-clever-uses-for-dropbox-5933884) 开箱即用(明白了吗？).然而，也有很多应用和扩展可以让你更容易地使用 Dropbox 本身。
 
-Watch
+
 
 ### 直接从网上发送文件到 Dropbox
 

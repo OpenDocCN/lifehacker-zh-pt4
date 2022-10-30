@@ -4,7 +4,7 @@
 
 似乎几乎每个人都在制造某种智能手机配件。大部分都很烂，不起作用。但有些其实很牛逼。让我们剔除垃圾，列出最好的。
 
-Watch
+
 
 不管出于什么原因，荒谬的智能手机配件已经变得只不过是一次性的，看看那些没人真正想要的垃圾(其中大部分你 [可以自己制作](http://lifehacker.com/top-10-cellphone-accessories-you-dont-need-to-buy-beca-5915131) )。然而，每隔一段时间就会出现一些非常棒的事情。与其费力地在亚马逊 上寻找智能手机配件的 [成千上万的结果，不如让我们开门见山，列出真正值得你花钱的配件清单。](http://www.amazon.com/s/ref=a9_sc_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-best-actually-useful-phone-accessories-1563484903&asc_source=&ie=UTF8&keywords=cell phone accessories&qid=1397581902&rh=i:aps,k:cell phone accessories&tag=kinjalifehackerlink-20)
 

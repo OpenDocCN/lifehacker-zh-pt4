@@ -4,7 +4,7 @@
 
 曾几何时，买一部便宜的安卓智能手机就像烧钱一样划算。但自那以后，Android 已经走过了漫长的道路，特别是 4.4 KitKat 优化为 [在低端硬件](https://lifehacker.com/all-the-new-stuff-in-android-4-4-kitkat-1456286732) 上运行得更好。那么低价的安卓手机还在浪费你的钱吗？
 
-Watch
+
 
 ### 低价安卓手机有什么值得期待的
 

@@ -4,7 +4,7 @@
 
 我们之前已经讨论过如何用你的安卓手机 来 [控制你的 HTPC 上的任何东西。但是如果你有有线电视，机顶盒，或者任何一个连接到你的电视上的东西呢？或者你只是想控制你的音响？别担心，你也有一些选择。](http://lifehacker.com/how-to-control-anything-on-your-pc-with-your-android-ph-1500063190)
 
-Watch
+
 
 ### 使用红外线控制客厅中的任何设备
 

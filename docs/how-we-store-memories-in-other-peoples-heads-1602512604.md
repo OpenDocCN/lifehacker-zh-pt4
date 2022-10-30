@@ -4,7 +4,7 @@
 
 我有一个相当 [不可靠的记忆](http://blog.pickcrew.com/the-science-of-memory-and-some-uncommon-tricks-you-can-do-to-enhance-it/) 。我经常发现人们对我说，“我已经告诉过你了！”我也倾向于依靠其他人来帮我记住事情——事实上，**群体事务性记忆**，在其他人的大脑中存储信息的过程，比你想象的更普遍。
 
-Watch
+
 
 ***本帖原载于*** [***剧组博客***](http://blog.pickcrew.com/how-we-store-memories-in-other-peoples-heads-to-improve-our-teamwork/) ***。**T15】*
 

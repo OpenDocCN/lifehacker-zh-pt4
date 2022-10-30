@@ -4,7 +4,7 @@
 
 消费电子展(CES)已经举办了多年，展示了科技行业最酷的新 [蒸汽产品](http://gizmodo.com/the-best-new-vaporware-5875570) 。不过，偶尔会发布一些很酷的东西。作为生活黑客，你可能会对今年的节目感兴趣。
 
-Watch
+
 
 ### **Sling TV 将 ESPN 带入互联网**
 

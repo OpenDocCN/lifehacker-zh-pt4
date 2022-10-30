@@ -4,7 +4,7 @@
 
 给你的电脑添加一个固态硬盘(SSD)只是简单的 [最好的升级](https://lifehacker.com/what-hardware-upgrade-will-best-speed-up-my-pc-if-i-ca-5883376) ，能够以你想不到的方式加速你的电脑。但是和任何新技术一样，还有很多东西需要学习。这里是你应该知道的关于你的固态硬盘的一切，无论你是对升级感兴趣还是只想知道你的硬件的来龙去脉。
 
-Watch
+
 
 [](http://lifehacker.com/tag/blast-from-the-past)**是 Lifehacker 的一个新的每周专题，我们在其中恢复了旧的，但仍然相关的帖子，供您阅读和黑客娱乐。本周，我们将更新我们的固态硬盘完整指南，让您比以往任何时候都更容易找到关于最佳升级的一切信息。**
 

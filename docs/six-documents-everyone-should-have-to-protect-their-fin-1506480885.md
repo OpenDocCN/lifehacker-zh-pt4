@@ -4,7 +4,7 @@
 
 抱歉，我们必须这么做。这不是最令人兴奋的话题，但如果你没有完成关键的文书工作，你就不能称自己受到了全面保护。以下是你需要控制的六件事。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/2014/01/documents-everyone-should-have-to-protect-their-finances/)***。转载自 Alexa von Tobel 的书《财务无畏:控制你的钱的 LearnVest 程序》。**T15】*
 

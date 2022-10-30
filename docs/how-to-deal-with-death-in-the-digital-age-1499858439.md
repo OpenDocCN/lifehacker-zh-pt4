@@ -4,7 +4,7 @@
 
 我祖母的生日是[上个]星期一，脸书鼓励我在她的墙上张贴问候，或者实际上送一份生日礼物来庆祝。问题是，我奶奶死了。
 
-Watch
+
 
 ***本帖原载于***[***read write***](http://readwrite.com/2014/01/09/facebook-death-twitter-instagram#awesm=~osLOvnJo16Ztty)***。版权说媒体。**T15】*
 

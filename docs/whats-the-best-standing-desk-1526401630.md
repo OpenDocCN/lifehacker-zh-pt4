@@ -4,7 +4,7 @@
 
 立式办公桌是避免整天坐着的危险的好方法，但它们不是万灵药。除了 [你还是应该四处走动](http://lifehacker.com/the-desk-jockeys-schedule-to-healthy-living-behind-a-d-516248751) 之外，有些立式办公桌比其他的更可调，更实惠，也更容易摆放。本周我们想知道你认为哪些是最好的。
 
-Watch
+
 
 就像我们提到的，站着或者不站着， [你真的需要在白天活动活动](https://lifehacker.com/forget-the-standing-desk-you-just-need-to-move-regular-5840754)——站着可能没有坐着那么糟糕，但活动是关键。也就是说， [我们已经介绍了一些半预算友好的立式办公桌](http://lifehacker.com/the-two-best-standing-desks-for-any-budget-1247630057) 。本周我们想听听你认为哪些是最好的。
 

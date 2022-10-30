@@ -4,7 +4,7 @@
 
 当夏天开始时，大会出来玩(直到圣诞节才停止)。无论你是摩拳擦掌准备 [动漫大会](http://www.comic-con.org/)[龙大会](http://www.dragoncon.org/)[派克斯](http://prime.paxsite.com/)[漫画家](http://comikazeexpo.com/)[E3](http://www.e3expo.com/)[动漫大会](http://www.momocon.com/) ，还是其他任何一个 [上百个](http://en.wikipedia.org/wiki/List_of_science_fiction_conventions)
 
-Watch
+
 
 值得一提的是，如果你要出城去看一场骗局，你将面临一系列全新的问题。我们不会过多地关注旅行方面，因为我们之前已经讨论过很多这样的话题，但是一定要看看我们的指南 [跟团旅行](http://lifehacker.com/how-to-travel-with-a-group-of-friends-and-not-lose-you-1451652555)[在最后一分钟预订假期](http://lifehacker.com/how-to-plan-an-awesome-last-minute-vacation-on-the-che-5840381) ，以及如何 [获得出色的机票和酒店住宿](http://lifehacker.com/the-ultimate-travel-hacking-guide-5841147) 。然而，就像任何骗局一样，确保你尽可能早地制定计划。在某些情况下，去年的骗局结束可能是你最安全的赌注。
 

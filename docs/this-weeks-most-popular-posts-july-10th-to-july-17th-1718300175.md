@@ -4,7 +4,7 @@
 
 本周，我们学习了如何支持与抑郁症作斗争的伴侣，与小工具视频制作人 MKBHD 聊天，看了看最新的苹果测试软件，等等。这里回顾一下。
 
-Watch
+
 
 ## [如何支持与抑郁症斗争的伴侣](http://lifehacker.com/how-to-support-a-partner-struggling-with-depression-1717700336)
 

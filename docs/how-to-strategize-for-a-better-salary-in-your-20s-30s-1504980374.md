@@ -4,7 +4,7 @@
 
 当我们年轻的时候，我们可能认为我们老了会赚更多的钱。工作资历伴随着晋升和加薪，对吗？事实证明，你的钱弧比你想象的要短。
 
-Watch
+
 
 ***本帖原载于***[***learn vest***](http://www.learnvest.com/2014/01/career-high-earning-years/)***。**T15】*
 

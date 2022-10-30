@@ -4,7 +4,7 @@
 
 你可能听说过 [冥想可以有益于](https://lifehacker.com/is-meditation-really-beneficial-or-is-it-just-ridiculo-5989429) ，但你实际了解多少呢？冥想的许多方面经常被误解或曲解。让我们揭穿这些神话，这样你就可以开始收获回报了。
 
-Watch
+
 
 ### 神话:冥想是关于清除你头脑中所有的想法
 

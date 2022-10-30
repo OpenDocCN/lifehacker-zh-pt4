@@ -4,7 +4,7 @@
 
 本周我们 [支付了好市多会员](https://lifehacker.com/the-items-that-will-single-handedly-pay-for-your-costco-1582935523)[下载了一些有用的 Windows 程序](http://lifehacker.com/top-10-incredibly-useful-windows-programs-to-have-on-ha-1584009886)[了解了所有关于苹果新发布的](http://lifehacker.com/how-to-get-some-of-the-best-features-of-ios-8-right-n-1584977909)[了解了我们为什么要铺床](http://lifehacker.com/why-making-your-bed-every-morning-matters-according-to-1583954961) 。这里回顾一下。
 
-Watch
+
 
 ## [单枪匹马为你支付好市多费用的物品](http://twocents.lifehacker.com/the-items-that-will-single-handedly-pay-for-your-costco-1582935523)
 

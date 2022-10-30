@@ -4,7 +4,7 @@
 
 租车时，梳理保险覆盖选项的细则可能会令人望而生畏，而且，让我们面对现实吧，并不那么刺激。这不像在华而不实的敞篷车、合理的紧凑型车或七座大型 SUV 之间做出选择那么令人兴奋。
 
-Watch
+
 
 ***本帖原载于***[***nerd wallet***](http://www.nerdwallet.com/blog/insurance/2014/10/29/rental-car-insurance-2/)***。**T15】*
 

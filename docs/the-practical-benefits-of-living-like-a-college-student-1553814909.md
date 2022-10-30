@@ -4,7 +4,7 @@
 
 虽然大多数人不会自动认为大学生是财务领导者，但大学生展示了一些财务安全的趋势，这对我们其他人具有指导意义。财务经验通常是从反复试验中获得的，伴随着变革和成长。这就是为什么我们可以从那些忙于学习、成长和转变的大学生身上学到一些东西。很明显，这为节俭的金融家树立了一些很好的榜样。
 
-Watch
+
 
 ***本帖原载于***[***ReadyForZero***](http://blog.readyforzero.com/the-practical-benefits-of-living-like-a-college-student/)***。**T15】*
 

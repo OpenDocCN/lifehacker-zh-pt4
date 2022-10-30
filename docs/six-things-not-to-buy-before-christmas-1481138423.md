@@ -4,7 +4,7 @@
 
 离圣诞节还有不到两周的时间，你可能会觉得有必要去疯狂购物。但是尽管销售永无止境，还是有一些东西你不应该在圣诞节前买。
 
-Watch
+
 
 ***本帖原载于***[***DealNews***](http://dealnews.com/features/6-Things-Not-to-Buy-Before-Christmas/646063.html)***。*T15】**
 

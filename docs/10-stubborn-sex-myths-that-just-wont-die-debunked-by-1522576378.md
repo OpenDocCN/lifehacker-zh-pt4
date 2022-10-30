@@ -4,7 +4,7 @@
 
 也许你听说过尺寸很重要，女人天生比男人更双性恋，或者密宗性爱意味着持久的高潮。事实是，这些事情都不完全正确。性一直存在，但我们才刚刚开始了解它。今天，我们要揭穿 10 个最常见的性误区，以正视听。
 
-Watch
+
 
 我和其他人一样喜欢性，但我不会假装自己是专家。为了弄清我们名单上的每个神话，我向一些顶级性学家寻求了一点帮助: [王思然·赫本尼克](https://twitter.com/DebbyHerbenick) 博士(印第安纳大学的研究科学家，金赛研究所的性健康教育家，著有多本书，包括 [性变得容易](https://www.amazon.com/dp/0762444061?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/10-stubborn-sex-myths-that-just-wont-die-debunked-by-1522576378&asc_source=&linkCode=ogi&psc=1&smid=A14DVWH76BP1XX&tag=kinjalifehackerlink-20&th=1) )、 [林赛·多伊](http://www.youtube.com/user/sexplanations) (性健康博士和 [性解释](http://www.youtube.com/Sexplanations) )和让我们言归正传，找出我们所知道的。
 

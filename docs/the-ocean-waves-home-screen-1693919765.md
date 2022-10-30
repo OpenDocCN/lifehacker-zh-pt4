@@ -4,7 +4,7 @@
 
 这个国家的大部分地区可能仍然寒冷，但是如果你渴望海洋乐趣的夏天，这个主屏幕会让你有心情。
 
-Watch
+
 
 像许多主屏幕主题一样，这可以作为主题的一键安装，但你也可以使用 [Nova Launcher](https://play.google.com/store/apps/details?id=com.teslacoilsw.launcher) ， [Zooper Widget Pro](https://play.google.com/store/apps/details?id=org.zooper.zwpro) 和 [Tasker](https://play.google.com/store/apps/details?id=net.dinglisch.android.taskerm) 自行组装。要安装主题，请执行以下操作:
 

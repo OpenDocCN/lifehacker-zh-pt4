@@ -4,7 +4,7 @@
 
 吃当地最简单的方法就是去农贸市场购物。通过这样做，你可以 [支持当地农民](http://lifehacker.com/why-eating-seasonally-and-locally-is-better-for-you-an-1563025065) 并融入你的社区。如果你想买一个 ，这通常也是最划算的 [。](http://lifehacker.com/hit-up-farmers-markets-when-cooking-for-one-5402989)
 
-Watch
+
 
 但是，同样地，你必须 [学习超市技巧](http://lifehacker.com/think-of-supermarkets-like-obstacle-courses-to-avoid-ov-5902266) ，知道如何在农贸市场购物很重要。我喜欢附近的一些市场，多年来我一直在这些市场购物，所以我积累了一些建议，值得你下次外出时记住。
 
